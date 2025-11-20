@@ -176,4 +176,326 @@ But if "Daddy" was really waiting for her, he waited two hours and a quarter, fo
 
 When he came down, Charlotte went up, leaving Beth and him alone.
 
-"Oh, John, it's so heavenly to have you home again! We all missed you terribly,
+"Oh, John, it's so heavenly to have you home again! We all missed you terribly, and I guess you know who missed you most."
+
+"Mother did seem glad to see me."
+
+"I wasn't speaking of your mother."
+
+"Did you get over to Chicago during the opera season?"
+
+"No, I didn't."
+
+"I was wondering if they did Taylor's new opera there and how it went."
+
+"Did you fall in love with a French girl?
+
+"The only ones I saw were opera-singers and I'm not blind." ;
+
+"You'll fall head over heels in love with Irene Comerford. She's the most attractive girl I ever met."
+
+There seemed to be no reply to this. ;
+
+"John, tell me who's the most attractive girl you ever met."
+
+"I never thought about it."
+
+"Do you think I'm terribly unattractive?"
+
+"No. Why should I?"
+
+"Why, John! I believe you're warming up."
+
+"A fella that's lived in those Paris pensions four years won't have any trouble warming up over here."
+
+"John, will you bring me an ash-tray?"
+
+He wasn't listening and Miss Beasley had to get it herself. But when she sat down again, it was in a chair almost touching his and an instant later she was holding his hand.
+
+"John, dear, I want to know all about you. I want to know your plans."
+
+"Well, we don't seem to be overwhelmed with money, so my first plan is to get a job." "That's just what I wanted you to say."
+
+"Why?"
+
+"Because it gives me a chance to help you."
+
+"How?"
+
+"Daddy wants a young man in his office and I'll see that you're the one."
+
+"Me in a broker's office! I'd certainly go over big!"
+
+"You could learn. Besides, the work wouldn't be hard. It's youth and good looks he wants more than anything else."
+
+"What for?"
+
+"To attract women customers."
+
+"Listen, I'd drive more of them away than I'd attract. I can't talk to women."
+
+"Oh, Johnny, not even to me?"
+
+Charlotte had descended the stairs quietly and Beth, seeing her, released John's hand.
+
+"You caught us in the act, Charley," said Beth, trying to be embarrassed. 'But it isn't really serious. Just a reunion of two good pals."' She glanced at her watch. "Oh, I must rush! Daddy will kill me! Good-by, Charley. Good-by, John. You might tell your sister our scheme."
+
+"What's the matter with her?" asked John.
+
+"You know perfectly well," said Charlotte. "But tell me, what's the scheme?"'
+
+"She said her father wanted a young man in his office and that she could get me the job."
+
+"Are you going to take it?"
+
+"No! What do I know about business?"
+
+"John, you've got to take it! It doesn't make any difference what you know. They'll tell you what they want you to do. And they'll pay you good money. That's what's important right now. Mother is flat broke and she needs special food, special nursing; she'll worry herself to death over our financial status. You can save her, John, and you've got to do it! It would be criminal of you not to. Oh, Johnny, please! Say you will!"
+
+"I'll think about it."
+
+"And I know you'll think right. Now I've got to run over to Butch Harper's and get some gin. Wallie's coming in from the lake for dinner. And Irene Comerford and Sam Drake said they might stop for cocktails. It's a shame Irene's engaged, though I'm afraid she wouldn't I mean she likes men who talk a lot and are funny. That's what attracts her to Sam. He's full of the devil, telling stories all the time or getting up practical jokes on somebody. If they should come before I get back, you'll entertain them, won't you?"
+
+I shouldn't think she'd need any more entertainment than he can give her."
+
+Well, don't forget to laugh at his stories. And another thing, John. If Wallie should call up while I'm gone you take the message. And please, John, decide to accept that offer."
+
+John, left alone, sat and stared at the empty fireplace for five minutes. Then he went to a table, took a cigaret from the box and lighted it. A few puffs and he took another, igniting the second from the first. It surprised him to find he was smoking two at once and it embarrassed him when a young couple entered without knocking and caught him at it.
+
+"And I thought I was a fiend!" said the man who John knew at once was Sam Drake.
+
+"Honey," he said to the girl, "you get sore at me lots of times for smoking one cigaret after another. What would you do if I smoked them in pairs?"
+
+John was looking into the girl's eyes. Beautiful! Attractive! What silly words!
+
+She spoke: "I'm Irene Comerford and this is Mr. Sam Drake. I presume you are Mr. Knowles. Charlotte asked us in for a cocktail."
+
+John was dumb.
+
+"Is Charlotte out?"
+
+He managed to answer yes.
+
+"Oh, then we'll run along."
+
+"She told me you were to wait," said John.
+
+"Well, if we're going to wait, let's sit down and take a load off our dogs," said Sam.
+
+The callers seated themselves on the couch and John, after laying both his cigarets on the tray, sat in a chair facing them. Never once did he take his eyes off Miss Comerford's face.
+
+"You're just back from gay Paree, I hear," said Sam.
+
+"Yes."
+
+"How long were you over there?"
+
+"I don't know."
+
+Irene suppressed a smile at Sam's evident discomfiture. Then she spoke again:
+
+"I think Charlotte was right."
+
+She waited for John's question, but he asked none.
+
+"Beth and I were talking one day," she continued, "and we were talking about men, for a change. We agreed that they were all alike. Charlotte said we would eat our words if we knew you as well as she did. Then Beth said that-- Well, I won't make you blush."
+
+The telephone rang, but John made no move. It continued to ring and Irene asked whether he intended to answer it. He was still silent.
+
+"Shall I answer it, then?"
+
+"If you like."
+
+It was Wallie Blair and he wanted Charlotte to be told that his boat had been stalled on the lake for two hours and he couldn't possibly be there before half past eight. Irene sat down again and delivered the message to John, in case she and Sam would have to go before Charlotte came back. John seemed to be paying attention, but he was not.
+
+"Well, Knowles," said Sam, "if you're just back in the country, maybe you haven't heard all the new stories; I mean parlor stories; Irene won't let me tell the other kind. Did you hear the one about the two colored caddies at Palm Beach last winter?"
+
+"No."
+
+"Well, a couple of the big boys-I think it was Replogle and Hutton or somebody like that-started a round out at the Everglades Club and they happened to get two caddies who were twice as big as they were--"
+
+He was interrupted by a laugh, John's laugh. It came so unexpectedly that Sam and Irene Comerford were frightened.
+
+"Not time to laugh yet," said the raconteur.
+
+"I'm sorry," said John.
+
+"Well, one of the players hit the ball into an unplayable lie and asked his caddy to pick it up. The caddy grinned at him and said--"
+
+Again an interruption, but this time not a laugh. John, looking straight at the girl, softly recited:
+
+"I'll never know the glory of the moon Until I see it shining in your eyes; I'll never know the loveliness of June Till we look up together at its clear, magnificent, azure skies. Each day will be just morning, night and noon Till you are mine, my loved one, sweetheart, wife, And then I'll know the glory of the moon, And then I'll know the loveliness of life."
+
+"Well, for!" exclaimed Sam Drake. "Come on, Irene. I want to get you away from this bird. I can't compete with Eddie Guest."
+
+Miss Comerford got up. "I do think we ought to go," she said. "Please tell Charlotte how sorry we were not to see her."
+
+John rose and began to act the polite host.
+
+"Don't let me drive you away with my doggerel! Charlotte won't forgive me."
+
+"Honestly we must go," said Irene. "I would like you to tell me what that was."
+
+"I think it will be part of a libretto I'm writing, a libretto I've been writing for five years."
+
+"When did you make up those lines?"
+
+"Since you came, most of them."
+
+"Hot apple sauce! Come on, Irene. You're supposed to be my inspiration, not his," said Sam.
+
+"Just a second," said John. "Do you often go to your father's office?"
+
+"Why do you ask that?"
+
+"Oh, never mind."
+
+"I go there once or twice a week."
+
+"Whenever she's flat," said Sam.
+
+They saw one of John's infrequent smiles.
+
+"Here's hoping you're frequently flat."
+
+"Why?"
+
+But he had started up the stairs without waiting to bow them out.
+
+Charlotte came home about half past six, hot and in a bad temper. She had had two blowouts, one of them half-way home from her bootlegger's, two miles out in the country, and five cars had disregarded her SOS. The sixth one's occupant was an old farmer who knew as much about changing tires as she did. It had taken them half an hour to do the job. John told her Miss Comerford and Mr. Drake had been in for a while. She asked him what he thought of Irene. He made no reply at all, but Charlotte was used to that. Then she asked him whether Wallie Blair had tele- phoned and he said no, really thinking he was telling the truth.
+
+At seven she gave Wallie up and dined alone with John. But when Wallie came a little after eight swore he had talked with Irene and that the latter had promised to deliver the message, there was a further display of temper, first directed toward Miss Comerford and then toward John, when John, to save Irene, admitted that she might have given him the message and he might have forgotten about it. Charlotte was pacified by his promise that he would accept Mr. Beasley's offer if Mr. Beasley made one.
+
+Mr. Beasley made one next morning, a salary of two hundred dollars a week for work that could be taught him easily. He was given a private office with a desk and two chairs. No one came in to instruct him in his duties and he would have been happy polishing up his libretto if Beth Beasley had not made his room a second home.
+
+"Do you like me now?" she asked, perched on his desk too close for comfort. It was his fourth day on the "job."
+
+"Why now?"
+
+"I mean because I got you this chance."
+
+"I liked you before that," he said.
+
+"Dear, do you know what you're saying?"
+
+"Certainly."
+
+"Can't you say it more plainly, that you're fond of me, that you care a little? I know how shy you are and I have to do the talking for you. I hate to. But you won't do it yourself."
+
+"What am I to say?"
+
+"Just that you care for me."
+
+"I do."
+
+"John, does that mean it's an under- standing?"
+
+"What kind of understanding?"
+
+"That we care for one another."
+
+"I guess we do."
+
+"Aren't you going to be-not so cold and distant?"
+
+"Listen, Beth," said John nervously, "I don't know whether I can make good here or not. And until I am sure of myself and where I stand, I can't think of-of other things."
+
+"Daddy would never turn you out."
+
+"I'll turn myself out if I can't do what he wants me to. I've got to make good on my own account, without any outside influence. If you'll just understand that!"
+
+"I've waited this long, I guess I can wait a little longer," said Beth, and left him.
+
+Well, the fifth day was something entirely different. One of the partners. H. N. Comer- ford, was in Chicago. At a quarter of nine, the other partner, J. L. Beasley, called up to say he was going fishing; he knew that old Fred Howard, his chief and only clerk unless you counted John Knowles was capable of running the who e works sing'e-handed. The rest of the office force was made up of the telegraph operator the telephone girl, the marker and the pretty new stenographer Miss Davenport
+
+Old Howard was usually on deck at nine o'clock sharp. This morning his wife tele- phoned at ten after nine that he had broken a leg trying to get on a street-car. Miss Davenport came into John's room to tell him the news and he nearly fainted. When he had pulled himself together, he rushed into the main office and instructed the telephone girl to put all calls on his wire; he would keep Miss Davenport with him and when orders came in, he would write them down and repeat them aloud so she could write them down, too, and there would be less chance of mistakes.
+
+The telegraph operator eminded him that the daily market letter must be got out and sent to all customers and prospective customers. John decided that it was best to start this letter at once; his ignorance of what a market letter should contain was colossal and it would take all his spare time to write it.
+
+"Make it optimistical," was the only hint the operator offered.
+
+He hoped for help from Miss Davenport, but that good-looking young lady was proof of the saying, "You can't have everything"
+
+"Did Mr. Howard ever dictate one to you?" John asked her.
+
+"Yes, every day since I've been here, but that's only a week."
+
+"How does he start them?"
+
+"I forget."
+
+It never occurred to John that there must be dozens or hundreds of old ones around the office. He must work out one of his own.
+
+"Well," he said, "get me a paper with the market reports and we'll see what we can do."
+
+She brought him the paper and sat down at the desk opposite him ready to take dictation.
+
+"Here we go," he said. "To customers of Beasley and Comerford: We do not like to advise you to buy stocks that are not likely to go higher or at least not go lower--"
+
+The telephone rang. It was Wallie Blair asking him to come to the lake Saturday afternoon and stay over Sunday. He said he couldn't leave his mother alone.
+
+"Charlotte's going to stay with her."
+
+"Well, let me think it over."
+
+"No. You've got to say yes right now. You've got no excuse in the world. I'm in the Maynard cottage and anybody can tell you where it is. I'll expect you Saturday afternoon."
+
+Perhaps if it hadn't been for the market letter, John would have argued. As it was he said all right, so he could go on with his work.
+
+"All right, Miss Davenport. What have we said?"
+
+"'We do not like to advise you to buy stocks that are not likely to go higher or at least not go lower.'" "But we cannot help feeling a feeling of optimism."
+
+"How do you spell that last word?"
+
+"O-p-t-i-m-i-s-m. As the summer promises to be hot, we might recommend the purchase of American Ice preferred; still, one cannot always depend on the weather predictions. General Motors is another good stock." The telephone rang. It was J. M. McInerny and he wanted to place an order for two hundred shares of Murray Corporation at the market. John wrote down the order, repeated it aloud as it was given to him so Miss Davenport could get it, too. She took the slip to the telegraph operator and returned for more dictation. But the telephone was ringing again.
+
+"This is Irene Comerford."
+
+"Yes," in a voice that shook a little.
+
+"I just wanted to speak to the telephone girl, but she gave me you. Aren't you Mr. Knowles?"
+
+"Yes."
+
+"Well, I expected to drop in the office today and my father was going to send me a telegram there. If one comes, will you mail it to me at the lake? In care of Mrs. Charles Parrish. I'll be there over the weekend."
+
+"I'll attend to it, Miss Comerford."
+
+"Thanks. Good-by."
+
+He wrote down Mrs. Charles Parrish's name and then looked out the window. Miss Daven- port waited five minutes before she asked whether the market letter was all done.
+
+"No. I was figuring what to put in next." The telegraph operator came in and suggested that as business seemed to be slow, the telephone operator might call him instead of John to take the orders and he would keep a record of them and give it to John later.
+
+"I'll just take this one," said John as the telephone rang again. "Then you can handle them the rest of the day."
+
+"K. O.," said the operator.
+
+A man named Francis Elliott wanted six hundred shares of American Linseed. John and Miss Davenport wrote it down. Then John looked at the paper to be sure there was such a stock.
+
+"Great heavens!" he exclaimed. "There are two of them, common and preferred. I'm pretty sure he said common. No, I'm sure he said preferred."
+
+"Why not call back and ask him?"
+
+"That would be silly, because I'm positive he said preferred."
+
+Miss Davenport took the order out to the operator and came back to John's desk.
+
+"Where were we?"
+
+"'General Motors is another good stock,'" read Miss Davenport.
+
+"Oh, yes. Well, U. S. Steel is always a good buy. So are the railroads, as people do a great the summer. People go south in the winter and deal of traveling these days especially during north in the summer, so at this time of year the stocks of the north-bound railroads would be the best ones to buy. Automobile stocks are also pretty good stocks to buy at this time of year as many of the tourists and vacationists prefer it. Railroad travel is perhaps safer, but travel by motor rather than by rail. They that does not affect the value of the stocks."
+
+He ran on in this way for nearly a thousand words, four times as many as the letter usually contained. He made a tremendous effort to talk sensibly to customers and was immensely relieved when four o'clock struck.
+
+On the way home he worried a little about that American Linseed order, but decided that a man who would order as many as six hundred shares would certainly deal in preferred stock instead of common.
+
+He told Charlotte about his invitation from her friend Wallie Blair. It was no news to her. He didn't want to go, but she said he must or Wallie would feel hurt.
+
+Mr. Beasley was back next morning, which was Friday, and congratulated John on his smooth work in a pinch. Luckily, he did not see the market letter and more luckily he was shut up in his office when Francis Elliott came inte how his Linseed was going. The tele graph operator told John who he was and John invited Mr. Elliott into his own room.
+
+"Mr. Elliott," he said, "I'm a novice at this game and I am likely to make mistakes. Would you mind telling me what your order was yesterday? Was it for the common or preferred?"
+
+"For the common, of course," said Mr. Elliott, "and it's off two and a quarter points."

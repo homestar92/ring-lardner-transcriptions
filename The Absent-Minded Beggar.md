@@ -98,9 +98,9 @@ The conductor, taking his ticket, informed him that he was going in the wrong di
 
 We will be brief about his one year in college. It was terribly hard to escape a complete flunk. It was harder to live alone. He never remem- bered to send out laundry until there was noth- ing left to wear. He was never able to con- centrate on what went on in the classroom and never listened to a lecture. One day he wore one black shoe and one tan shoe, and four or five of his classmates followed him across the campus, reciting:
 
-"Diddle-diddle dumpling, my son Jack;
-
-One shoe brown and one shoe black.'
+> "Diddle-diddle dumpling, my son Jack;
+> 
+> One shoe brown and one shoe black.'
 
 He was always late in paying for his board and lodging because his mind was on something else.
 
@@ -206,7 +206,7 @@ There seemed to be no reply to this. ;
 
 "Why, John! I believe you're warming up."
 
-"A fella that's lived in those Paris pensions four years won't have any trouble warming up over here."
+"A fella that's lived in those Paris *pensions* four years won't have any trouble warming up over here."
 
 "John, will you bring me an ash-tray?"
 

@@ -324,7 +324,21 @@ He was interrupted by a laugh, John's laugh. It came so unexpectedly that Sam an
 
 Again an interruption, but this time not a laugh. John, looking straight at the girl, softly recited:
 
-"I'll never know the glory of the moon Until I see it shining in your eyes; I'll never know the loveliness of June Till we look up together at its clear, magnificent, azure skies. Each day will be just morning, night and noon Till you are mine, my loved one, sweetheart, wife, And then I'll know the glory of the moon, And then I'll know the loveliness of life."
+> "I'll never know the glory of the moon
+> 
+> Until I see it shining in your eyes;
+> 
+> I'll never know the loveliness of June
+> 
+> Till we look up together at its clear, magnificent, azure skies.
+> 
+> Each day will be just morning, night and noon
+> 
+> Till you are mine, my loved one, sweetheart, wife,
+> 
+> And then I'll know the glory of the moon,
+> 
+> And then I'll know the loveliness of life."
 
 "Well, for!" exclaimed Sam Drake. "Come on, Irene. I want to get you away from this bird. I can't compete with Eddie Guest."
 
@@ -499,3 +513,211 @@ Mr. Beasley was back next morning, which was Friday, and congratulated John on h
 "Mr. Elliott," he said, "I'm a novice at this game and I am likely to make mistakes. Would you mind telling me what your order was yesterday? Was it for the common or preferred?"
 
 "For the common, of course," said Mr. Elliott, "and it's off two and a quarter points."
+
+"But the preferred," said John, "is up eight points, and that is what I bought you.'
+
+For an instant young Mr. Knowles was in imminent danger of being kissed by a man with a mustache. But he dodged behind the desk and asked Mr. Elliott if he would mind not telling either of the partners of the error. "Tell! No, sir. What I'll do is sell. And you're going to get a hundred dollars for being a novice."
+
+At three o'clock Saturday afternoon, John started for the lake in Charlotte's car.
+
+He had not foreseen the problem that would upset him almost as soon as he had left the city limits; namely, which cottage Wallie Blair was living in, the Maynards' or the Parrishes'. He knew he had made notes of both those names, but simply could not remember which one had been told him by Wallie and which by Miss Comerford.
+
+Two miles from the lake he was sure his destination was the Maynards'. A mile more and he was convinced it was the Parrishes'. This conviction held and after asking directions from a cottager mowing his lawn, he soon pulled up in front of the wrong place.
+
+A male servant came out to the car and grabbed his two pieces of baggage.
+
+"What name, sir?"
+
+"John Knowles."
+
+Without another word, the servant carried the baggage onto the porch, opened the screen door to permit John to enter, and followed him in. A woman rose at his entrance.
+
+"Mr. John Knowles," said the servant. "Is he to have the south room?"
+
+"John Knowles!" said the woman half under her breath. "I'm afraid there is some- But wait a minute till I run upstairs."
+
+Upstairs she rapped briskly on Irene's door and went in. "Dearie," she said, "did you invite here a beautiful sheik named John Knowles?"
+
+Irene gasped. "I did not!"
+
+"Well, he's downstairs and he's brought his baggage and he seems to think he was expected."
+
+"Heavens! What in the world could make him think that?"
+
+"Do you know him?"
+
+"I've met him once. He works in Father's office. But I certainly never asked him to come here or anywhere else."
+
+"Well, there's evidently a misunderstanding. I wish you would go down and talk to him."
+
+"I'll see him and find out how it happened," said Irene.
+
+She was cross with him for what she believed his freshness and thought of sarcastic things to tell him as she hurried downstairs. But when she saw him, with the servant near by standing over his bags, she knew he never could be a "crasher" and that it was truly a mistake that had brought him there. She smiled and said:
+
+"It's nice to see you again, Mr. Knowles."
+
+John stared at her as if she were a ghost. Then he found his voice.
+
+"I suppose I'm the world's biggest sap. I want to explain this intrusion and then I'll get right out. Last Thursday, the day you tele- phoned, a friend of mine here at the lake also telephoned and asked me out for the weekend. He gave me the name of the cottage where he is staying and you gave me the name of yours. I wrote the names down, but left the slips in the office and I couldn't remember which was which. The two names were Maynard and Parrish. On the way out here I thought and thought and thought, and of course came to the wrong conclusion. And I never can tell you how sorry and humiliated I am."
+
+Irene heard herself saying: "But I'm glad you did guess wrong because now we can have you and you can visit your friend some other time."
+
+"Not for anything in the world!"
+
+"Not even if I beg you?"
+
+"There's no reason you should beg me, no reason you should want me."
+
+"It happens that I do."
+
+"If I could believe that, I'd tell my friend to let me off."
+
+Irene noticed the servant still hovering.
+
+"Edward, take Mr. Knowles' bags to the south room.' And when Edward had gone upstairs, "We're going on a party tonight, you and I and Mrs. Parrish and Sam Drake. It won't be a late party and I don't believe it will bore you much."
+
+"I can't do that, Miss Comerford. I brought no dinner clothes."
+
+"Nobody will care."
+
+"I would. No, Miss Comerford, you'd better let me take my bags and go over to Wallie's."
+
+"It's already settled. You're not going there."
+
+"And I'm not going to any party."
+
+"All right then. Sit here quietly and read. No. Write more of your libretto and I can boast that you got your inspiration from me."
+
+"I'm afraid it won't be much to boast of.".
+
+"Oh, hush! Come up now and I'll show you your room. And of course you won't have to dress because you'll be dining all alone."
+
+He followed her up the stairs and was properly introduced to Mrs. Parrish, whom they met in the hall. Explanations followed and the hostess acted as if she were glad he had come. clothes that were not quite so wrinkled, then
+
+John went to his room, changed into some sat and waited for events. He was not in the least conscience-stricken about Wallie Blair.
+
+He would go over after dinner and give a special version of what had happened. What really had happened was that he was in love for the first time in his life and it was impossible for him to resist Irene's voice and eyes.
+
+He was summoned downstairs, where he found Mrs. Parrish, Sam Drake and Irene in evening dress. They all had cocktails, Sam drinking five as fast as he could get them down. uttered a word during his exhibition of rapid He had greeted John very coldly and had not guzzling. Mrs. Parrish took him to task:
+
+"Sam, you're an old grouch! Get happy and tell us a story."
+
+"I'll tell no story in the presence of a so-and-so cheap poet who hasn't the manners to keep his mouth shut."
+
+"Sam!" said Irene sharply.
+
+"I don't like to be around with a so-and-so where he is not invited or wanted." tramp and grafter who crashes into places
+
+"I assure you he is wanted."
+
+"By whom?"
+
+"By me!"
+
+"Well, you don't want me if you want him. We may as well get that straight right now!"
+
+"Just as you say."
+
+"Miss Comerford," said John, "I really ought to go over to my friend's."
+
+"I want you to stay right here, and what's more, I'm going to stay here with you. I don't intend to go anywhere with Sam in his present condition."
+
+"If I leave here without you, I'll never come back."
+
+"Suit yourself about that. I'm not going!"
+
+"Irene, dear," said Mrs. Parrish, "you know I've got to go, don't you? It's the Tuttles and I've refused them so often."
+
+"Of course, Ellen, you must. I'm only sorry you haven't a decent escort."
+
+"Her escort," said Sam, "is at least as decent as the snake you're throwing him over for."
+
+"I'm not throwing anyone over."
+
+"You are! You love this gutter-snipe and I guess you're welcome to him."
+
+"Come on, Sam," said Mrs. Parrish.
+
+"And in parting, Mr. Drake,' said John, "let me warn you that the first time we meet where no ladies are present, you'll go home looking like the late Tom Heeney."
+
+Irene Comerford and John were alone.
+
+"Mr. Knowles, please tell me you didn't believe what he said about my loving you."
+
+"He said you loved a gutter-snipe."
+
+"He was referring to you and you know it. And I don't want you to believe him."
+
+"There's no danger, dear. But oh, how I'd like to!"
+
+"Why?"
+
+"Because I love you so."
+
+"And what about Beth?"
+
+The man servant announced dinner.
+
+"Well," said John when they were seated at a table too big for two, "what about Beth?"
+
+"She told me you were engaged."
+
+"She told me that, too, but I was in a position to know better."
+
+John asked the servant where the Maynard cottage was and learned it was only four cottages away. "I'd like to go down there and square myself with Wallie Blair."
+
+"You must go right after dinner," said Irene, "but you mustn't stay too long."
+
+"No danger."
+
+But there was danger, danger John should have foreseen and avoided by staying right where he was. He mixed with Blair's ribald crew for only half an hour, but on the way back the moon on the lake brought the accursed libretto back into his head and drove Irene entirely out of it. He sat on somebody's dock and outlined a whole new scene, and when he finally returned, it was eleven o'clock and Miss Comerford had disappeared.
+
+He was sorry, but it didn't seem strange to him. Nor did her failure to acknowledge his greeting when he found her alone in the dining- room next morning strike him as queer. And after five or ten minutes of silence, he said:
+
+"You're a lot like me. There are times when you don't want to talk to anybody."
+
+"Mr. Knowles, it isn't 'anybody' I don't want to talk to. It's you."
+
+"But why?"
+
+"Can you ask after what you did last night?"
+
+"Do you mean my staying out so long?"
+
+"Yes."
+
+"Do you know what I was doing?"
+
+"I can imagine."
+
+"Well, I wasn't at Blair's, drinking. I was sitting on a dock, blocking out a new scene for my silly opera."
+
+"Couldn't you have done it here?"
+
+"Do you think I could concentrate on work if I were with you?"
+
+"You did, at least you said you did, the other day. You said you made up that verse while I was right there with you."
+
+"Dear, you know I am crazy and absent-minded and of a queer temperament. Can't you care for me as I am?"
+
+"I'm afraid I can."
+
+"How soon will Mrs. Parrish be down?"
+
+"Any minute."
+
+"Then let's settle this thing quick. I'm not engaged to Beth. You're not engaged to Sam. Let's be engaged to each other."
+
+"I'm afraid you're engaged to your work."
+
+"I'll tear it up."
+
+"I won't let you do that. But I'll insist on your doing whatever is left to be done right in my presence, looking right at me."
+
+"I don't believe it's possible, but I'll try."
+
+"Then we're engaged."
+
+"And remember, Miss Comerford, that being engaged to you means the loss of my job."
+
+"What for? Maybe you don't know it, but my father owns more stock than Mr. Beasley."

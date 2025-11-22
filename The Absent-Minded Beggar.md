@@ -2,7 +2,7 @@ This is about John Knowles. When his sister Charlotte was nine years old, she he
 
 And it certainly puzzled her when her mother said John was in the same line, for John went to school every day, had a hard struggle keeping up and was obliged to study, with Mrs. Knowles' help, evenings; or when Mrs. Knowles had company or went out to dinner, John sat in his room and wrote endless lines of poetry. Charlotte decided that Mrs. Prendergast was being kidded.
 
-John's teachers had nothing but words of praise for his efforts in English and English literature, and later for his English translations of Greek and Latin verse, but things like mathematics, history and physics interested him not at all and he was hardly ever able to answer a question in class. Some- times he ignored the questions entirely, seeming not to have heard them. The women teachers were lenient with him because of his good looks and it was for this reason and the fact that he memorized whole pages of text-books just before examination time that he was able to get by.
+John's teachers had nothing but words of praise for his efforts in English and English literature, and later for his English translations of Greek and Latin verse, but things like mathematics, history and physics interested him not at all and he was hardly ever able to answer a question in class. Sometimes he ignored the questions entirely, seeming not to have heard them. The women teachers were lenient with him because of his good looks and it was for this reason and the fact that he memorized whole pages of text-books just before examination time that he was able to get by.
 
 His absent-mindedness seemed to grow worse and worse as the years passed and on his high-school commencement night he afforded his classmates much glee by appearing at the church in dinner shirt and trousers and a dark brown coat. A girl, Beth Beasley, who had loved him madly for four years, though he had never given her the slightest hope, grabbed him by the arm, led him away from the rest, explained the error in his costume and urged him to hurry home and get the right coat.
 
@@ -20,7 +20,7 @@ She found his black coat and left him in his room to make the change. He took of
 
 He set out for the church once more, walking slowly. When he came to the little city park, he sat on one of the benches and mumbled more verse, much more verse. The ceremonies had been long under way and his mother and Charlotte, to say nothing of Beth Beasley, were panicky at his non-appearance among his classmates.
 
-At length he got up and walked on. He came to a big arc- light and noted that he had not made the proper change in coats. "Well," he said to himself, "it's too late now. I'll just go home and wait for Mother and Charlotte. They can tell me what happened."
+At length he got up and walked on. He came to a big arc-light and noted that he had not made the proper change in coats. "Well," he said to himself, "it's too late now. I'll just go home and wait for Mother and Charlotte. They can tell me what happened."
 
 Mrs. Knowles and Charlotte appeared at half past ten and found him in the living-room, writing.
 
@@ -52,7 +52,7 @@ Mrs. Knowles and Charlotte appeared at half past ten and found him in the living
 
 "Does she need an excuse?"
 
-"Girls don't like--"
+"Girls don't like—"
 
 "Listen," interrupted John. "Does this sound any good?"
 
@@ -96,7 +96,7 @@ So John said he would and in mid-September he started for the station to catch t
 
 The conductor, taking his ticket, informed him that he was going in the wrong direction for Ann Arbor and advised him to get off at Niles and catch the next train east. John took the advice, but left his hand-bag and suitcase on the Chicago train. As he had also lost his trunk check, it was some days before he really got settled.
 
-We will be brief about his one year in college. It was terribly hard to escape a complete flunk. It was harder to live alone. He never remem- bered to send out laundry until there was noth- ing left to wear. He was never able to con- centrate on what went on in the classroom and never listened to a lecture. One day he wore one black shoe and one tan shoe, and four or five of his classmates followed him across the campus, reciting:
+We will be brief about his one year in college. It was terribly hard to escape a complete flunk. It was harder to live alone. He never remembered to send out laundry until there was nothing left to wear. He was never able to concentrate on what went on in the classroom and never listened to a lecture. One day he wore one black shoe and one tan shoe, and four or five of his classmates followed him across the campus, reciting:
 
 > "Diddle-diddle dumpling, my son Jack;
 > 
@@ -104,9 +104,9 @@ We will be brief about his one year in college. It was terribly hard to escape a
 
 He was always late in paying for his board and lodging because his mind was on something else.
 
-He went home at Christmas and for spring vacation, but forgot to take along certain gar- ments in need of a woman's tender care.
+He went home at Christmas and for spring vacation, but forgot to take along certain garments in need of a woman's tender care.
 
-June came at last and John miraculously managed to get away from Ann Arbor with the loss of one spring overcoat, four shirts, a pair of shoes, half a dozen ties and the mates dozen socks. He had packed in a hurry because he knew that a co-ed living next door would be over to bid leave way ahead of time. She was not the only leave way ahead of time good-by if he didn't co-ed who had tried to become friendly. In spite of the occasional eccentricity of his attire, the girls were strong for him.
+June came at last and John miraculously managed to get away from Ann Arbor with the loss of one spring overcoat, four shirts, a pair of shoes, half a dozen ties and the mates dozen socks. He had packed in a hurry because he knew that a co-ed living next door would be over to bid good-by if he didn't leave way ahead of time. She was not the only co-ed who had tried to become friendly. In spite of the occasional eccentricity of his attire, the girls were strong for him.
 
 One day in July, John read in a Chicago paper that a famous American composer, whom we will call Deems Taylor, had sailed for Europe, where he intended to hide until he had written a libretto of his own.
 
@@ -298,7 +298,7 @@ Irene suppressed a smile at Sam's evident discomfiture. Then she spoke again:
 
 She waited for John's question, but he asked none.
 
-"Beth and I were talking one day," she continued, "and we were talking about men, for a change. We agreed that they were all alike. Charlotte said we would eat our words if we knew you as well as she did. Then Beth said that-- Well, I won't make you blush."
+"Beth and I were talking one day," she continued, "and we were talking about men, for a change. We agreed that they were all alike. Charlotte said we would eat our words if we knew you as well as she did. Then Beth said that—Well, I won't make you blush."
 
 The telephone rang, but John made no move. It continued to ring and Irene asked whether he intended to answer it. He was still silent.
 
@@ -312,7 +312,7 @@ It was Wallie Blair and he wanted Charlotte to be told that his boat had been st
 
 "No."
 
-"Well, a couple of the big boys-I think it was Replogle and Hutton or somebody like that-started a round out at the Everglades Club and they happened to get two caddies who were twice as big as they were--"
+"Well, a couple of the big boys—I think it was Replogle and Hutton or somebody like that—started a round out at the Everglades Club and they happened to get two caddies who were twice as big as they were—"
 
 He was interrupted by a laugh, John's laugh. It came so unexpectedly that Sam and Irene Comerford were frightened.
 
@@ -320,7 +320,7 @@ He was interrupted by a laugh, John's laugh. It came so unexpectedly that Sam an
 
 "I'm sorry," said John.
 
-"Well, one of the players hit the ball into an unplayable lie and asked his caddy to pick it up. The caddy grinned at him and said--"
+"Well, one of the players hit the ball into an unplayable lie and asked his caddy to pick it up. The caddy grinned at him and said—"
 
 Again an interruption, but this time not a laugh. John, looking straight at the girl, softly recited:
 
@@ -376,7 +376,7 @@ They saw one of John's infrequent smiles.
 
 But he had started up the stairs without waiting to bow them out.
 
-Charlotte came home about half past six, hot and in a bad temper. She had had two blowouts, one of them half-way home from her bootlegger's, two miles out in the country, and five cars had disregarded her SOS. The sixth one's occupant was an old farmer who knew as much about changing tires as she did. It had taken them half an hour to do the job. John told her Miss Comerford and Mr. Drake had been in for a while. She asked him what he thought of Irene. He made no reply at all, but Charlotte was used to that. Then she asked him whether Wallie Blair had tele- phoned and he said no, really thinking he was telling the truth.
+Charlotte came home about half past six, hot and in a bad temper. She had had two blowouts, one of them half-way home from her bootlegger's, two miles out in the country, and five cars had disregarded her SOS. The sixth one's occupant was an old farmer who knew as much about changing tires as she did. It had taken them half an hour to do the job. John told her Miss Comerford and Mr. Drake had been in for a while. She asked him what he thought of Irene. He made no reply at all, but Charlotte was used to that. Then she asked him whether Wallie Blair had telephoned and he said no, really thinking he was telling the truth.
 
 At seven she gave Wallie up and dined alone with John. But when Wallie came a little after eight swore he had talked with Irene and that the latter had promised to deliver the message, there was a further display of temper, first directed toward Miss Comerford and then toward John, when John, to save Irene, admitted that she might have given him the message and he might have forgotten about it. Charlotte was pacified by his promise that he would accept Mr. Beasley's offer if Mr. Beasley made one.
 
@@ -402,7 +402,7 @@ Mr. Beasley made one next morning, a salary of two hundred dollars a week for wo
 
 "I do."
 
-"John, does that mean it's an under- standing?"
+"John, does that mean it's an understanding?"
 
 "What kind of understanding?"
 
@@ -410,9 +410,9 @@ Mr. Beasley made one next morning, a salary of two hundred dollars a week for wo
 
 "I guess we do."
 
-"Aren't you going to be-not so cold and distant?"
+"Aren't you going to be—not so cold and distant?"
 
-"Listen, Beth," said John nervously, "I don't know whether I can make good here or not. And until I am sure of myself and where I stand, I can't think of-of other things."
+"Listen, Beth," said John nervously, "I don't know whether I can make good here or not. And until I am sure of myself and where I stand, I can't think of—of other things."
 
 "Daddy would never turn you out."
 
@@ -420,9 +420,9 @@ Mr. Beasley made one next morning, a salary of two hundred dollars a week for wo
 
 "I've waited this long, I guess I can wait a little longer," said Beth, and left him.
 
-Well, the fifth day was something entirely different. One of the partners. H. N. Comer- ford, was in Chicago. At a quarter of nine, the other partner, J. L. Beasley, called up to say he was going fishing; he knew that old Fred Howard, his chief and only clerk unless you counted John Knowles was capable of running the who e works sing'e-handed. The rest of the office force was made up of the telegraph operator the telephone girl, the marker and the pretty new stenographer Miss Davenport
+Well, the fifth day was something entirely different. One of the partners. H. N. Comerford, was in Chicago. At a quarter of nine, the other partner, J. L. Beasley, called up to say he was going fishing; he knew that old Fred Howard, his chief and only clerk unless you counted John Knowles was capable of running the whole works sing'e-handed. The rest of the office force was made up of the telegraph operator the telephone girl, the marker and the pretty new stenographer Miss Davenport
 
-Old Howard was usually on deck at nine o'clock sharp. This morning his wife tele- phoned at ten after nine that he had broken a leg trying to get on a street-car. Miss Davenport came into John's room to tell him the news and he nearly fainted. When he had pulled himself together, he rushed into the main office and instructed the telephone girl to put all calls on his wire; he would keep Miss Davenport with him and when orders came in, he would write them down and repeat them aloud so she could write them down, too, and there would be less chance of mistakes.
+Old Howard was usually on deck at nine o'clock sharp. This morning his wife telephoned at ten after nine that he had broken a leg trying to get on a street-car. Miss Davenport came into John's room to tell him the news and he nearly fainted. When he had pulled himself together, he rushed into the main office and instructed the telephone girl to put all calls on his wire; he would keep Miss Davenport with him and when orders came in, he would write them down and repeat them aloud so she could write them down, too, and there would be less chance of mistakes.
 
 The telegraph operator eminded him that the daily market letter must be got out and sent to all customers and prospective customers. John decided that it was best to start this letter at once; his ignorance of what a market letter should contain was colossal and it would take all his spare time to write it.
 
@@ -444,7 +444,7 @@ It never occurred to John that there must be dozens or hundreds of old ones arou
 
 She brought him the paper and sat down at the desk opposite him ready to take dictation.
 
-"Here we go," he said. "To customers of Beasley and Comerford: We do not like to advise you to buy stocks that are not likely to go higher or at least not go lower--"
+"Here we go," he said. "To customers of Beasley and Comerford: We do not like to advise you to buy stocks that are not likely to go higher or at least not go lower—"
 
 The telephone rang. It was Wallie Blair asking him to come to the lake Saturday afternoon and stay over Sunday. He said he couldn't leave his mother alone.
 
@@ -478,7 +478,7 @@ Perhaps if it hadn't been for the market letter, John would have argued. As it w
 
 "Thanks. Good-by."
 
-He wrote down Mrs. Charles Parrish's name and then looked out the window. Miss Daven- port waited five minutes before she asked whether the market letter was all done.
+He wrote down Mrs. Charles Parrish's name and then looked out the window. Miss Davenport waited five minutes before she asked whether the market letter was all done.
 
 "No. I was figuring what to put in next." The telegraph operator came in and suggested that as business seemed to be slow, the telephone operator might call him instead of John to take the orders and he would keep a record of them and give it to John later.
 
@@ -534,7 +534,7 @@ Without another word, the servant carried the baggage onto the porch, opened the
 
 "Mr. John Knowles," said the servant. "Is he to have the south room?"
 
-"John Knowles!" said the woman half under her breath. "I'm afraid there is some- But wait a minute till I run upstairs."
+"John Knowles!" said the woman half under her breath. "I'm afraid there is some—But wait a minute till I run upstairs."
 
 Upstairs she rapped briskly on Irene's door and went in. "Dearie," she said, "did you invite here a beautiful sheik named John Knowles?"
 
@@ -558,7 +558,7 @@ She was cross with him for what she believed his freshness and thought of sarcas
 
 John stared at her as if she were a ghost. Then he found his voice.
 
-"I suppose I'm the world's biggest sap. I want to explain this intrusion and then I'll get right out. Last Thursday, the day you tele- phoned, a friend of mine here at the lake also telephoned and asked me out for the weekend. He gave me the name of the cottage where he is staying and you gave me the name of yours. I wrote the names down, but left the slips in the office and I couldn't remember which was which. The two names were Maynard and Parrish. On the way out here I thought and thought and thought, and of course came to the wrong conclusion. And I never can tell you how sorry and humiliated I am."
+"I suppose I'm the world's biggest sap. I want to explain this intrusion and then I'll get right out. Last Thursday, the day you telephoned, a friend of mine here at the lake also telephoned and asked me out for the weekend. He gave me the name of the cottage where he is staying and you gave me the name of yours. I wrote the names down, but left the slips in the office and I couldn't remember which was which. The two names were Maynard and Parrish. On the way out here I thought and thought and thought, and of course came to the wrong conclusion. And I never can tell you how sorry and humiliated I am."
 
 Irene heard herself saying: "But I'm glad you did guess wrong because now we can have you and you can visit your friend some other time."
 
@@ -672,7 +672,7 @@ John asked the servant where the Maynard cottage was and learned it was only fou
 
 But there was danger, danger John should have foreseen and avoided by staying right where he was. He mixed with Blair's ribald crew for only half an hour, but on the way back the moon on the lake brought the accursed libretto back into his head and drove Irene entirely out of it. He sat on somebody's dock and outlined a whole new scene, and when he finally returned, it was eleven o'clock and Miss Comerford had disappeared.
 
-He was sorry, but it didn't seem strange to him. Nor did her failure to acknowledge his greeting when he found her alone in the dining- room next morning strike him as queer. And after five or ten minutes of silence, he said:
+He was sorry, but it didn't seem strange to him. Nor did her failure to acknowledge his greeting when he found her alone in the dining-room next morning strike him as queer. And after five or ten minutes of silence, he said:
 
 "You're a lot like me. There are times when you don't want to talk to anybody."
 

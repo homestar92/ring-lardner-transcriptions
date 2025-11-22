@@ -164,7 +164,7 @@ I had to pretty near drag him to get him out o’ the clubhouse. Hank was just g
 
 So me and Red went up to the office and sprung it on ’em. They seemed surprised, but said Red could have him. So Red wired home and got the deal O. K.’d. And Fogarty went with us to St. Louis.
 
-Before we got on the train, Red told me I’d have to do the funny work. I said I’d tackle it, and then I went to Pat and explained the thing to him and ast for help. He was willin’ and we fixed it-up that I was to room with Fogarty and Pat with Smitty.
+Before we got on the train, Red told me I’d have to do the funny work. I said I’d tackle it, and then I went to Pat and explained the thing to him and ast for help. He was willin’ and we fixed it up that I was to room with Fogarty and Pat with Smitty.
 
 Smitty was in his berth, gettin’ his beauty sleep, when Fogarty clumb aboard that night. So they didn’t see each other till next mornin’. Smitty nailed me comin’ out o’ the Union Station in St. Louis.
 
@@ -312,7 +312,7 @@ Pat pulled a hot one in Pittsburgh. He told Smitty that Fogarty was the most gen
 
 That started a battle that was pretty costly to the both o’ them, but mighty sweet for the hops and waiters. If I’d of been Pat I’d of made ’em slip me a commission.
 
-We had ’em both ridin’ in taxis to and from all the parks on the last trip West. We had ’em gettin’ their clo’es pressed every night, and buyin’ new shirts and collars in every burg we blowed into, and gettin’ shaved twicet a day, till Red made us cut some of it out, sayin’ they was touchin’ the club for too much dough. And all sea- son I never seen ’em speak to each other, though neither one couldn’t talk about nothin’ else but the other when they was separated.
+We had ’em both ridin’ in taxis to and from all the parks on the last trip West. We had ’em gettin’ their clo’es pressed every night, and buyin’ new shirts and collars in every burg we blowed into, and gettin’ shaved twicet a day, till Red made us cut some of it out, sayin’ they was touchin’ the club for too much dough. And all season I never seen ’em speak to each other, though neither one couldn’t talk about nothin’ else but the other when they was separated.
 
 The pennant race was settled when we won a double-header in Cincy on the fifteenth o’ September. When we got back to the hotel Red told us the lid was off for that night—that we could do anything we wanted to and stay out until breakfast. So they can’t blame neither Pat nor I for what come off. One o’ the other boys—I never found out who—told Fogarty that Smitty could hold more wine than a barrel. Then he pulled the same thing on Smitty about Fogarty.
 
@@ -352,7 +352,7 @@ Well, we made Fogarty get up and we stuck in there while they was dressin’. Fo
 
 “That’s a funny thing about Fogarty—no matter how much wine he laps up he don’t never have no headache the next mornin’.”
 
-We didn’t hear no more complaints from Smitty. They both went down to break- fast and tried to eat somethin’, but it was hard work. And I noticed that neither o’ them bothered Red with requests to pitch that day.
+We didn’t hear no more complaints from Smitty. They both went down to breakfast and tried to eat somethin’, but it was hard work. And I noticed that neither o’ them bothered Red with requests to pitch that day.
 
 They went to bed—separated—right after supper and was as good as ever the followin’ mornin’. I don’t s’pose neither o’ them had never drank no wine before, and, so far as I know, they didn’t tackle it again. They both wanted to pitch in Chi, but Red was anxious to try out some kids; so he told both o’ them, on the quiet, that they was the ones he was dependin’ on for the World’s Serious and he didn’t want to risk gettin’ ’em hurt.
 
@@ -390,7 +390,7 @@ Then Red jumped on me.
 
 “Have some sense!” I says. “You wouldn’t be thinkin’ o’ no World’s Serious if I hadn’t of egged ’em on.”
 
-We called a doctor for Smitty and Fogarty, and the news he give us didn’t cheer us up none. He said he thought Smitty’s hand was broke, but he’d have to take a X ray. The mitt was swole up as big as a ham. Fogarty’s souper was hangin’ limp as a rag, and the doc didn’t believe he’d be able to raise it fora month. After- ward he found out that they was no bones busted in Smitty’s hand, but it was in such shape that he couldn’t hold a han’kerchief, let alone a baseball. There we was, three  days before the start o’ the serious, and our pitchin’ staff shot to hellangone!
+We called a doctor for Smitty and Fogarty, and the news he give us didn’t cheer us up none. He said he thought Smitty’s hand was broke, but he’d have to take a X ray. The mitt was swole up as big as a ham. Fogarty’s souper was hangin’ limp as a rag, and the doc didn’t believe he’d be able to raise it fora month. Afterward he found out that they was no bones busted in Smitty’s hand, but it was in such shape that he couldn’t hold a han’kerchief, let alone a baseball. There we was, three  days before the start o’ the serious, and our pitchin’ staff shot to hellangone!
 
 Red sent me and Pat and the trainer home that night with the pair o’ cripples. We was to report up to the club’s offices next mornin’ and have all the doctors in Philly called in. Me and Pat was so sore that we couldn’t talk to each other, and I don’t think they was a word said on the trip. Yes, they was too; just before Smitty went to sleep he ast me a question:
 
@@ -414,7 +414,7 @@ I says to Pat:
 
 “Yes,” says Pat; “but they’re the only hope we got, and I ain’t goin’ to give up till I have to.”
 
-Red and the bunch got in the next mornin’, which was a Sunday. Most o’ the gang went to church, and if the Lord’d never heard o’ Fogarty and Smitty before I bet He knowed who they was when we got through prayin’. We practiced Mon- day and went over to Washin’ton that night.
+Red and the bunch got in the next mornin’, which was a Sunday. Most o’ the gang went to church, and if the Lord’d never heard o’ Fogarty and Smitty before I bet He knowed who they was when we got through prayin’. We practiced Monday and went over to Washin’ton that night.
 
 Well, you know what come off. Johnson beat us there and Boehling beat us Wednesday in Philly. With Johnson to come back, twicet if necessary, it looked like a short serious.
 

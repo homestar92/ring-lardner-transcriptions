@@ -12,21 +12,23 @@ Harvey Hester entered the outer office of Kramer & Company, Efficiency Engineers
 
 The girl pressed a button and wrote something on a slip of paper. A boy appeared. She gave him the paper.
 
-
 “For Mr. A. T. Lansing,” she said.
+
 The boy went away. Presently a young lady in mannish attire came out.
 
 “I am Mr. Lansing’s secretary,” she said. “Did you want to see him personally?”
 
 “I did and do,” said Hester.
 
-“Well, just now he’s in conference,” said the secretary. “Perhaps you would like to wait.” “Listen. This is pretty important⁠—”
+“Well, just now he’s in conference,” said the secretary. “Perhaps you would like to wait.”
+
+“Listen. This is pretty important⁠—”
 
 “Im sorry, but it’s against the rules to disturb any of the officers in conference.”
 
 “How long will the conference last?”
 
-“It’s hard to say,’ replied the secretary. “They just got through one conference and they’re beginning another. It may be ten minutes and it may be an hour.”
+“It’s hard to say,” replied the secretary. “They just got through one conference and they’re beginning another. It may be ten minutes and it may be an hour.”
 
 “But listen⁠—”
 
@@ -46,7 +48,7 @@ At this moment the door opened and the tardy one entered. He was L. M. Croft, on
 
 “I’m sorry to be late,” he apologized, addressing J. H. C.
 
-“I was talking over the phone to J. P. The reason. I asked for this conference,” he continued, “was to get your thought on a proposition that came up about twenty minutes ago. There was a post-card in the mail addressed to the firm. It was from the main post-office. It says they are holding a letter for us which reached them unstamped. If we sign the card and send it to them, together with a two-cent stamp, they will forward us the letter. Otherwise they will send it to the Dead Letter Office. The question is, Is the letter worth the time and expense of sending for it?”
+“I was talking over the phone to J. P. The reason I asked for this conference,” he continued, “was to get your thought on a proposition that came up about twenty minutes ago. There was a post-card in the mail addressed to the firm. It was from the main post-office. It says they are holding a letter for us which reached them unstamped. If we sign the card and send it to them, together with a two-cent stamp, they will forward us the letter. Otherwise they will send it to the Dead Letter Office. The question is, Is the letter worth the time and expense of sending for it?”
 
 “Who is the letter from, L. M.?” The inquirer was S. P. Daniels, one of the vice-presidents.
 
@@ -70,7 +72,7 @@ At this moment the door opened and the tardy one entered. He was L. M. Croft, on
 
 “It’s right near Boston, K. M.,” answered S. P. “It’s a suburb of Boston.”
 
-“Philadelphia has some mighty pretty suburbs,” said A. M. Lansing. “Don’t you think so; R. Li?”
+“Philadelphia has some mighty pretty suburbs,” said A. M. Lansing. “Don’t you think so, R. L.?”
 
 “I haven’t been there for fifteen years, A. M.,” replied R. L. Jamieson. “Last time I was there was in 1909.”
 
@@ -78,7 +80,7 @@ At this moment the door opened and the tardy one entered. He was L. M. Croft, on
 
 “That's what I say, T. W., fifteen years,” said Jamieson.
 
-“JT thought you said fourteen years,” rejoined Havers.
+“I thought you said fourteen years,” rejoined Havers.
 
 “Let’s see,” put in C. T. Miller, treasurer of the firm. “Where was I fifteen years ago? Oh, yes, I was a bibliopolistic actuary in southern Ohio. I was selling Balzac complete for twenty-six dollars.”
 
@@ -104,21 +106,21 @@ At this moment the door opened and the tardy one entered. He was L. M. Croft, on
 
 “Did you know the Lundgrens there?” asked L. M. Croft.
 
-“Yes, indeed, L. M.,”’ answered Holt. “I used to go into Chicago to see Carl pitch. He was quite a card player, too. But this case I speak of, why, it seems that S. W. Kline—he was a grass truncater around town—why, he received an anonymous post-card with no name signed to it. It didn’t even say who it was from. All it said was that if he would be at a certain corner at a certain hour on a certain day, he would find out something that he’d like to know.”
+“Yes, indeed, L. M.,” answered Holt. “I used to go into Chicago to see Carl pitch. He was quite a card player, too. But this case I speak of, why, it seems that S. W. Kline—he was a grass truncater around town—why, he received an anonymous post-card with no name signed to it. It didn’t even say who it was from. All it said was that if he would be at a certain corner at a certain hour on a certain day, he would find out something that he’d like to know.”
 
 “What?” interrupted the elder Lansing.
 
-“I was saying,” said Holt, “that in my home town, Marengo, Illinois, there was a man named 8. W. Kline who got an anonymous post-card with no name signed to it, and it said that if he would be at a certain corner at a certain hour on a certain day, he would find out something that he’d like to know.”
+“I was saying,” said Holt, “that in my home town, Marengo, Illinois, there was a man named S. W. Kline who got an anonymous post-card with no name signed to it, and it said that if he would be at a certain corner at a certain hour on a certain day, he would find out something that he’d like to know.”
 
 “What?” repeated the elder Lansing.
 
-“Never mind, Z. H.,”’ said J. H. C. “Tell us what happened.”
+“Never mind, Z. H.,” said J. H. C. “Tell us what happened.”
 
 “Nothing,” said Holt. “Kline never went near the place.”
 
 “That reminds me,” put in K. M. Dewey, “of a funny thing that came off in St. Louis. That’s when I was with the P. D. advertising department. One afternoon the postman brought the mail to our house and my wife looked it over and found a letter addressed to some name like Jennings or Galt or something like that. It wasn’t for us at all. So she laid for the postman next day and gave him back the letter. She said, ‘Look here, here’s a letter that don’t belong to us at all. It’s for somebody else.’ I forget now just what the name was. Anyway, he took the letter and I guess he delivered it to the right people.”
 
-“I got some pretty good Scotch myself for fifty-six dollars a case,’ said S. P. Daniels. “It’s old James Buchanan.”
+“I got some pretty good Scotch myself for fifty-six dollars a case,” said S. P. Daniels. “It’s old James Buchanan.”
 
 “Where did you get it, S. P. ?” inquired Paul Sickles.
 
@@ -140,7 +142,7 @@ J. H. C. spoke again.
 
 “It seems funny to me,” said A. T. Lansing, “that the people in the post-office don’t open it and find out what it’s all about. Why, my wife opens my personal mail, and when I’m home I open hers.”
 
-“Don’t she care?” asked S. P, Daniels.
+“Don’t she care?” asked S. P. Daniels.
 
 “No, S. P.,” said the younger Lansing. “She thinks everything I do is all right.”
 
@@ -162,7 +164,7 @@ The secretary came out.
 
 “Listen,” said Hester. “If I can’t see Mr. Lansing right this minute it’ll be too late.”
 
-“I’m sorry, but I can’t interrupt him when! he’s in conference.”
+“I’m sorry, but I can’t interrupt him when he’s in conference.”
 
 “All right,” said Hester. “Will you please give him this message? You’ve got my name. Mr. Lansing and I were in school together and were more or less friendly. Well, I was tipped off this morning⁠—I don’t need to tell you how⁠—I was tipped off that Mrs. Lansing is leaving for Chicago on the 12:05 train. And she isn’t leaving alone. She’s eloping. I thought Mr. Lansing might want to try to stop her.”
 

@@ -1,4 +1,4 @@
-DID you notice the bald-headed, pimply-faced old egg with the fade-away chin that was talking to the boss just as you come in, a half or three-quarters of an hour ago? I’d like to heard what the boss told him; I bet it was plenty! He was lucky to escape without a bust in the jaw. Probably not having no jaw was what saved him.
+Did you notice the bald-headed, pimply-faced old egg with the fade-away chin that was talking to the boss just as you come in, a half or three-quarters of an hour ago? I’d like to heard what the boss told him; I bet it was plenty! He was lucky to escape without a bust in the jaw. Probably not having no jaw was what saved him.
 
 That fella is a director in one of the biggest banks in New York City. They’s been articles printed about his brains, how they made him what he is today—a giant of finance and a fella that the Morgans call him up and ask his opinion before they buy a new package of pipe-cleaners.
 

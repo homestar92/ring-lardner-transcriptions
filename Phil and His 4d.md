@@ -1,4 +1,4 @@
-Chi. Sep. 26.
+Chi. Sep. 26.  
 Friend Dave: Jest a short note Dave to let you know how wear geting a long and I would of wrote a long wile a go only I been so busy. Now I supose you will wander what has been keeping me busy well Dave Im a full fledjed moterist now and if you dont believe it keeps a man busy jest buy a car and try it your self.
 
 Nell was after me all summer to buy 1 and I was going to get 1 of these here moter sickles with the bath tub attached on to them but when Nell seen it she says she wouldent never have the nerve to ride in it and she insisted on me geting a reglar car so I says I dident have money enough and she says may be we could get a hold of a 2d. hand car some wheres and she kept studing the want ads in the paper till finely 1 day she seen where a man wanted to sell his car for $150.00 dollars and the car was a 1915 4d in good repares. The man was going to move out of town and I supose he dident want to stick it in his sutecase for the fear he would get some grease on his other shirt.

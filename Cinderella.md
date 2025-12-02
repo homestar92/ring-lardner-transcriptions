@@ -12,7 +12,7 @@ Well, Pat and Mike started for Webster Hall in a bonded taxi and they hadn't muc
 
 "Yes, but listen yourself," says the godmother: "wouldn't you like to go to this here dance?"
 
-"Who and the h--l wouldn't!" says Cinderella.
+"Who and the h—l wouldn't!" says Cinderella.
 
 "Well, then," says the godmother, "go out in the garden and pick me a pumpkin."
 
@@ -68,4 +68,4 @@ All of a sudden him and the shoe clerk catched a glimpse of Cinderella and seen 
 
 So Cinderella and the Prince got married and Cinderella forgive her two stepsisters for how they had treated her and she paid a high-price dentist to fix Mike up with a removable bridge and staked Pat to a surgeon that advertised a new, safe method of exterminating wens.
 
-That is all of the story, but it strikes me like the plot--with the poor, ragged little gal finally getting all the best of it--could be changed around and fixed up so as it would make a good idear for a play.
+That is all of the story, but it strikes me like the plot—with the poor, ragged little gal finally getting all the best of it—could be changed around and fixed up so as it would make a good idear for a play.

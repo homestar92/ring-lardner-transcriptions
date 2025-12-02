@@ -104,7 +104,7 @@ So there was a little dictionary there in the office and I looked it up and read
 
 “Well, what’s a vixen?” he asked me.
 
-So I looked that up—‘‘A female fox (obsolete); a cross, ill-tempered person, now used only of women; a jade.”
+So I looked that up—“A female fox (obsolete); a cross, ill-tempered person, now used only of women; a jade.”
 
 “Well,” he said, “it’s a cinch Kavanaugh couldn’t play a female fox or a grouchy woman. I guess we'll have to write in a part for him.”
 
@@ -134,7 +134,7 @@ Wallace and I were both goggle-eyed.
 
 “I’d kind of like to hear the story,’ says Wallace.
 
-“I'll give you an outline,” says L. N., “but I’m going to ask you to keep it under your hat. The story starts with the Pacific fleet of our navy—they’re going to cruise across the Pacific and look in at Japan and China and those places. Across the Pacific. Well, the story starts-where they are leaving on this cruise. The hero is a lieutenant in the navy. Gifford Dean plays the part and you ought to see him in a naval uniform. Immense! The story starts where they are leaving on this cruise, across the Pacific, and they are saying good-by to their Wives and sweethearts. The lieutenant—that’s the part Gifford Dean plays—he’s supposed to be married. Thelma Bowen Plays the wife, the lieutenant’s wife. They say good-by to each other—she’s crying and hates to see him go. He tells her he’ll think of her every minute; that is, while he’s gone.
+“I'll give you an outline,” says L. N., “but I’m going to ask you to keep it under your hat. The story starts with the Pacific fleet of our navy—they’re going to cruise across the Pacific and look in at Japan and China and those places. Across the Pacific. Well, the story starts where they are leaving on this cruise. The hero is a lieutenant in the navy. Gifford Dean plays the part and you ought to see him in a naval uniform. Immense! The story starts where they are leaving on this cruise, across the Pacific, and they are saying good-by to their Wives and sweethearts. The lieutenant—that’s the part Gifford Dean plays—he’s supposed to be married. Thelma Bowen Plays the wife, the lieutenant’s wife. They say good-by to each other—she’s crying and hates to see him go. He tells her he’ll think of her every minute; that is, while he’s gone.
 
 “We see the fleet leave after all the farewells and everything, and then we shoot over to Japan and we see them landing there. The sailors are going to enjoy themselves. And the officers, too. The lieutenant—that’s the hero, the part Gifford Dean plays—he is lonesome and he doesn’t go and drink or cut up with the rest of the men; that is, officers. He’s lonesome and he happens to meet a beautiful Japanese girl. And you ought to see Maida Guthrie as a Japanese! She’ll be a sensation! Maida’s playing the Japanese girl, the heroine in the picture, that falls in love with the lieutenant. That’s Gifford Dean.
 
@@ -156,7 +156,7 @@ Wallace and I were both goggle-eyed.
 
 “Well,” said Wallace, “it ought to be a sensation if the photography is as good as the story.”
 
-“Don’t you worry about the photography!” says L. N. “We've got some marvelous shots of the fleet going away and coming back and those shots of Japan in cherry blossom time will be worth all the money we’re spending to go over there and get them. But how-about your name? Can we leave it out?”
+“Don’t you worry about the photography!” says L. N. “We've got some marvelous shots of the fleet going away and coming back and those shots of Japan in cherry blossom time will be worth all the money we’re spending to go over there and get them. But how about your name? Can we leave it out?”
 
 “I don’t mind,” said Wallace. ‘But I do think you ought to keep the title ‘Harridan.’ ”
 

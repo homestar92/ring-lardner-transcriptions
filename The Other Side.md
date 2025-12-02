@@ -253,7 +253,7 @@ but two ball clubs that called themself the Giants and White Sox, but they was s
 
 We went out to see them play their first ball game and this was the game where they had the crowd. The Britons applauded heartily whenever anybody caught a fly ball even in practice and I heard one Londoner say, how they do cling to them.
 
-During the game, the White Sox pulled off one of the best triple plays I ever seen--a ground ball being pegged at lightning speed from short to second to first and then over to third, where a daring Giant runner was nailed trying to scramble back--and this play was greeted with a rousing silence.
+During the game, the White Sox pulled off one of the best triple plays I ever seen—a ground ball being pegged at lightning speed from short to second to first and then over to third, where a daring Giant runner was nailed trying to scramble back—and this play was greeted with a rousing silence.
 
 In some inning or other Johnny Mostil or Sam Rice or somebody hit one into the center field seats and the guy next to me said, too bad, out of bounds.
 

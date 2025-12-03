@@ -52,13 +52,13 @@ Then one day L. N. was sitting at his desk spelling out the picture news in the 
 
 “There ain’t time to read it now,” said L. N. “While we’re reading it, Supreme goes ahead and buys the rights and we’re sunk. Besides, they’ve read it and they know it fits Byrne or they wouldn’t have made the offer. And if it fits Byrne, it fits Kavanaugh. So we’re suckers if we don’t sew it up.”
 
-“I guess you’re right,”’ said Wolf. ‘“There’s no use taking chances.”
+“I guess you’re right,” said Wolf. “There’s no use taking chances.”
 
 So they spent that whole day trying to locate Wallace and raving because they couldn’t, but the next morning they did and he showed up in the office and they asked him what he’d take for the rights to his book.
 
 “That depends,’ he says. “I wouldn’t want my story changed and I’d want to see the picture before it was released. And I’d like to know if my name would be used.”
 
-““You’re a pretty famous author, ain’t you?” says L. N., who hadn’t ever heard of him. “We'd be glad to use your name.”
+“You’re a pretty famous author, ain’t you?” says L. N., who hadn’t ever heard of him. “We'd be glad to use your name.”
 
 “I’m not sure I want it used,” said Wallace. “But if you used the title ‘Harridan,’ you’d pretty near have to use my name because everybody knows I wrote the book.”
 

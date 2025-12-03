@@ -38,7 +38,7 @@ Well, Joe was playing golf this morning and Macomber seen him and recognized him
 
 So Joe told the boss and the boss was madder than hades, the more so because Macomber’s supposed to be stoop-shouldered from holding up them brains of his.
 
-“T’ll give him an earful,” he told Joe.
+“I’ll give him an earful,” he told Joe.
 
 “Go as far as you like,” said Joe, “but get the thousand he owes us first.”
 
@@ -80,7 +80,7 @@ The party must of been wringing wet because everybody was feeling great when the
 
 Mrs. Hunt and three or four of her friends bought checks and for a while the game went along as usual with none of them winning or losing much. Then Hunt, who was playing at Joe’s table, sent some drinks over to his wife’s crowd and after they’d drunk them, they seemed to have a little more courage. One of the men in the gang said to Mrs. Hunt, he said:
 
-“T’ve got an idear. Instead of us all piking along with dollar checks, let’s the five of us buy a couple of stacks of five-dollar checks and you play them and we will split.”
+“I’ve got an idear. Instead of us all piking along with dollar checks, let’s the five of us buy a couple of stacks of five-dollar checks and you play them and we will split.”
 
 So Mrs. Hunt asked why she should play them and he said because it was her birthday.
 
@@ -178,11 +178,9 @@ The most she’d bet before was a dollar at a crack, but this time she stuck six
 
 ***
 
-Well, you take a normal woman and if a thing like that had happened, they’d scream or at least show some signs of excitement. But this dame just looked at Jess and said: “You’re a darling!’ without raising her voice. He made her quit again and now she was seventy or eighty dollars to the
+Well, you take a normal woman and if a thing like that had happened, they’d scream or at least show some signs of excitement. But this dame just looked at Jess and said: “You’re a darling!’ without raising her voice. He made her quit again and now she was seventy or eighty dollars to the good.
 
-‘ood.
-
-“T wish I’d been playing more,” she said. “It seems silly to just be piking when I can’t lose.”
+“I wish I’d been playing more,” she said. “It seems silly to just be piking when I can’t lose.”
 
 “Can’t lose!” says Jess. “Don’t get that idear into your head! I’ve picked you a winner two nights in succession, that’s as much as you can hope for. You better quit while you’re winner.”
 

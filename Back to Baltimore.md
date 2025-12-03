@@ -22,7 +22,7 @@ But when we got home, after a rotten trip, she ast me to come and see her at the
 
 “Well, Mr. Dixon, you didn’t have no success in the West.”
 
-“No,” I says. ‘““We run into some tough luck.”
+“No,” I says. “We run into some tough luck.”
 
 Then she ast me was it tough luck or rotten ball playin,’ and I says it was some o’ both. Then she says:
 
@@ -36,7 +36,7 @@ They was nuthin’ for me to do then but beat it out o’ the office and get a d
 
 We kept on playin’ our best, and that was about good enough to get us beat oftener than we win. But I was satisfied with the way we was goin’. I knowed we wasn’t topheavy with class. Sullivan came in from scoutin’, and I ast him where was his collegers. Ile says:
 
-“T’ve been everywhere in the rah-rah circuit, and I aint saw no ball player that could carry bats in the Japanese League.”
+“I’ve been everywhere in the rah-rah circuit, and I aint saw no ball player that could carry bats in the Japanese League.”
 
 So I figured we wasn’t goin’ to be pestered with none o’ them there birds that does nothin’ but kick the ball round because they got the habit playin’ football.
 
@@ -278,7 +278,7 @@ She didn’t never come out to yesterday’s game, but I didn’t suspect nothin
 
 “No,” she hollers, “that aint all. Mr. Dixon, you killed your wife!”
 
-“That’s a whole lot o’ bunk,” T says. “T didn’t never have : how could I kill my wife when I didn’t never have none?”
+“That’s a whole lot o’ bunk,” I says. “I didn’t never have : how could I kill my wife when I didn’t never have none?”
 
 “Don’t lie to me!” she Says. “Even if you didn’t never have no wife. you killed somebody, maybe a innocent girl that Was wronged.”
 
@@ -310,6 +310,6 @@ Well sir, they aint nothin’ more to tell except one thing. When I come out o�
 
 I wired and they wasn’t nothin’ to it. He told me to come on and join ’em in Pittsburgh, and I just had time to get my stuff together and catch this train.
 
-T guess she wont try and get no injunction out agin’ me. But I wisht she would. Id like to tell my story to a judge, provided the judge wasn’t no woman.
+I guess she wont try and get no injunction out agin’ me. But I wisht she would. Id like to tell my story to a judge, provided the judge wasn’t no woman.
 
 You know who’s goin’ to manage that club, don’t you? And you know who’s goin’ to be president of it. Well, sir, II bet you anything you want to bet that they wont even finish in Mass’chusetts.

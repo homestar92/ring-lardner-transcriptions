@@ -1,4 +1,4 @@
-THE trade was pulled wile the Phillies was here first trip. Without knockin' nobody, the two fellas we give was worth about as much as a front foot on Main Street, Belgium. And the fella we got had went better this spring than any time since he broke in. So when the news o' the deal come out I says to Dode, I says:
+The trade was pulled wile the Phillies was here first trip. Without knockin' nobody, the two fellas we give was worth about as much as a front foot on Main Street, Belgium. And the fella we got had went better this spring than any time since he broke in. So when the news o' the deal come out I says to Dode, I says:
 
 "What's the matter with Pat-tradin' Hawley? What's he goin' to do with them two he's gettin'-make ticket takers out of 'em? What's the idear?"
 
@@ -29,7 +29,7 @@ THE trade was pulled wile the Phillies was here first trip. Without knockin' nob
 
 ## II
 
-I DIDN'T lose no time tellin' Carey about Dode's dope, and Carey didn't lose no time tryin' it out. It was the second day after Hawley joined us. It looked like rain, as usual, and we was stallin' in the clubhouse, thinkin' they'd maybe call it off before we had to dress.
+I didn't lose no time tellin' Carey about Dode's dope, and Carey didn't lose no time tryin' it out. It was the second day after Hawley joined us. It looked like rain, as usual, and we was stallin' in the clubhouse, thinkin' they'd maybe call it off before we had to dress.
 
 "I see in some paper," says Carey, "where the heavy artillery fire over in Europe is what makes all this duck weather."
 
@@ -97,7 +97,7 @@ He didn't get no rise; so he wound up again.
 
 ## III
 
-IN BATTIN' practice the next day Carey hit one up against them boards in right center on a line.
+In battin' practice the next day Carey hit one up against them boards in right center on a line.
 
 "Good night!" says Smitty. "I bet that's the hardest wallop that was ever made on these grounds."
 
@@ -181,7 +181,7 @@ Do you think that stopped him? Not him!
 
 ## IV
 
-WELL, we played down in Cincy one Saturday to a crowd that might of all came out in one street car without nobody ridin' in the motorman's vest pocket. We was discussin' it that night at supper.
+Well, we played down in Cincy one Saturday to a crowd that might of all came out in one street car without nobody ridin' in the motorman's vest pocket. We was discussin' it that night at supper.
 
 "It's no more'n natural," I says. "The home club's been goin' bad and you can't expect the whole population to fight for a look at 'em."
 
@@ -283,7 +283,7 @@ Hawley come in and set down with us wile I was still talkin' yet.
 
 ## V
 
-SMITTY used to get the paper from his home town where his folks lived at, somewheres near Lansing, Michigan. One day he seen in it where his kid brother was goin' to enter for the state golf championship.
+Smitty used to get the paper from his home town where his folks lived at, somewheres near Lansing, Michigan. One day he seen in it where his kid brother was goin' to enter for the state golf championship.
 
 "He'll just about cop it too," says Smitty. "And he ain't only seventeen years old. He's been playin' round that Wolverine Country Club, in Lansing, and makin' all them birds like it."
 
@@ -409,7 +409,7 @@ SMITTY used to get the paper from his home town where his folks lived at, somewh
 
 ## VI
 
-NOW I don't care how big a goof a man is, he'd ought to know better than get smart round a fella that's slumped off in his battin'. Most o' the time they ain't no better-natured fella in the world than Carey; but when him and first base has been strangers for a wile, lay offen him!
+Now I don't care how big a goof a man is, he'd ought to know better than get smart round a fella that's slumped off in his battin'. Most o' the time they ain't no better-natured fella in the world than Carey; but when him and first base has been strangers for a wile, lay offen him!
 
 That's how Hawley got in bad with Carey-was talkin' too much when the old boy wasn't in no mood to listen.
 
@@ -469,7 +469,7 @@ That's oncet where Hawley guessed right. But Carey didn't say a word-not till we
 
 ## VII
 
-HE DONE it-and that night too. I guess you know that, next to winnin', Cap likes his missus better'n anything in the world. She is a nice gal, all right, and as pretty as they make 'em.
+He done it-and that night too. I guess you know that, next to winnin', Cap likes his missus better'n anything in the world. She is a nice gal, all right, and as pretty as they make 'em.
 
 Cap's as proud of her as a colleger with a Charlie Chaplin mustache. When the different papers would print Miss So-and-So's pitcher and say she was the handsomest girl in this, that or the other place, Cap'd point it out to us and say: "My gal makes her look like a bad day outdoors."
 

@@ -6,7 +6,7 @@ It got so finely a person could not sleep at home at all and I for one rented on
 
 To locate a man as famous as him is what Ex-Attorney-General Daugherty would call “les arbeit tough” (a hard job). But the writer, an experienced interviewer, looked upon it as child’s play and went to the nearest city ticket office where luckily I found a clerk who had not returned from lunch.
 
-“Listen,” I said, ““where would a man be apt to run acrost a foreign literary genius, discovered only a year ago?”
+“Listen,” I said, “where would a man be apt to run acrost a foreign literary genius, discovered only a year ago?”
 
 “Listen,” replied the clerk, “‘have you tried the artistic and bohemian mecca of American letters ?”’
 

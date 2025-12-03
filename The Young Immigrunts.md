@@ -191,7 +191,7 @@ My mother forced a smile and it was about 1/2 past 12 when we arived in Rocheste
 ## CHAPTER 5
 ### My Father's Idear
 
-WILST participateing in the lordly viands my father halled out his map and give it the up and down.
+Wilst participateing in the lordly viands my father halled out his map and give it the up and down.
 
 Look at here he said at lenth they seams to be a choice of 2 main roads between here and Syracuse but 1 of them gos way up north to Oswego wilst the other gos way south to Geneva where as Syracuse is strate east from here you might say so it looks to me like we would save both millage and time if we was to drive strate east through Lyons the way the railway gos.
 
@@ -354,7 +354,7 @@ Without farther adieu my father payed his bill and we walked into the dismul st 
 ## CHAPTER 8
 ### Hudson to Yonkers 106.5
 
-IT was raining a little so my father bad my mother and I stand in the st wilst he went to the garage and retained the costly moter. He returned 1/2 a hour latter with the story that the garage had been locked and he had to go to the props house and roust him out.
+It was raining a little so my father bad my mother and I stand in the st wilst he went to the garage and retained the costly moter. He returned 1/2 a hour latter with the story that the garage had been locked and he had to go to the props house and roust him out.
 
 How did you know where he lived quired my mother barshfully.
 
@@ -413,7 +413,7 @@ I will end my chapter on that one.
 ## CHAPTER 9
 ### The Bureau of Manhattan
 
-ISN'T it about time said my mother as we past Spuyten Duyvil and entered the Bureau of Manhattan that we made our plans.
+Isn't it about time said my mother as we past Spuyten Duyvil and entered the Bureau of Manhattan that we made our plans.
 
 What plans said my father all my plans is all ready made.
 

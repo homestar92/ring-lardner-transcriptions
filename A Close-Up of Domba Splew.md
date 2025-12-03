@@ -55,7 +55,7 @@ And he read me the verse that was published by mistake in last month’s Appleja
 
 “That,” I said, “sounds like a steal on Kipling.”
 
-“Kipling yourself!’’ said the poet, and I loped over the nearest hedge.
+“Kipling yourself!” said the poet, and I loped over the nearest hedge.
 
 “But listen,”’ he said: “‘Have you heard my Gooseflesh, after the style of Alfred Geese ?”
 

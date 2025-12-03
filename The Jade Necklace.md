@@ -14,11 +14,11 @@ Bauer and Wolf all but kissed him. Now they had Supreme at least tied if not bea
 
 “Yes,” says Wolf, “but we haven’t got a story for him and for all we know, Harrison”—that’s the big guy at Supreme— “for all we know, Harrison’s all set with a story for Byrne and ready to shoot.”
 
-“I know different,” says L. N. “I got it pretty straight that they’ve been hunting high and low for a story and haven’t found anything that even comes close.’’
+“I know different,” says L. N. “I got it pretty straight that they’ve been hunting high and low for a story and haven’t found anything that even comes close.”
 
 So Wolf said: “‘They’re that much ahead of us, though. We’ve still got to look through a lot of junk that they’ve probably eliminated already.”
 
-“Don’t you worry,” says Bauer. ‘‘We won’t waste time on stuff that’s no good. I’ve got a couple of friends of mine—you know; fellas like Paul Wells and Quinn Martin—that whenever we've wanted a certain type of story to fit a certain star, they’ve always told me and told me right. Remember when we needed a vehicle for Kate Hollis and I called up Martin and he said ‘Jane Eyre’ without a minute’s hesitation, and you know what a sensation it was. I’ll get a hold of he or Wells right now and tell them who we’ve got and one of them is bound to come across.’”
+“Don’t you worry,” says Bauer. “We won’t waste time on stuff that’s no good. I’ve got a couple of friends of mine—you know; fellas like Paul Wells and Quinn Martin—that whenever we've wanted a certain type of story to fit a certain star, they’ve always told me and told me right. Remember when we needed a vehicle for Kate Hollis and I called up Martin and he said ‘Jane Eyre’ without a minute’s hesitation, and you know what a sensation it was. I’ll get a hold of he or Wells right now and tell them who we’ve got and one of them is bound to come across.’”
 
 But Martin and Wells were both on their vacation and couldn’t be located. That same day, Harry Salsinger, that works on the paper, he happened to drift in the office and Bauer said to him, he said:
 
@@ -50,7 +50,7 @@ Then one day L. N. was sitting at his desk spelling out the picture news in the 
 
 “But listen,” says Wolf, ‘“‘why not buy the book first and read it and see if it’s what we want?”
 
-“There ain’t time to read it now,” said L. N. ‘‘ While we’re reading it, Supreme goes ahead and buys the rights and we’re sunk. Besides, they’ve read it and they know it fits Byrne or they wouldn’t have made the offer. And if it fits Byrne, it fits Kavanaugh. So we’re suckers if we don’t sew it up.”
+“There ain’t time to read it now,” said L. N. “While we’re reading it, Supreme goes ahead and buys the rights and we’re sunk. Besides, they’ve read it and they know it fits Byrne or they wouldn’t have made the offer. And if it fits Byrne, it fits Kavanaugh. So we’re suckers if we don’t sew it up.”
 
 “I guess you’re right,”’ said Wolf. ‘“There’s no use taking chances.”
 
@@ -78,7 +78,7 @@ He was going on with his speech, but Bauer interrupted him.
 
 Wallace fainted and when he came to, his scruples were all gone.
 
-L. N. and Wolf had put another one over on Supreme and they spent the rest of the morning holding hands and slapping each other on the back. L. N. sent me out to buy him a copy of “Harridan” and after he came back from lunch, he began to read it. But on the first page he crashed right into three great, big, long words, words like “beatific,” ‘‘solecism” and “torture.” And the book was over three hundred pages long. So he said he was going on a party that night and would I mind reading the book and giving him a synopsis of it the next day.
+L. N. and Wolf had put another one over on Supreme and they spent the rest of the morning holding hands and slapping each other on the back. L. N. sent me out to buy him a copy of “Harridan” and after he came back from lunch, he began to read it. But on the first page he crashed right into three great, big, long words, words like “beatific,” “solecism” and “torture.” And the book was over three hundred pages long. So he said he was going on a party that night and would I mind reading the book and giving him a synopsis of it the next day.
 
 I don’t know if you read the book or not. It was about a family that the mother was dead and her two daughters and one son had idolized her and a year after she died, the father had gone abroad and pretty soon he cabled back that he had married a Mrs. Garrett. They didn’t know who she was, but some of their friends knew her by reputation; she was supposed to have been a kind of a loose woman and they said she was old besides and their father must have been drunk when he married her. They were sore anyway on account of him getting married again, so they were ready to treat her like dirt when he brought her home.
 
@@ -98,7 +98,7 @@ Then he asked me what it meant.
 
 “Well,” I said, ‘it means two or three different things.”
 
-“Look it up and find out what it means,’’ he says.
+“Look it up and find out what it means,” he says.
 
 So there was a little dictionary there in the office and I looked it up and read it off to him: ‘Formerly a loose woman; now commonly a vixen.” Or something like that.
 

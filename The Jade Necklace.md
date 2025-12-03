@@ -16,9 +16,9 @@ Bauer and Wolf all but kissed him. Now they had Supreme at least tied if not bea
 
 “I know different,” says L. N. “I got it pretty straight that they’ve been hunting high and low for a story and haven’t found anything that even comes close.”
 
-So Wolf said: “‘They’re that much ahead of us, though. We’ve still got to look through a lot of junk that they’ve probably eliminated already.”
+So Wolf said: “They’re that much ahead of us, though. We’ve still got to look through a lot of junk that they’ve probably eliminated already.”
 
-“Don’t you worry,” says Bauer. “We won’t waste time on stuff that’s no good. I’ve got a couple of friends of mine—you know; fellas like Paul Wells and Quinn Martin—that whenever we've wanted a certain type of story to fit a certain star, they’ve always told me and told me right. Remember when we needed a vehicle for Kate Hollis and I called up Martin and he said ‘Jane Eyre’ without a minute’s hesitation, and you know what a sensation it was. I’ll get a hold of he or Wells right now and tell them who we’ve got and one of them is bound to come across.’”
+“Don’t you worry,” says Bauer. “We won’t waste time on stuff that’s no good. I’ve got a couple of friends of mine—you know; fellas like Paul Wells and Quinn Martin—that whenever we've wanted a certain type of story to fit a certain star, they’ve always told me and told me right. Remember when we needed a vehicle for Kate Hollis and I called up Martin and he said ‘Jane Eyre’ without a minute’s hesitation, and you know what a sensation it was. I’ll get a hold of he or Wells right now and tell them who we’ve got and one of them is bound to come across.”
 
 But Martin and Wells were both on their vacation and couldn’t be located. That same day, Harry Salsinger, that works on the paper, he happened to drift in the office and Bauer said to him, he said:
 
@@ -34,21 +34,21 @@ Then one day L. N. was sitting at his desk spelling out the picture news in the 
 
 “Look here!” he says. “Read this! . We’ve got to act quick!”
 
-“What does it say?” says Wolf after reading it. “I’ll read it out to you,” says L. N. “It says, ‘Supreme Pictures is reported to have offered David Wallace twenty-five thousand dollars for the film rights to his novel “Harridan.” This book is the best seller of the spring season and its author has already been approached by Broadway theatrical managers who believe it could be successfully molded into play form. Which of Supreme’s stars it is wanted for is, apparently, a secret.’ ”’
+“What does it say?” says Wolf after reading it. “I’ll read it out to you,” says L. N. “It says, ‘Supreme Pictures is reported to have offered David Wallace twenty-five thousand dollars for the film rights to his novel “Harridan.” This book is the best seller of the spring season and its author has already been approached by Broadway theatrical managers who believe it could be successfully molded into play form. Which of Supreme’s stars it is wanted for is, apparently, a secret.’”
 
 “Well,” said Wolf.
 
-“Well!” Bauer hollers. “Is that all you got to say—‘ Well’? I tell you we ain’t got any time to lose!”
+“Well!” Bauer hollers. “Is that all you got to say—‘Well’? I tell you we ain’t got any time to lose!”
 
 “But explain what you mean,” says Wolf. ‘Supreme Pictures is offering somebody twenty-five thousand dollars for some book and they’re going to make it into a picture—what of it?”
 
-“Didn’t you hear the name of the book?” says Bauer. “‘ ‘Harridan.’ Who could they want it for but Byrne?”
+“Didn’t you hear the name of the book?” says Bauer. “‘Harridan.’ Who could they want it for but Byrne?”
 
 “Oh, I get you,” Wolf says.
 
 “It’s about time you got me,” said Bauer, “and it’s about time we got a hold of this Wallace and nailed him down.”
 
-“But listen,” says Wolf, ‘“‘why not buy the book first and read it and see if it’s what we want?”
+“But listen,” says Wolf, “why not buy the book first and read it and see if it’s what we want?”
 
 “There ain’t time to read it now,” said L. N. “While we’re reading it, Supreme goes ahead and buys the rights and we’re sunk. Besides, they’ve read it and they know it fits Byrne or they wouldn’t have made the offer. And if it fits Byrne, it fits Kavanaugh. So we’re suckers if we don’t sew it up.”
 
@@ -64,7 +64,7 @@ So they spent that whole day trying to locate Wallace and raving because they co
 
 “We'll certainly use ‘Harridan,’” said Wolf.
 
-“And what girl would play in it?’”’ Wallace asked them.
+“And what girl would play in it?” Wallace asked them.
 
 “That will have to be a secret for the present,” says L. N.
 
@@ -86,7 +86,7 @@ Well, she hadn’t been a nun by any means, but she wasn’t old and she was so 
 
 So the next morning I told it to L. N. and after I got through, he looked kind of dumb. Then he asked me which part would suit Kavanaugh, the son or the father. I told him the father was a man fifty-five or sixty years old and the son’s part was so small that you could give it to an extra.
 
-“‘Well, then,” he said, ‘who is ‘ Harridan’?”
+“Well, then,” he said, “who is ‘Harridan’?”
 
 “That’s the second wife,” I told him.
 
@@ -120,9 +120,9 @@ A day or two later, L. N. announced that he and Kavanaugh were going out to Holl
 
 So that’s the last I saw of him for a month. Day before yesterday he got home and the first thing he asked me was to get a hold of Wallace again. So when Wallace came in, he says: “Wallace,” he said, ‘I want to get your permission to not use your name in connection with that picture.”
 
-“But as I told you before, Mr. Bauer,” said Wallace, ‘“everybody knows I wrote ‘Harridan’ and if you call your picture ‘Harridan,’ people will naturally think of me.”
+“But as I told you before, Mr. Bauer,” said Wallace, “everybody knows I wrote ‘Harridan’ and if you call your picture ‘Harridan,’ people will naturally think of me.”
 
-“We're not going to call it ‘Harridan,’” says L. N. calling it ‘The Jade Necklace.’ ”
+“We're not going to call it ‘Harridan,’” says L. N. calling it ‘The Jade Necklace.’”
 
 Wallace and I were both goggle-eyed.
 
@@ -158,7 +158,7 @@ Wallace and I were both goggle-eyed.
 
 “Don’t you worry about the photography!” says L. N. “We've got some marvelous shots of the fleet going away and coming back and those shots of Japan in cherry blossom time will be worth all the money we’re spending to go over there and get them. But how about your name? Can we leave it out?”
 
-“I don’t mind,” said Wallace. ‘But I do think you ought to keep the title ‘Harridan.’ ”
+“I don’t mind,” said Wallace. ‘But I do think you ought to keep the title ‘Harridan.’”
 
 “No,” says L. N. "Both Wolf and myself think my title is better.”
 

@@ -12,9 +12,7 @@ And besides they wasn’t no place in the play where any reference was made to a
 
 So anyway Cosset got on this train this night determined to think up a decent title for his play before he clumb into Mrs. Pullman’s spare bed, but Cosset, like a good many other South Bend boys, could not even start to think unless they was a live cigarette in his mush. So the first thing he done when he got on this train this night was look up a porter he knew personally named George something, a colored man. He asked George was they a buffet on the train.
 
-“Why, no, massa,” replied George in his laughable darky dialect. “‘We dinna run no
-
-buffet car on this train since ze railroads quit selling what you call ze liquor. But if you got something on ze hip,” he added, rolling those big eyes and doing the double shuffle, “I get you ze ice and ze water.”
+“Why, no, massa,” replied George in his laughable darky dialect. “We dinna run no buffet car on this train since ze railroads quit selling what you call ze liquor. But if you got something on ze hip,” he added, rolling those big eyes and doing the double shuffle, “I get you ze ice and ze water.”
 
 Cosset then exclaimed that what he wanted was a place where he could sit and smoke and think without interruptions and the best the clever darky could suggest was the washroom in his own car. It seems the washrooms in the other cars was jammed with members of the Grand Forks Well-Kept Lawns Association, bound for the annual Get-Together Dinner at Saratoga, with a one-day stopover at Troy to get their collar cleaned.
 
@@ -48,7 +46,7 @@ Cosset didn’t deny this or make no comment of any kind as he hoped that absolu
 
 “It’s a good one if you ain’t heard it,” said Lacey. “It seems they was a Greek and a Spaniard and they was out with a couple of fly chorus dames——”
 
-“Would you mind telling it to me after a while ?”’ says Cosset. “Right now, before I forget it, I want to see if my grip’s flied open. It don’t catch right.”
+“Would you mind telling it to me after a while ?” says Cosset. “Right now, before I forget it, I want to see if my grip’s flied open. It don’t catch right.”
 
 “Well, listen,” said Lacey, “I got a friend of mine in the Big Town in the suitcase and trunk game and I’ll give you a note to him and he'll sell you the best suitcase you ever seen, at cost.”
 

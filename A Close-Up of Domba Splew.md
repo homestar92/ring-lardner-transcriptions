@@ -8,7 +8,7 @@ To locate a man as famous as him is what Ex-Attorney-General Daugherty would cal
 
 “Listen,” I said, “where would a man be apt to run acrost a foreign literary genius, discovered only a year ago?”
 
-“Listen,” replied the clerk, “‘have you tried the artistic and bohemian mecca of American letters ?”’
+“Listen,” replied the clerk, “have you tried the artistic and bohemian mecca of American letters?”
 
 “Where is that?” I coughed.
 
@@ -24,7 +24,7 @@ To make a short story out of a risqué story, I found our hero living on the top
 
 In a little while he was supine.
 
-“Now listen,” I said: “‘I have been sent over here to Scranton to find out about your home life. Tell me what you do all day.”
+“Now listen,” I said: “I have been sent over here to Scranton to find out about your home life. Tell me what you do all day.”
 
 He went scarlet.
 
@@ -36,7 +36,7 @@ The two of us strolled haltingly through his garden, which was an Italian garden
 
 “Yes,” he said, toppling over a govvel sprig and breaking his ankle in two places.
 
-“Tell me about your home life,”’ I said with a sneer.
+“Tell me about your home life,” I said with a sneer.
 
 “I presume,” he said, taking a pair of suspenders out of the nearest waste basket, “I presume you want to know my daily calendar. Well, I always make it a point to get up at six in the morning and eat my breakfast food.”
 
@@ -57,7 +57,7 @@ And he read me the verse that was published by mistake in last month’s Appleja
 
 “Kipling yourself!” said the poet, and I loped over the nearest hedge.
 
-“But listen,”’ he said: “‘Have you heard my Gooseflesh, after the style of Alfred Geese ?”
+“But listen,” he said: “Have you heard my Gooseflesh, after the style of Alfred Geese ?”
 
 There was no use saying no:
 
@@ -66,7 +66,7 @@ There was no use saying no:
 > A couple came walking along the street;  
 > Neither of them had ever met.”
 
-“That,” said Mr. Splew, “‘is the verse I have worked on all winter.”
+“That,” said Mr. Splew, “is the verse I have worked on all winter.”
 
 “It’s been a hard winter,” I said. “We didn’t have enough coal either.”
 

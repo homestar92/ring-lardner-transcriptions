@@ -48,7 +48,7 @@ But he took it just as calm as though I’d told him his collar was dirty. Then 
 
 “They’s nothin’ the matter with me,” says Smitty. “I’m all right; but that slob never had no business tryin’ to pitch.”
 
-‘How did he win them games?”’ I ast.
+“How did he win them games?” I ast.
 
 “I guess they felt sorry for him,” says Smitty.
 
@@ -62,7 +62,7 @@ Red had started Smitty just oncet. That was agin the Boston bunch, and he’d to
 
 “We’d ought to sue the Fort Wayne club for swindlin’ us! I’d like to manage a team in that league if fellers like you can win a pennant there. I’d give the ground keeper a dollar a day extra to do the pitchin’ for me, and I’d go in myself when he was too busy. They give you a salary for playin’ ball, but they pinch a man for stealin’ a loaf o’ bread! If you’re the best pitcher in the Central League the rest o’ them is paralytics. If we’d spent five thousand for the middle of a doughnut we’d have a better chancet o’ realizin’ on our investment. If pepper was worth a million dollars a ounce you’d be rated at ten cents!”
 
-“Can I go in and dress?”’ says Smitty.
+“Can I go in and dress?” says Smitty.
 
 “I doubt it,” says Red. ‘You better take somebody along to help you.” Well, that might of been the end o’ the bird if he was with any club but our’n. Red had the waivers all right, but couldn’t make no deal that’d bring us within four thousand bucks of even. Still, we wasn’t gettin’ no service out of him and was payin’ him salary all the time.
 
@@ -80,7 +80,7 @@ Well, I spotted old Jack Barnett on the Evansville bench, so I waited to shake h
 
 “I see your club’s still lucky,” he says. “We all thought you had a grand chancet till them two fellers got hurt.”
 
-“Yes,” I says, “but we’re gone now. The young guys we got ought to of been dressmakers instead o’ pitchers.” Then I happened to think o’ Smitty. “Maybe you can tell me somethin’,” says I. “How did this here Smitty ever win all them games for you?”’
+“Yes,” I says, “but we’re gone now. The young guys we got ought to of been dressmakers instead o’ pitchers.” Then I happened to think o’ Smitty. “Maybe you can tell me somethin’,” says I. “How did this here Smitty ever win all them games for you?”
 
 Barnett started to laugh.
 
@@ -94,7 +94,7 @@ Barnett kept on laughin’.
 
 I ast him what he meant.
 
-“Well,” he says, “‘we had Smitty two years ago and he was a bum. He was sloppin’ along with us like he’s doin’ with you now. At that time the Grand Rapids Club had Fogarty, the guy the Cubs got now. Fogarty’s a big right-hander, with a spitter and a good hook and just as good a fast ball as Smitty. He’s a big, handsome brute, too, and maybe he don’t know it! Up to Grand Rapids he was doin’ nothin’ but look pretty and draw his pay. He was just as valuable to them as Smitty was to us; but we used to have all kinds o’ fun with ’em both, kiddin’ ’em about their looks. We’d say to Smitty: ‘You’d be the handsomest guy in this league if it wasn’t for Fogarty.’ And we’d pull the same stuff on Fogarty when we was playin’ Grand Rapids. And the both o’ them would get as sore as a boil. I never seen nothin’ like it.
+“Well,” he says, “we had Smitty two years ago and he was a bum. He was sloppin’ along with us like he’s doin’ with you now. At that time the Grand Rapids Club had Fogarty, the guy the Cubs got now. Fogarty’s a big right-hander, with a spitter and a good hook and just as good a fast ball as Smitty. He’s a big, handsome brute, too, and maybe he don’t know it! Up to Grand Rapids he was doin’ nothin’ but look pretty and draw his pay. He was just as valuable to them as Smitty was to us; but we used to have all kinds o’ fun with ’em both, kiddin’ ’em about their looks. We’d say to Smitty: ‘You’d be the handsomest guy in this league if it wasn’t for Fogarty.’ And we’d pull the same stuff on Fogarty when we was playin’ Grand Rapids. And the both o’ them would get as sore as a boil. I never seen nothin’ like it.
 
 “At the schedule meetin’ a year ago last winter, our club and Grand Rapids pulled off a trade, Bill Peck comin’ to us for Joe Hammond and Bull Harper, a couple of infielders. Jack Burke, our manager, told the owner o’ the Grand Rapids Club that it didn’t look fair, givin’ up two men for one. So he says: ‘All right; I’ll throw in Fogarty and then you’ll have the two handsomest ball players in the business.’ Jack thought he was jokin’; but, sure enough, he turned Fogarty over to us.
 
@@ -134,7 +134,7 @@ Well, I went up to Schulte durin’ battin’ practice and ast him what was the 
 
 This dope fit in perfect with what Jack Barnett had been tellin’ me. I made up my mind right there that the thing was worth tryin’; but it took all the nerve I had to spring it on Red. My chancet soon come. He was put off the field in the second innin’ and I got myself chased right afterward. He was sittin’ in the clubhouse with his head in his hands when I come in.
 
-“Red,” I says, “we couldn’t be worse off’n we are, could we?” He didn’t pay no attention. “‘We’d be better off if we had somebody that could pitch, wouldn’t we?” I says.
+“Red,” I says, “we couldn’t be worse off’n we are, could we?” He didn’t pay no attention. “We’d be better off if we had somebody that could pitch, wouldn’t we?” I says.
 
 “What are you drivin’ at?” he ast.
 
@@ -144,7 +144,7 @@ This dope fit in perfect with what Jack Barnett had been tellin’ me. I made up
 
 “Do you think you could get Fogarty offen the Cubs?” I says.
 
-“Could I get him?” says Red. “Sure I could get him! They just give me notice that they’d ast waivers. But what do I want with Fogarty? He’s another one just like this Smitty we got. I give him the oncet over to-day on their bench, and if they’s anybody in the world that’s lazier’n Smitty, he’s him. Don’t you think we’re carryin’ enough excess baggage?”’
+“Could I get him?” says Red. “Sure I could get him! They just give me notice that they’d ast waivers. But what do I want with Fogarty? He’s another one just like this Smitty we got. I give him the oncet over to-day on their bench, and if they’s anybody in the world that’s lazier’n Smitty, he’s him. Don’t you think we’re carryin’ enough excess baggage?”
 
 Then I told him what Barnett’d told me, only I made it even stronger. At first he called me a nut, and it took me pretty near till the game was over to coax him into it. He’d just gave up when the gang come in.
 
@@ -226,9 +226,9 @@ I wasn’t sure yet that success was goin’ to be permanent. Still, it was up t
 
 “Grand game Smitty pitched to-day!’ I says.
 
-“What was grand about it?”’ says he. “Who couldn’t beat that bunch? He’d ought to of been ashamed of himself for lettin’ ’em score.”
+“What was grand about it?” says he. “Who couldn’t beat that bunch? He’d ought to of been ashamed of himself for lettin’ ’em score.”
 
-“He only give ’em two hits,”’ says I.
+“He only give ’em two hits,” says I.
 
 “Sure!” says Fogarty. “And how was they goin’ to get hits when he didn’t throw nothin’ near the plate?”
 
@@ -242,7 +242,7 @@ I wasn’t sure yet that success was goin’ to be permanent. Still, it was up t
 
 “Fort Wayne girls ain’t like the ones in Philly, then,” says I.
 
-“Girls is the same everywheres,”’ says Fogarty. “You can’t never make me believe that they’d chase him, unless it’s out o’ curiosity. You’ll often see a crowd round a monkey cage, but it ain’t ’cause the monkeys is handsome.”
+“Girls is the same everywheres,” says Fogarty. “You can’t never make me believe that they’d chase him, unless it’s out o’ curiosity. You’ll often see a crowd round a monkey cage, but it ain’t ’cause the monkeys is handsome.”
 
 “Some girls likes them big, dark fellers,” I says.
 
@@ -260,7 +260,7 @@ I wasn’t sure yet that success was goin’ to be permanent. Still, it was up t
 
 That stung him.
 
-“They ain’t no homely wop got nothin’ on me!”’ he says. “If I can’t do no better’n he done I’ll quit pitchin’ and peddle bananas, which is what he’d ought to be doin’.”
+“They ain’t no homely wop got nothin’ on me!” he says. “If I can’t do no better’n he done I’ll quit pitchin’ and peddle bananas, which is what he’d ought to be doin’.”
 
 Well, I kept him goin’ till bedtime and all the next forenoon. He was out to the park and dressed before anybody, and he warmed up enough for three games. Red ast him oncet if he wasn’t workin’ too hard.
 
@@ -298,7 +298,7 @@ I wisht you could of heard it! It was like as though all the ferryboats in East 
 
 Another thing we done was to write letters to both o’ them and sign a girl’s name. The letters was just the same, and they said that she was a great fan and was pullin’ for our club, and just loved to see them two pitch. We wound them up somethin’ like this:
 
-“I think you’re so handsome and I would love to meet you. I’ve already met Mr. Smith.’”’ We said Mr. Smith in one and Mr. Fogarty in the other. “I think he’s the handsomest man I ever seen, but maybe you’re just as handsome when a person sees you up close. I sit in the third or fourth row o’ the stand, right back o’ your bench, every afternoon.”
+“I think you’re so handsome and I would love to meet you. I’ve already met Mr. Smith.” We said Mr. Smith in one and Mr. Fogarty in the other. “I think he’s the handsomest man I ever seen, but maybe you’re just as handsome when a person sees you up close. I sit in the third or fourth row o’ the stand, right back o’ your bench, every afternoon.”
 
 Say, you’d ought to of seen them birds fall for that! They rubbered for that dame every day we played at home for the last two months o’ the season. Sometimes, when neither o’ them was workin’, they’d both get up and lean on the roof o’ the bench and try to get a smile from every skirt in the place, thinkin’ one o’ them must be the girl who’d wrote.
 
@@ -308,7 +308,7 @@ Pat pulled a hot one in Pittsburgh. He told Smitty that Fogarty was the most gen
 
 “Why?” says Smitty.
 
-“He’s so good to the waiters and bell hops,”’ says Pat. “He gives the waiters a quarter tip at every meal and slips the boys two bits when they bring him ice water.”
+“He’s so good to the waiters and bell hops,” says Pat. “He gives the waiters a quarter tip at every meal and slips the boys two bits when they bring him ice water.”
 
 That started a battle that was pretty costly to the both o’ them, but mighty sweet for the hops and waiters. If I’d of been Pat I’d of made ’em slip me a commission.
 
@@ -328,7 +328,7 @@ They looked about as fresh as a old dray horse.
 
 It wasn’t till then that they wised up. Smitty jumped out o’ bed like the hotel was afire.
 
-“I’ll murder the guy that done this!”’ he hollered.
+“I’ll murder the guy that done this!” he hollered.
 
 “What do you mean?” says Pat. “Don’t you know who you went to bed with?”
 
@@ -380,9 +380,9 @@ That’s all they was to the bout. The first punch is a lot—’specially if yo
 
 “They went too far with it,” says Davis. “They ain’t no man can go up and talk to my wife without a introduction! I seen ’em tryin’ to flirt with her. Them big bugs is so swell-headed that they think no girl could smile at nobody but them.”
 
-“You’d ought to of tipped ’em off,”’ says Red.
+“You’d ought to of tipped ’em off,” says Red.
 
-“I hadn’t ought to of did no sucha thing,” says Dayis. “‘They’d ought to of knew by lookin’ that she wasn’t the kind o’ girl that’d flirt. But I didn’t feel in no danger o’ havin’ my home broke up, so I let ’em go.”
+“I hadn’t ought to of did no sucha thing,” says Dayis. “They’d ought to of knew by lookin’ that she wasn’t the kind o’ girl that’d flirt. But I didn’t feel in no danger o’ havin’ my home broke up, so I let ’em go.”
 
 Then Red jumped on me.
 

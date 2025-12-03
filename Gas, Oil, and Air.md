@@ -358,7 +358,7 @@ The old lady didn’t take it very hard.
 
 I was lucky in findin’ the whole school force in that evenin’. “Listen,” I says, to the one ra seen first, “when I brought this ship in Saturday, what did I say I wanted done?”
 
-“How do I know?”’ says he.
+“How do I know?” says he.
 
 “Oh, I forgot,” I says. “o’ course you don’t know. I told you,” I says, “to pump up the left rear tire and to give me some gas and oil. I didn’t tell you to kill my batteries or take out my floor board or monkey with my clutch or gum up my cylinders or put my starter on the hummer or douse my lights. I just wanted gas and oil and air, them three.”
 

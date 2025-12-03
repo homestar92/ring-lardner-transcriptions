@@ -6,7 +6,7 @@ Well, he blew in here three nights ago and he come to this table and bought a hu
 
 I suppose he went back to the hotel pretty near kissing himself for discovering a system that couldn’t lose and planning what he was going to do to us with it. He figured: They’s just as many red numbers as they is black numbers, so the red is bound to come as often as the black, and if you keep doubling up every time the red don’t come, why, you’re bound to be ahead at the finish. I guess it was Columbus that played this system first and that’s why he didn’t have money enough to pay his own way over here. Personally I’ve seen the black come nineteen times in succession and with people playing it most of the time, too.
 
-Last night in strolled our friend—Macomber’s his name—and he brought a couple of ladies with him to witness the big coup. He probably thought I and Harry would be scared of him and not let him play, and he went to the table in that corner, where Joe was “‘dealing.” This time he didn’t buy no checks, but he waited till the black had come twice in a row and then laid a hundred-dollar bill on the red. Joe rolled a single O. Macomber played two hundred on the red, and it come black. Then he played four hundred on the red, and it was black again. He bet eight hundred, and it come single O.
+Last night in strolled our friend—Macomber’s his name—and he brought a couple of ladies with him to witness the big coup. He probably thought I and Harry would be scared of him and not let him play, and he went to the table in that corner, where Joe was “dealing.” This time he didn’t buy no checks, but he waited till the black had come twice in a row and then laid a hundred-dollar bill on the red. Joe rolled a single O. Macomber played two hundred on the red, and it come black. Then he played four hundred on the red, and it was black again. He bet eight hundred, and it come single O.
 
 Then he said to Joe: “I’m out of ready money,” he said, “but I guess my credit’s good. I’m betting sixteen hundred on the red.”
 
@@ -14,7 +14,7 @@ Then he said to Joe: “I’m out of ready money,” he said, “but I guess my 
 
 The ball was spinning and they wasn’t no time to argue.
 
-“All right,”’ says Macomber. “A thousand on the red.”
+“All right,” says Macomber. “A thousand on the red.”
 
 “Thirteen, black,” said Joe, and Mr. Macomber and his cheer-leaders walked out on us.
 
@@ -34,7 +34,7 @@ Well, Joe was playing golf this morning and Macomber seen him and recognized him
 
 “Don’t say a word to him!” says Macomber. “If you do, I’ll deny I ever talked to you.”
 
-“I think he’ll believe me,’”’ says Joe, and went on with his golf game.
+“I think he’ll believe me,” says Joe, and went on with his golf game.
 
 So Joe told the boss and the boss was madder than hades, the more so because Macomber’s supposed to be stoop-shouldered from holding up them brains of his.
 
@@ -88,7 +88,7 @@ So Mrs. Hunt asked why she should play them and he said because it was her birth
 
 So they bought two stacks of five-dollar checks and she was going to play ten dollars on the red, but they stopped her.
 
-“Play numbers,” they told her. ‘“That’s the only way to get action.”
+“Play numbers,” they told her. “That’s the only way to get action.”
 
 “But I don’t know what numbers to play,” she said.
 
@@ -186,7 +186,7 @@ Well, you take a normal woman and if a thing like that had happened, they’d sc
 
 “You like me, don’t you?” she said. :
 
-“You know I do,”’ said Jess.
+“You know I do,” said Jess.
 
 “Well, then,” said the gal, “I know you'll keep picking them right. You see you can’t fool me.”
 
@@ -204,7 +204,7 @@ She started to leave, but changed her mind and sat down again.
 
 “Not me,” said the gal. “But my brother might. And I want you to remember that he’s my brother.”
 
-“I wish him luck,”’ says Jess.
+“I wish him luck,” says Jess.
 
 “He'll have it if you wish it,” says the gal.
 

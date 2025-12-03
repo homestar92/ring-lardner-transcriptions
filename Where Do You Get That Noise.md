@@ -1,6 +1,6 @@
 THE trade was pulled wile the Phillies was here first trip. Without knockin' nobody, the two fellas we give was worth about as much as a front foot on Main Street, Belgium. And the fella we got had went better this spring than any time since he broke in. So when the news o' the deal come out I says to Dode, I says:
 
-"What's the matter with Pat-tradin' Hawley? What's he goin' to do with them two he's gettin-make ticket takers out of 'em? What's the idear?"
+"What's the matter with Pat-tradin' Hawley? What's he goin' to do with them two he's gettin'-make ticket takers out of 'em? What's the idear?"
 
 "It does look like a bad swap for us," says Dode. "Hawley's worth six like them you're givin' us, and he ain't only twenty-seven years old."
 
@@ -10,7 +10,8 @@ THE trade was pulled wile the Phillies was here first trip. Without knockin' nob
 
 "Save that for the minstrels," I says. "Give me the inside on this business: Is they somethin' the matter with him? The trade's made now already and it won't hurt you none to come clean. Didn't him and Pat get along?"
 
-"Sure! Why not?" says Dode. "Did you ever see a guy that Pat couldn't get along with him?" "Well then," says I, "what's the answer? Don't keep me in suspenders."
+"Sure! Why not?" says Dode. "Did you ever see a guy that Pat couldn't get along with him?"
+"Well then," says I, "what's the answer? Don't keep me in suspenders."
 
 "I ain't sure myself," says Dode, "but I and Bobby was talkin' it over and we figured that Pat just plain got sick o' hearin' him talk."
 
@@ -46,7 +47,7 @@ He didn't get no rise; so he wound up again.
 
 "I mean," says Hawley, "that this here summer's been dry compared to other summers."
 
-"I s'pose,” says Carey, "they wasn't never such a dry summer?"
+"I s'pose," says Carey, "they wasn't never such a dry summer?"
 
 "They's been lots of 'em," Hawley says.
 
@@ -96,7 +97,7 @@ He didn't get no rise; so he wound up again.
 
 ## III
 
-IN BATTIN' them practice in the next day Carey hit one up against them boards in right center on a line.
+IN BATTIN' practice the next day Carey hit one up against them boards in right center on a line.
 
 "Good night!" says Smitty. "I bet that's the hardest wallop that was ever made on these grounds."
 
@@ -184,9 +185,7 @@ WELL, we played down in Cincy one Saturday to a crowd that might of all came out
 
 "It's no more'n natural," I says. "The home club's been goin' bad and you can't expect the whole population to fight for a look at 'em."
 
-"Yes," says Carey; "but it ain't only here. It's everywheres. We didn't hardly draw our breath at St. Louis and the receipts o' that last double-header at home with Pittsburgh wouldn't buy enough shavin' soap to lather a gnat.
-
-All over the circuit it's the same way, and in the other leagues too. It's a off year, maybe; or maybe they's reasons for it that we ain't doped out."
+"Yes," says Carey; "but it ain't only here. It's everywheres. We didn't hardly draw our breath at St. Louis and the receipts o' that last double-header at home with Pittsburgh wouldn't buy enough shavin' soap to lather a gnat. All over the circuit it's the same way, and in the other leagues too. It's a off year, maybe; or maybe they's reasons for it that we ain't doped out."
 
 "Well," I says, "the war's hurt business, for one thing, and people ain't got no money to spend on box seats. And then golf's gettin' better all the wile. A man'd naturally rather do some exercisin' himself than watch somebody else do it. Besides that, automobiles has got so cheap that pretty near everybody can buy 'em, and the people that owns 'em takes their friends out in the country instead o' comin' to the ball yard. And besides that," I says, "they's too much baseball and the people's sick of it."
 
@@ -230,7 +229,7 @@ Hawley come in and set down with us wile I was still talkin' yet.
 
 "Don't you tell!" says Carey. "It wouldn't be fair to the other side."
 
-"I don't mind tellin'," says Hawley. "I'd be a fine stiff. to pull for the Dutchmen after all King George done for my old man."
+"I don't mind tellin'," says Hawley. "I'd be a fine stiff to pull for the Dutchmen after all King George done for my old man."
 
 "What did he do for him?" says Carey.
 
@@ -266,7 +265,7 @@ Hawley come in and set down with us wile I was still talkin' yet.
 
 "Yes," says Carey; "but wouldn't he want to come to the game again the next day in hopes he'd get his chancet to holler?"
 
-"No," says Hawley; "because, whatever happened they'd be somethin' about it he wouldn't like. If the Reds win the Alleys on the club'd feel just as good as the Dutchmen, and that'd make him sore. And if they lost he'd be glad on account o' the Alleys; but he'd feel sorry for the Germans."
+"No," says Hawley; "because, whatever happened, they'd be somethin' about it he wouldn't like. If the Reds win the Alleys on the club'd feel just as good as the Dutchmen, and that'd make him sore. And if they lost he'd be glad on account o' the Alleys; but he'd feel sorry for the Germans."
 
 "Then they's only one thing for Garry Herrmann to do," I says: "he should ought to trade off all his Alleys for Dutch."
 
@@ -428,9 +427,7 @@ When he'd went through his ninth game without a blow Hawley braced him in the cl
 
 "Yes," says Carey. "It's because they don't pitch where I swing."
 
-"It ain't no such a thing!" says Hawley.
-
-"It's because you don't choke up your bat enough."
+"It ain't no such a thing!" says Hawley. "It's because you don't choke up your bat enough."
 
 "Look here!" says Carey. "I been in this league longer'n you and I've hit better'n you. When I want advice about how to hold my bat I'll get you on the wire."
 
@@ -516,7 +513,7 @@ Well, Carey framed it up so's I and him and Cap went in to supper together. Hawl
 
 "And she was a blonde?" says Carey.
 
-"Blonde nothin'!" says Hawley. Her hair was as black as Chief Meyers'. And when you see a girl with black hair you know it's natural color. Take a blonde and you can't tell nothin' about it. They ain't one in a thousand of 'em that ain't dyed their hair."
+"Blonde nothin'!" says Hawley. "Her hair was as black as Chief Meyers'. And when you see a girl with black hair you know it's natural color. Take a blonde and you can't tell nothin' about it. They ain't one in a thousand of 'em that ain't dyed their hair."
 
 Cap couldn't stand it no longer.
 
@@ -524,9 +521,7 @@ Cap couldn't stand it no longer.
 
 "I guess I know as much as the next one," says Hawley.
 
-"You don't know nothin'!" says Cap.
-
-"What was this girl's name?"
+"You don't know nothin'!" says Cap. "What was this girl's name?"
 
 "What girl's name?" says Hawley.
 
@@ -536,15 +531,19 @@ Cap couldn't stand it no longer.
 
 "You never knowed her name," says Cap. "You never knowed nothin'! We traded nothin' to get you and we got stung at that. If you want your unconditional release, all you got to do is ask for it. And if you don't want it I'll get waivers on you and send you down South where you can be amongst the brunettes. We ain't got no room on this club for a ball player that don't know nothin' on no subject. You're just as smart about baseball as you are about women. It's a wonder your head don't have a blow-out! If a torpedo hit a boat you was on and you was the only one drownded, the captain'd send a wireless: 'Everybody saved!'"
 
-Cap broke a few dishes gettin' up from the table and beat it out o' the room. Hawley was still settin', with his mouth wide open, lookin' at his prunes. After a wile I and Carey got up and left him.
+Cap broke a few dishes gettin' up from the table and beat it out o' the room.
+
+Hawley was still settin', with his mouth wide open, lookin' at his prunes. After a wile I and Carey got up and left him.
 
 "He ain't a bad fella," I says when we was outside. "He don't mean nothin'. It looks to me like a raw deal you're handin' him."
 
-"I don't care how it looks to you or anybody else,” says Carey. "I still got a chancet to lead this league in hittin' and I ain't goin' to be talked out of it."
+"I don't care how it looks to you or anybody else," says Carey. "I still got a chancet to lead this league in hittin' and I ain't goin' to be talked out of it."
 
 "Do you think you'll hit when he's gone?"
 
-"You bet I'll hit!" says Carey. Cap ast for waivers on Hawley, and Pittsburgh claimed him.
+"You bet I'll hit!" says Carey.
+
+Cap ast for waivers on Hawley, and Pittsburgh claimed him.
 
 "I wisht it had of been some other club," he says to me. "That's another o' them burgs where the smoke and cinders kills your battin'."
 

@@ -370,7 +370,7 @@ Mr. Coles excused himself before we were through. I hoped he would go out on the
 
 "You are always joking, Mr. Lester," I said.
 
-"There is no joke about it," was his reply. "He tried to get your friend to go walking with him, and she turned him down cold. And to-night they had a date to go rotten-logging, and that is off, too.'"
+"There is no joke about it," was his reply. "He tried to get your friend to go walking with him, and she turned him down cold. And to-night they had a date to go rotten-logging, and that is off, too."
 
 "Mr. Lester," I said, you can carry your jokes too far. Mr. Coles would not care to hear you talk like that, and neither would my girl friend. She is not the kind that goes rotten-logging, as you call it."
 

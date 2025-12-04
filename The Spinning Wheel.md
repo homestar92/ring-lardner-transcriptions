@@ -228,7 +228,7 @@ And she smiled and walked out.
 
 You know how it’s going to wind up. The fella wasn’t no more her brother than I am, and anybody but poor, simple Jess would of guessed it as soon as you seen them together. But whoever he was, he had the snappy idear lots of people gets—that the “dealer” can spin any number he wants—and he believed the gal when she told him Jess was so stuck on her that they was no chance for them to lose.
 
-The moron didn’t lay the big bets on the even, the black, the last eighteen,andsoon. But he bought enough twenty - five - dollar checks to cover No. 26 in every other way. His investment was $600 and his winnings was $5,700. That is, they would of been $5,700 if the ball hadn’t dropped in No. 4.
+The moron didn’t lay the big bets on the even, the black, the last eighteen,andsoon. But he bought enough twenty-five-dollar checks to cover No. 26 in every other way. His investment was $600 and his winnings was $5,700. That is, they would of been $5,700 if the ball hadn’t dropped in No. 4.
 
 Before we had wrestled them out of the place, the gal had just missed poor Jess’s head with a heavy glass ash-tray and had called him names that she’d never learned froma brother.
 

@@ -480,6 +480,6 @@ Well, the honor o’ coppin’ the final pastime and winnin’ the title went to
 
 “That’s right!” he says. “That wop is just lucky enough to of did it, too, even if he can’t pitch up an alley.”
 
-Well, I made a little speech in the clubhouse and collected a purse of a hundred and fifty bucks. I’m goin’ to send it to Jack Barnett as soon as I can get his ad- dress. That’ll fix him up on that bet he made with Punch Knoll and give him a little spendin’ money besides. If he hadn’t of told me that stuff in Dayton we’d of been fightin’ the Cardinals for seventh place. And if he’d of told it to some guys they wouldn’t of had sense enough to of token advantage of it.
+Well, I made a little speech in the clubhouse and collected a purse of a hundred and fifty bucks. I’m goin’ to send it to Jack Barnett as soon as I can get his address. That’ll fix him up on that bet he made with Punch Knoll and give him a little spendin’ money besides. If he hadn’t of told me that stuff in Dayton we’d of been fightin’ the Cardinals for seventh place. And if he’d of told it to some guys they wouldn’t of had sense enough to of token advantage of it.
 
 One o’ the Philly doctors told Red, and Red told me, that we’d prob’ly ruined both o’ them guys for the next season by workin’ ’em in the shape they wasin. But I should worry! Between me and you, I ain’t goin’ to be with the Phillies next year. I’m goin’ to manage the Mobile Club; and maybe I can play some in that climate. And I guess I don’t know nothin’ about managin’ a ball club. No; I guess not!

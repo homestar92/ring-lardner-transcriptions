@@ -95,7 +95,6 @@ and his manager both."
 II
 
 It was quite a w'ile after this when I was in
-
 New York and dropped in at the apartment
 where Jim and Larry was living.
 
@@ -334,7 +333,7 @@ to realize is that he can take it.
 
 Anyway, this bout with Barnes was in
 the Big Town and Jim trained for it on a
-ship and and when he clumb in the ring he was
+ship and when he clumb in the ring he was
 still at sea. In the second round Barnes
 clipped him on the chin with all he had.
 And all he had wasn't half what he needed.
@@ -462,7 +461,7 @@ Wheeler," he says. "And you know what
 Jim done to him!"
 
 "That's all right," said Guthrie, "but
-your man weighs ighs pretty near two hundred
+your man weighs pretty near two hundred
 and when a man's that big he's big enough
 for anybody. But take a man that weighs
 two hundred and put him against a man
@@ -807,7 +806,7 @@ over, why training for it wouldn't be such a
 grind. Jim would say to himself, 'Well, I
 guess I can lick him all right, but he's big
 and I better be in good shape. Because he
-might You know how it was that
+might ---' You know how it was that
 time. But this is different. Here's a guy
 that may be the greatest man in the world
 for his size. But look at his size and yet
@@ -853,7 +852,7 @@ rope! I suppose I ought to thank God they
 don't make me roll a hoop or dress dolls.
 But even skipping a rope ain't as bad as
 boxing with those heels! If I try not to hit
-them, the crowd thinks I ain't givi giving them
+them, the crowd thinks I ain't giving them
 a run for their money. And if I get my
 glove close enough to their beezer so they
 can smell it, over they go! Then the crowd

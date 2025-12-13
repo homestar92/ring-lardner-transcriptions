@@ -51,7 +51,7 @@ The Coach smiled back.
 
 “He can block his head off against us if he wants to,” said the Coach. “I’m not going to bother Davis on his passes. I’m going to let him throw that ball just as far as he can. But when he throws it, one of my men will catch it or else it wont be caught. And when he runs, he’ll run into more tacklers than he ever thought were on one football team.”
 
-“Where are they coming from ?” asked Dana.
+“Where are they coming from?” asked Dana.
 
 “Out of my line,” said the Coach. “When you’re playing a man who never does anything but forward pass or sweep round the ends, what’s the use of sticking to an old army defense? We know that Davis is practically their entire attack, and we know what he can do. One of the things he can’t do is plunge. So I don’t see any sense in keeping my linemen nailed to one spot. I’m going to play everybody loose, and I’m going to tell every man on the team that if he doesn’t tackle Davis at least twice, he wont get his letter. You'll see what looks like the craziest defense ever pulled, but it’ll do the business.”
 

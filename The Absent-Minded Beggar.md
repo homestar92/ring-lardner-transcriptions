@@ -58,21 +58,14 @@ Mrs. Knowles and Charlotte appeared at half past ten and found him in the living
 
 He read from the scrap paper on which he had been writing:
 
-"But let no man who does not court quick death
-
-So much as whisper, breathe the softest breath
-
-Of scandal in the presence of De Setto
-
-Against this sloe-eyed princess of the Ghetto,
-
-Whose infidelity has been notorious,
-
-But who, to him, is pure, angelic, glorious.
-
-Not those who've given him for years their loyalty
-
-Dare hint that she is something less than royalty."
+> "But let no man who does not court quick death  
+> So much as whisper, breathe the softest breath  
+> Of scandal in the presence of De Setto  
+> Against this sloe-eyed princess of the Ghetto,  
+> Whose infidelity has been notorious,  
+> But who, to him, is pure, angelic, glorious.  
+> Not those who've given him for years their loyalty  
+> Dare hint that she is something less than royalty."
 
 "It sounds pretty," said Mrs. Knowles. "What is it?"
 

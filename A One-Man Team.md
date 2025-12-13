@@ -31,7 +31,7 @@ The Coach smiled back.
 
 “Another thing in my favor was that Flynn was a frail kid and they were afraid to let him carry the ball. So they couldn’t fake much with him.
 
-“Well, sir, I never saw such an exhibition of distance kicking as he gave against us—and I never saw punts run back as far as we ran them. I had two méh, instead of one, to protect my quarter on his catches, and I had my ends lay back about fifteen yards and take thé first fellows that came to them. My quarter ran seventy yards for a touchdown after one catch, and he carried another to within easy plunging distance of their goal. And Flynn never got close enough to our end of the field to see the posts.
+“Well, sir, I never saw such an exhibition of distance kicking as he gave against us—and I never saw punts run back as far as we ran them. I had two men, instead of one, to protect my quarter on his catches, and I had my ends lay back about fifteen yards and take the first fellows that came to them. My quarter ran seventy yards for a touchdown after one catch, and he carried another to within easy plunging distance of their goal. And Flynn never got close enough to our end of the field to see the posts.
 
 “The year Pelham had Hostetter, I played my secondary defense so close up that he really had to plunge through two lines instead of one—though he didn’t plunge through either. But he was all they had, and they kept trying him, even when the whole crowd was yelling at them to let up on their star before he was killed. He’d plunged Pelham to victory on seven successive Saturdays, but he did most of his plunging toward his own goal when he ran up against us.
 

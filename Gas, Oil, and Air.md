@@ -28,7 +28,7 @@ The next day I called her up.
 
 “Tomorrow evenin’, then,” says I.
 
-“Im afraid not tomorrow evenin’, neither,” she says. ‘I’m goin’ down town to a show, with Mr. Boles.”
+“Im afraid not tomorrow evenin’, neither,” she says. “I’m goin’ down town to a show, with Mr. Boles.”
 
 “Tomorrow afternoon?” I says.
 
@@ -218,11 +218,11 @@ Well, I turned the dash light switch without no results. This scared me into try
 
 I and eleven o’clock arrived at the same time.
 
-“all set!” says the fella when he seen me come in. “I’ve even got the starter workin’.”
+“All set!” says the fella when he seen me come in. “I’ve even got the starter workin’.”
 
 “How about the accelerator?” says I.
 
-“It’s o.K.,” he says. “It was just disconnected.”
+“It’s O.K.,” he says. “It was just disconnected.”
 
 I climbed in, or started to, and come within a ace o” breakin’ a leg or somethin’. The floor board was missin’ and they wasn’t nothin’ but Nature and machinery between me and the ground. I happened to be hangin’ on to the seat and the dash with my hands or it’d of been good night.
 
@@ -292,7 +292,7 @@ Alice pretty near fainted, when I sprung my surprise. “Why, Charley Graham!”
 
 For some peculiar reason, the starter worked. We was soon tearin’ northwards, twelve miles an hour. It was a swell day, and the first Sunday that had been really decent. The boulevards was jammed with cars, and I’ll admit I was nervous. I guess Alice was, too, but she was game enough to keep it to herself.
 
-But the only danger was that somethin’ wond hit us from behind, and nothin’ did.
+But the only danger was that somethin’ would hit us from behind, and nothin’ did.
 
 I’m gettin’ so now that I can talk when I drive; then I was scared to open my mouth. Alice made a couple o’ starts about the weather, but her heart wasn’t in it. What she wanted to say was “Look out!” or “Be careful!’ and I liked her all the better for not sayin’ it.
 

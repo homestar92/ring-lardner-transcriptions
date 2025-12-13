@@ -1,6 +1,6 @@
-Not since the tardy, posthumous death of _ Agera Cholera has the American literati been so baffled toward a rising genius of letters than has been demonstrated in regards to the Italian poet, Domba Splew, who, just a year ago, sprang into world-wide indifference by the publication, in The Bookman, of his verse, “La battia fella inna base tuba” (The weasel fell into the bathtub).
+Not since the tardy, posthumous death of Agera Cholera has the American literati been so baffled toward a rising genius of letters than has been demonstrated in regards to the Italian poet, Domba Splew, who, just a year ago, sprang into world-wide indifference by the publication, in The Bookman, of his verse, “La battia fella inna base tuba” (The weasel fell into the bathtub).
 
-It is a matter of history that in the month in which this poem appeared, the circulation of the magazine in which it was printed increased two copies. And the fame of the author on this side of the old pond, as I call it, spread as far west as North Attleboro, Mass. You could not wake up in the morning or any other time without either wife or kiddies yelping, “Sweet papa, did you see this poem of Domba Splew’s, ‘La battia fella inna base tuba’ (The weasel fell into the bathtub) ?”
+It is a matter of history that in the month in which this poem appeared, the circulation of the magazine in which it was printed increased two copies. And the fame of the author on this side of the old pond, as I call it, spread as far west as North Attleboro, Mass. You could not wake up in the morning or any other time without either wife or kiddies yelping, “Sweet papa, did you see this poem of Domba Splew’s, ‘La battia fella inna base tuba’ (The weasel fell into the bathtub)?”
 
 It got so finely a person could not sleep at home at all and I for one rented one of the big New York hotels and slept outdoors, not being able to get a room. Everybody wondered what was the matter, but I laughed at them. Finely the editor of Rickets Weekly caught me in an upright position in the gutter and made me the unheard-of offer of $5.00 and no hundreds dollars to go and interview this America-Italio sensation and find out something about his home life.
 
@@ -50,7 +50,7 @@ And he read me the verse that was published by mistake in last month’s Appleja
 
 > “Hail to thee, blithe owl!  
 > Bird thou never wantest to been.  
-> Queenly and efilorien,  
+> Queenly and efflorien,  
 > How did thou ever begin?”
 
 “That,” I said, “sounds like a steal on Kipling.”

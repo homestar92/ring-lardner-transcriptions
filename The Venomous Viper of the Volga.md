@@ -24,6 +24,7 @@ the public awake till next fall without giving them a championship
 bout."
 
 "Too bad you can't match Burton and Cook," said Sandy.
+
 The Cook he referred to was Jem Cook, a colored gentleman
 known as the Black Bull of Biloxi. He had never whipped any
 one but his children, he was middle-aged and slow, his "fighting"
@@ -639,7 +640,7 @@ bout was scheduled. It was given out that
 the men had been secretly training so long and
 so hard that very little additional preparation
 would be necessary and the managers both
-took leaves from Carpentier's book and announced
+took leaves from Carpentier's book and announced <!-- "Carpentier" is inconsistent with "Carpenteer" earlier... -->
 that their charges would put on the
 finishing touches behind closed doors as they
 were planning trick attacks and were afraid
@@ -795,7 +796,10 @@ be calling her your gal. She's been my gal
 pretty near ever since I bashed that poor
 Espagnola. It was them tattoo pictures that
 made her love me."
-stronger?" you like her to love you a little
+
+
+ "Would you like her to love you a little
+ stronger?"
 
 "You bet I would! She's a fine gal."
 

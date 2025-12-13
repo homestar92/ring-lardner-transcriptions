@@ -1,4 +1,4 @@
-RUTH was sorry her sister was sick. But she was glad she was going to the wedding, and she wouldn't have been going if Alice had not had this touch of flu. There were to be only six guests and Ruth was Alice's last-minute substitute. She suspected that Ed, her brother-in-law, would rather have gone alone or with some girl who didn't cramp his style (as if it mattered to her whether he took twelve drinks or twelve dozen; he must think her men friends in Detroit had all had their throats cut).
+Ruth was sorry her sister was sick. But she was glad she was going to the wedding, and she wouldn't have been going if Alice had not had this touch of flu. There were to be only six guests and Ruth was Alice's last-minute substitute. She suspected that Ed, her brother-in-law, would rather have gone alone or with some girl who didn't cramp his style (as if it mattered to her whether he took twelve drinks or twelve dozen; he must think her men friends in Detroit had all had their throats cut).
 
 He had not exactly jumped for joy when Alice suggested her as proxy. However, he hadn't said no and she was going and that was all that mattered. It would give her something to talk about for weeks, back home.
 
@@ -40,7 +40,7 @@ Instead of which:
 
 "Well, if we're all set, let's go. Dinner is on the ice."
 
-The party entered the church and Jimmy introduced them to the minister, getting the rame wrong. Wallie and Dorothy "stood up" with the couple and Ben Seaton gave the bride away. The ceremony was brief. Everybody kissed the bride and Jimmy kissed everybody, including Ruth. Names were signed and the required documents delivered.
+The party entered the church and Jimmy introduced them to the minister, getting the name wrong. Wallie and Dorothy "stood up" with the couple and Ben Seaton gave the bride away. The ceremony was brief. Everybody kissed the bride and Jimmy kissed everybody, including Ruth. Names were signed and the required documents delivered.
 
 "We'll meet at my place," Ben announced. "Jimmy'll take Brownie and Dorothy and Wallie and Ed in his car. Josie and Miss Richards will have the pleasure of riding with me.'
 

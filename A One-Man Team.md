@@ -11,7 +11,7 @@ Monday lunch at the training-table was over. The squad, chatting noisily, disper
 It was the final week of the season, and the Doane game loomed large ahead. Harris had scouted the big rival school’s battle with Monroe on the preceding Saturday, and the others waited for him to offer his report.
 
 “It’s a one-man team, Coach, just as Wallace and Dana told us,” he said.
-“Just take Davis out of their backfield, and they couldn’t score on the North Side Y. M. C. A.”
+“Just take Davis out of their backfield, and they couldn’t score on the North Side Y.M.C.A.”
 
 “Yes,” said the Coach, ‘but who’s going to ‘just take Davis out of their backfield ?’ ”
 
@@ -146,13 +146,13 @@ Barrows rose from the other end of the table and started out.
 
 Barrows paused and burst into song.
 
-Hang Doane’s Davis on a sour-apple tree!
+> Hang Doane’s Davis on a sour-apple tree!
 
 And if it hadn’t been such a disrespectful thing to do, one might have supposed, from the tone of his voice, that he was mimicking the Coach.
 
 ***
 
-“‘THE career of the greatest football player Doane ever had will end with to-morrow’s game. Davis’ record has never been approached by another wearer of the D. In his three years of competition for the ’Varsity, he has scored at least one touchdown against every opponent. Will he cross the Blue and White goal-line to-morrow and keep his record? All Doane believes he will.’”
+“‘The career of the greatest football player Doane ever had will end with to-morrow’s game. Davis’ record has never been approached by another wearer of the D. In his three years of competition for the ’Varsity, he has scored at least one touchdown against every opponent. Will he cross the Blue and White goal-line to-morrow and keep his record? All Doane believes he will.’”
 
 Harris was reading aloud from the *Doane Daily*. He and the Coach, having sent their charges to bed in Doane’s new fireproof hotel, lounged in the lobby, knowing that for themselves a- good night’s sleep was impossible.
 
@@ -162,7 +162,7 @@ Harris was reading aloud from the *Doane Daily*. He and the Coach, having sent t
 
 “And that,” said the Coach, “is because the coaches of other teams have been afraid to take a chance.”
 
-“‘A defense to foil the Doane captain,” Harris read, “ ‘is extremely difficult of construction. If his running game is checked, he is still certain to get away with some of those long forward passes that worked so eilectively last Saturday. In one way or another, despite the best-laid plans of the wily Belden, Davis will gain ground, yards and yards of it.’”
+“‘A defense to foil the Doane captain,” Harris read, “ ‘is extremely difficult of construction. If his running game is checked, he is still certain to get away with some of those long forward passes that worked so effectively last Saturday. In one way or another, despite the best-laid plans of the wily Belden, Davis will gain ground, yards and yards of it.’”
 
 “They’re nothing if not chesty,” remarked the Coach.
 
@@ -192,9 +192,11 @@ On the walk in front of the hotel, five Doane students—with the accent on the 
 
 It must be recorded that the Coach slept too. From four till six he slept, and again he dreamed of Davis. But this time the dream was pleasant. Doane’s star, his passes intercepted time after time and himself tackled by full eleven men and thrown for repeated losses, at last led his team off the field, hopeless and disgusted.
 
-“ONE thing more, boys,” said the Coach. “I’m responsible for this defense, and if it isn’t the right one, I'll take the blame. All I ask you to do is play it, play it as I’ve taught it to you. Remember, it’s his last chance to shine, and he’ll want to do all the shining. Forget everybody else and go after Davis. Now get him! Get him! Get him !”
+***
 
-The squad raced out of the dressingroom onto the field. From ten thousand throats came a welcoming cheer. Ten thousand voices chanted the ‘Varsity hymn, trailing not more than a beat or two behind the accompaniment of the Blue and White band.
+“One thing more, boys,” said the Coach. “I’m responsible for this defense, and if it isn’t the right one, I'll take the blame. All I ask you to do is play it, play it as I’ve taught it to you. Remember, it’s his last chance to shine, and he’ll want to do all the shining. Forget everybody else and go after Davis. Now get him! Get him! Get him !”
+
+The squad raced out of the dressing-room onto the field. From ten thousand throats came a welcoming cheer. Ten thousand voices chanted the ‘Varsity hymn, trailing not more than a beat or two behind the accompaniment of the Blue and White band.
 
 The team lined up and_ hurried through a few simple formations—formations learned for exhibition purposes only.
 
@@ -332,7 +334,7 @@ And in the dressing-room, when the game was history and his poor beaten boys had
 
 “All right,” said Harris, “and so was mine. When I scouted them, Davis was the only man besides the center and the ends who had his hands on the ball.”
 
-“Ves,” said the Coach, ‘and how many times did Davis have his hands on the ball to-day ?”
+“Yes,” said the Coach, ‘and how many times did Davis have his hands on the ball to-day ?”
 
 “Hardly at all,” said Harris.
 
@@ -340,7 +342,7 @@ And in the dressing-room, when the game was history and his poor beaten boys had
 
 “By George, you're right!” said Dana.
 
-“Vou certainly are!” said Wallace.
+“You certainly are!” said Wallace.
 
 “You bet I’m right,” said the Coach. “And that’s what was queer. Here’s a star player, the captain of the team, playing his last game of collegiate football. He can run like a deer, punt pretty well and pass better than anybody you ever saw. But in his final game he kicks three goals from touchdowns and stands there the rest of the afternoon as idle as a goal-post.”
 
@@ -372,7 +374,7 @@ So the Coach led his triumphant rival to a table in the corner, as far as possib
 
 “Thank you for saying so,” said Smith.
 
-“I never heard of a stunt like that before, keeping your star idle when you knew we were primed for him—not letting him handle the ball in his last game and then taking him out before the game was over. Why, I had a defense framed that would have made Davis look foolish, if you’d given it a chance. And how in the world did you ever keep two men like Moxey and Byron under cover so long ?” ; ;
+“I never heard of a stunt like that before, keeping your star idle when you knew we were primed for him—not letting him handle the ball in his last game and then taking him out before the game was over. Why, I had a defense framed that would have made Davis look foolish, if you’d given it a chance. And how in the world did you ever keep two men like Moxey and Byron under cover so long ?”
 
 “To tell you the truth,” said Smith, “I didn’t know till last Wednesday that they could play football.”
 

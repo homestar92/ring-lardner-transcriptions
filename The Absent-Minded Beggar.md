@@ -317,20 +317,13 @@ He was interrupted by a laugh, John's laugh. It came so unexpectedly that Sam an
 
 Again an interruption, but this time not a laugh. John, looking straight at the girl, softly recited:
 
-> "I'll never know the glory of the moon
-> 
-> Until I see it shining in your eyes;
-> 
-> I'll never know the loveliness of June
-> 
-> Till we look up together at its clear, magnificent, azure skies.
-> 
-> Each day will be just morning, night and noon
-> 
-> Till you are mine, my loved one, sweetheart, wife,
-> 
-> And then I'll know the glory of the moon,
-> 
+> "I'll never know the glory of the moon  
+> Until I see it shining in your eyes;  
+> I'll never know the loveliness of June  
+> Till we look up together at its clear, magnificent, azure skies.  
+> Each day will be just morning, night and noon  
+> Till you are mine, my loved one, sweetheart, wife,  
+> And then I'll know the glory of the moon,  
 > And then I'll know the loveliness of life."
 
 "Well, for!" exclaimed Sam Drake. "Come on, Irene. I want to get you away from this bird. I can't compete with Eddie Guest."
@@ -417,7 +410,7 @@ Well, the fifth day was something entirely different. One of the partners. H. N.
 
 Old Howard was usually on deck at nine o'clock sharp. This morning his wife telephoned at ten after nine that he had broken a leg trying to get on a street-car. Miss Davenport came into John's room to tell him the news and he nearly fainted. When he had pulled himself together, he rushed into the main office and instructed the telephone girl to put all calls on his wire; he would keep Miss Davenport with him and when orders came in, he would write them down and repeat them aloud so she could write them down, too, and there would be less chance of mistakes.
 
-The telegraph operator eminded him that the daily market letter must be got out and sent to all customers and prospective customers. John decided that it was best to start this letter at once; his ignorance of what a market letter should contain was colossal and it would take all his spare time to write it.
+The telegraph operator reminded him that the daily market letter must be got out and sent to all customers and prospective customers. John decided that it was best to start this letter at once; his ignorance of what a market letter should contain was colossal and it would take all his spare time to write it.
 
 "Make it optimistical," was the only hint the operator offered.
 
@@ -501,7 +494,7 @@ On the way home he worried a little about that American Linseed order, but decid
 
 He told Charlotte about his invitation from her friend Wallie Blair. It was no news to her. He didn't want to go, but she said he must or Wallie would feel hurt.
 
-Mr. Beasley was back next morning, which was Friday, and congratulated John on his smooth work in a pinch. Luckily, he did not see the market letter and more luckily he was shut up in his office when Francis Elliott came inte how his Linseed was going. The tele graph operator told John who he was and John invited Mr. Elliott into his own room.
+Mr. Beasley was back next morning, which was Friday, and congratulated John on his smooth work in a pinch. Luckily, he did not see the market letter and more luckily he was shut up in his office when Francis Elliott came in to how his Linseed was going. The telegraph operator told John who he was and John invited Mr. Elliott into his own room.
 
 "Mr. Elliott," he said, "I'm a novice at this game and I am likely to make mistakes. Would you mind telling me what your order was yesterday? Was it for the common or preferred?"
 

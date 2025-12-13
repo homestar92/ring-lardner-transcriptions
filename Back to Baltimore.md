@@ -6,7 +6,11 @@ As for this here Mrs. Hayes, the dope about her lettin’ the directors run the 
 
 Well, sir, I’m canned out of a managin’ job, and I’m through with the big league, I guess, and I’m goin’ back where I started in at—Baltimore. But you don’t need to waste no sympathy on me. I’m gettin’ as much dough as they give me up there, and they wont be no chancet o’ me bein’ drove crazy by a skirt. Them Baltimore people used to like me O. K. when Dunnie had me, and I guess I aint did nothin’ since to make ’em sore. I'll give ’em the best I got, and I'll let Knabe do all the worryin’. I’m off’n that stuff, and if any boob ever offers me another managin’ job, I'll bean him with a crowbar or somethin’.
 
-I bet you'll see in a few days where Mrs. Hayes gets through bein’ a widow, and her next name’s goin’ to be Mrs. William Baker Junior. They aint no danger o’ me forgettin’ that name. The guy that owns it is a ball player, but the only thing alike about he and the Baker Connie Mack’s got is that they both listen with their ears. You fellas didn't never get a look at this bird because he was so good that we didn’t only play him in one game, and that was against the Philly club. If him and her does hook up, he wont need to play no more. With them runnin’ the team together, they'll be enough comedy without him puttin’ on a uniform any more. you knowed Old Man Hayes, o’ course. He was a good old scout, but he pulled a lot o’ boners, one o’ which was him marrvin’ this doll. She’s a handsome devil all right; I'll slip her that much. But he should ought to of knew that he didn’t cop her because she was a-stuck on him. She had it doped that he was about all in, and it wouldn’t be long till the dough was all hern. His heart was bad, and they was two or three other things the matter with him, and havin’ her round didn’t make him no healthier. At that, he’d of croaked sooner or later without no female help.
+I bet you'll see in a few days where Mrs. Hayes gets through bein’ a widow, and her next name’s goin’ to be Mrs. William Baker Junior. They aint no danger o’ me forgettin’ that name. The guy that owns it is a ball player, but the only thing alike about he and the Baker Connie Mack’s got is that they both listen with their ears. You fellas didn't never get a look at this bird because he was so good that we didn’t only play him in one game, and that was against the Philly club. If him and her does hook up, he wont need to play no more. With them runnin’ the team together, they'll be enough comedy without him puttin’ on a uniform any more.
+
+***
+
+You knowed Old Man Hayes, o’ course. He was a good old scout, but he pulled a lot o’ boners, one o’ which was him marrvin’ this doll. She’s a handsome devil all right; I'll slip her that much. But he should ought to of knew that he didn’t cop her because she was a-stuck on him. She had it doped that he was about all in, and it wouldn’t be long till the dough was all hern. His heart was bad, and they was two or three other things the matter with him, and havin’ her round didn’t make him no healthier. At that, he’d of croaked sooner or later without no female help.
 
 He was sure nuts over his ball club, and it hurt him every time we lose a game. You can see where he was hurt pretty often last year. At that, Bill Fox was gettin’ by all right with the managin’ job, when you figure the bunch he had. But finishin’ seventh didn’t make no hit with the old man, even if we thought we done pretty well to stay in the league and not get arrested. Anyway, Bill got canned and the job was gave to me. If I hadn’t ’ve needed the money pretty bad, I wouldn’t never ’ve tooken it.
 
@@ -33,6 +37,8 @@ Then she ast me was it tough luck or rotten ball playin,’ and I says it was so
 She says: “I guess we can get a hold of ’em if we slip ’em big sal’ries.” Then she says: “I’d like to make this here club a team of gentlemen, and they’re more gentlemen in the colleges than anywheres else.”
 
 They was nuthin’ for me to do then but beat it out o’ the office and get a drink o’ brandy.
+
+***
 
 We kept on playin’ our best, and that was about good enough to get us beat oftener than we win. But I was satisfied with the way we was goin’. I knowed we wasn’t topheavy with class. Sullivan came in from scoutin’, and I ast him where was his collegers. Ile says:
 
@@ -90,7 +96,9 @@ Then I says: “That’s as much as I’m gettin’, and this here guy aint even
 
 “He'll make good all right,” she says. “You can tell that from just lookin’ at him, and he comes off’n a good fam'ly.”
 
-Well we goes to New York, and I was waitin’ round the lobby o’ the hotel for the baggage to come in, when Kelly, the secretary, calls me over to the desk. He pointed out a name on the hotel book and ast me who was it, because the guy was registered as belongin’ to us. “William Baker Junior, Boston Baseball Nine,” was what it says. Do you get that? “Boston Baseball Nine.” Before I ever seen him, I knowed just what he was goin’ to look like, and when I seen him, he looked just like I knowed he was goin’ to. But he was a big bird—so big he couldn't no clo’es big enough. He looked like as if he was goin’ to bust right through ’em. His hair was plastered back off’n his forehead, and his shirt and tie would’ve made a rainbow jealous.
+***
+
+Well, we goes to New York, and I was waitin’ round the lobby o’ the hotel for the baggage to come in, when Kelly, the secretary, calls me over to the desk. He pointed out a name on the hotel book and ast me who was it, because the guy was registered as belongin’ to us. “William Baker Junior, Boston Baseball Nine,” was what it says. Do you get that? “Boston Baseball Nine.” Before I ever seen him, I knowed just what he was goin’ to look like, and when I seen him, he looked just like I knowed he was goin’ to. But he was a big bird—so big he couldn't no clo’es big enough. He looked like as if he was goin’ to bust right through ’em. His hair was plastered back off’n his forehead, and his shirt and tie would’ve made a rainbow jealous.
 
 He come up to me and says: “Is this the head coach?”
 
@@ -111,6 +119,8 @@ When we got through ridin’, I says. “You better let me split with you,” bu
 We come into the grounds and I took him in the club-house and had Doc give him a unie. He made a holler because they wasn’t no feet in the stockin’s and I told him he was supposed to wear socks besides the stockin’s. So he leaves on the reg’lar socks he’d wore with his street clo’es and they was purple!
 
 I wisht you could of heard the ball players ride him. They pulled some awful raw stuff, and if he hadn’t of been such a boob, he’d of lost his temper and tried to lick somebody. But I don’t b’lieve he never wised up that he was gettin’ kidded. Even when Hub called him “Gertie,” it didn’t seem to make no difference to him.
+
+***
 
 We goes out to warm up and I notice that he don’t have no cap on. I was goin’ to tell him about it, but the boys says: “No. Let him play bareheaded and give the crowd a treat.” They wasn’t much practicin’ done. The New York bunch come over round our bench so’s they wouldn’t miss nothin’. I give him a ball and a catcher’s glove and told Tyler to throw him a few. George just lobbed one at him and he got it on the meat hand. He raised a holler and tells Tyler he shouldn’t ought to throw so hard. I yells at him to use his mitt, but he says the ball stung his hand right through it, and after tryin’ all the wrong ways they is o’ catchin’ a ball, he quit and set down on the bench. McGraw calls me over and ast was I startin’ a chorus or what. I told him how I happened to get a-hold o’ the bird, and then I ast him did he want to make a trade. He says:
 
@@ -152,9 +162,11 @@ goin’ to Philly and he was settin’ acrost the aisle from I and Hub. He was r
 
 “No,” says Hub. “He got blood-poisonin’ in that foot and they had to cut his whole leg off, and the National Commission’s got a rule that you can’t play in neither big league unless you got two legs.”
 
+***
+
 After that, Baker and Hub hung round together all the time. He fell for everything Hub told him, no matter how raw. He was givin’ Hub a good time, and it’d ’ve been all right if we could of staved on the road all the while, but I knowed when we got home, the doll’d ast me why wasn’t I playin’ him and then the trouble’d start. Sure enough, when we come in off o’ the trip, she called me to the office and put it up to me.
 
-“Well,” I savs, “I don’t think he’s got enough experience yet. You just let me handle him and keep him on the bench awhile, and maybe he'll develop into a pretty fair ball player.”
+“Well,” I says, “I don’t think he’s got enough experience yet. You just let me handle him and keep him on the bench awhile, and maybe he'll develop into a pretty fair ball player.”
 
 I suppose I should ought not, to of gave her no encouragement about him, but I was figurin’ all the time that she'd be boughten out o’ the club pretty soon, and ‘then I could can him. At that, I didn’t have no objections to keepin’ him except that I knowed he was cheatin’ the club out of about two hundred bucks every first and fifteenth. If I had to let him go, the gang’d of missed him, especially Hub.
 
@@ -173,6 +185,8 @@ I wisht you could of been there. The papers had a lot o’ stuff about it, but t
 Well, we had to drive him to first base, and then he steals second, or tries to, with Devore standin’ right there. Devore don’t move off'n the bag, so they tagged “Gertie” out. When he comes in, I ast him what was he tryin’ to pull off. He says Luderus had told him to steal. Then I says:
 
 “Don't never pay no attention to what them Philly guys tells you. If I want you to steal a base, I'll send you a night letter.”
+
+***
 
 We didn’t score, and nobody hit nothin’ at him in their half o’ the second, though they was all tryin’ to. Hub was tryin’ to let ’em, too.
 
@@ -204,6 +218,8 @@ Then she ast me what was the matter with his language. and I says I didn’t thi
 
 “Well,” she says, “if a umpire can’t understand plain English, he should not ought to be no umpire, and I will write to the president o’ the league and have both o’ here men discharged.” Then she says: “Mr. Baker was doin’ splendid and would of did still better if he had of been left in longer. He didn’t catch all them balls that was throwed to him, but that’s because he aint had no practice.” Then she says: “I’m goin’ out of town to-night, but I want you to keep on lettin’ Mr. Baker play every day, and I’ll watch the papers, and if I see where he aint playin’, you'll hear from me.”
 
+***
+
 Well, I couldn’t see no joke in it when I got home that night. The ball players was wise and knowed it wasn’t my fault. But I was a-scared that the bugs and these here reporters would vet after me if I let the boob play every day. And I was a little bit proud o’ the work we'd did and didn’t want to have it all wasted. I figured it all out, the way I was goin’ to get rid of him. I was goin’ to have one o’ the pit hers hit him with the ball in battin’ practice—not hard enough to kill him, but just so’s it would scare him out of baseball. I thought he couldn’t stand the gaff and would quit in a minute.
 
 I gets out there early the next mornin’ for practice and frames it up with Young. a big busher we had that was fast as a streak and hog wild. I sends him out to pitch to us and then tells the colleger to go up there and swing till he learned how to bat. It was prob’ly a dirty trick. but I couldn’t think o’ no other way.
@@ -214,7 +230,9 @@ Fallin’ down on that made me meaner’n ever, and I doped out something els I 
 
 Alexander worked for them, and Baker stood right on top o’ the plate. Dooin called the umps’ attention, and the umps warned him, but he wouldn't move. Fin’lly Alexander shot one up there and he didn’t duck in time. It catched him in front o’ the ear, and he dropped like as if he was shot. I bet I was the most scared guy in the world For a minute I felt like a murderer, and I wasn’t never so glad in my life as when I seen him get up. He staggered round a little, and I had ’em bring him over to the bench. I stuck myself in to run for him, and some o’ the boys took him in the club-house and got him fixed up. He wasn’t hurt bad, though he got a mean lookin’ bump.
 
-WE was startin’ West again that night
+***
+
+We was startin’ West again that night
 
 and I didn’t never expect him to show up for no trip. But there he was, down to the train, with his wagonload o’ scenery.
 
@@ -255,6 +273,8 @@ The hunch come to me all of a sudden, and I says:
 “What’s your old lady’s name and where does she live at?”
 
 He told me, and I couldn’t hardly wait till I got back to the hotel.
+
+***
 
 I don’t know now just what I wrote, but it was some letter. I told her we was a bunch o’ stews and that when we wasn’t lushin’ beer or playin’ poker. we was going to burlesque shows. I says her son was pickin’ up a awful bunch o’ language and drinkin’ his fool head off. I says he was stuck on a burlesque queen and was spendin’ all his dough on her. And I wound it up by sayin’ that Dixon, the manager, had killed his wife and they wasn’t no tellin’ when he’d cut loose and kill somebody else. I didn’t sign no name, but just put “From a Friend in Need” down at the bottom.
 
@@ -302,9 +322,11 @@ Then I says: “Is the seamstress comin’ back?”
 
 “He was smart enough to go through Yale college,” she says.
 
-“No.” savs I. “He didn’t never go through no Yale college. If they was any college that he went through, it was this here Wellesley college.”
+“No.” says I. “He didn’t never go through no Yale college. If they was any college that he went through, it was this here Wellesley college.”
 
 Then I turns and beats it for the door.
+
+***
 
 Well sir, they aint nothin’ more to tell except one thing. When I come out o’ the door into the outside office. I bumped right square into “Gertie.” He was smilin’ like a big kid, and he says: “Hello, there!” Well. I didn’t say nothin’ to him, but I give him a good kick in the shin, and I stepped all over his patent-leather shoes. Then I went on about my business.
 

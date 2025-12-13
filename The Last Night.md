@@ -322,7 +322,7 @@ Jay Arnold awoke at noon on the thirtieth in a room in the Grand Hotel. The tele
 
 “Yes, you do,” said the voice. “Anyway, I’m coming up.”
 
-“Well; don’t stay long,” said Mr. Arnold.
+“Well, don’t stay long,” said Mr. Arnold.
 
 A few moments later he admitted the young man of the Red Duck.
 

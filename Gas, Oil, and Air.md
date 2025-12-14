@@ -324,7 +324,7 @@ Who that guy was I don’t know. But if he ever runs out o’ cigarettes, I’ll
 
 “I won’t tell you nothin’,” she says.
 
-“I ain’t goin’ to bother you while you’re drivin’.”
+“I ain’t goin’ to bother you while you’re drivin’”
 
 “But I want to hear it,” I says, and I stopped the Swift Six in the middle o’ the road. 
 

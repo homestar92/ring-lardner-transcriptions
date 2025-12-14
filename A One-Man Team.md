@@ -155,7 +155,7 @@ And if it hadn’t been such a disrespectful thing to do, one might have suppose
 
 Harris was reading aloud from the *Doane Daily*. He and the Coach, having sent their charges to bed in Doane’s new fireproof hotel, lounged in the lobby, knowing that for themselves a- good night’s sleep was impossible.
 
-“It’s an even bet,’ remarked the Coach, “that all Doane is wrong.”
+“It’s an even bet,” remarked the Coach, “that all Doane is wrong.”
 
 “ ‘Coach Belden of the visitors,’ ” Harris read on, “has the reputation of being a wonderful architect of defenses designed to stop one man, but Doane will stake all its worldly goods on Davis’ ability to gain against any defense. Belden has had his scouts in the stand at all of Doane’s games this year, and undoubtedly he knows just where Davis is strong. But the coaches of other teams have been as well informed, and with what result? Davis has invariably made good against all opponents.’ ”
 

@@ -741,7 +741,7 @@ was sunk.
 
 VI
 
-IT WAS early spring when I run acrost
+It WAS early spring when I run acrost
 Larry again.
 
 "I been wanting to see you," he says.

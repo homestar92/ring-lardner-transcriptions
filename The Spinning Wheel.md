@@ -44,7 +44,7 @@ So Joe told the boss and the boss was madder than hades, the more so because Mac
 
 Well, I don’t know if Macomber paid the thousand or not, but I do know that he got called something besides Mr. Macomber. When the boss is really sore, he can think of more funny short words than one of these here puzzle experts.
 
-Macomber might be interested in how Jarvis Ralston, the automobile man, got “fleeced” here last month; at the same table, too, with Joe “dealing.” Ralston was playing twentyfive-dollar checks. He played for an hour, lost fifteen thousand dollars and started away. They was one check that he’d overlooked, or maybe he’d meant to play it on the thirty-six, because it was close to the thirty-six, but it was off the board, not on no number or nothing. Joe called to him about it and Ralston says:
+Macomber might be interested in how Jarvis Ralston, the automobile man, got “fleeced” here last month; at the same table, too, with Joe “dealing.” Ralston was playing twenty-five-dollar checks. He played for an hour, lost fifteen thousand dollars and started away. They was one check that he’d overlooked, or maybe he’d meant to play it on the thirty-six, because it was close to the thirty-six, but it was off the board, not on no number or nothing. Joe called to him about it and Ralston says:
 
 “All right. Play it on Number Eleven.”
 

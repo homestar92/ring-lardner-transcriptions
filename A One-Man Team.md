@@ -10,10 +10,9 @@ Monday lunch at the training-table was over. The squad, chatting noisily, disper
 
 It was the final week of the season, and the Doane game loomed large ahead. Harris had scouted the big rival school’s battle with Monroe on the preceding Saturday, and the others waited for him to offer his report.
 
-“It’s a one-man team, Coach, just as Wallace and Dana told us,” he said.
-“Just take Davis out of their backfield, and they couldn’t score on the North Side Y.M.C.A.”
+“It’s a one-man team, Coach, just as Wallace and Dana told us,” he said. “Just take Davis out of their backfield, and they couldn’t score on the North Side Y.M.C.A.”
 
-“Yes,” said the Coach, ‘but who’s going to ‘just take Davis out of their backfield ?’ ”
+“Yes,” said the Coach, “but who’s going to ‘just take Davis out of their backfield?’”
 
 “Well,” said Wallace, “you oughtn’t to be afraid of these one-man outfits after what you did to Monroe and Benjamin. Benjamin was their whole team, and what did he do against us? He might as well have been muzzled and on a leash. If he got away with anything, it was between halves.”
 

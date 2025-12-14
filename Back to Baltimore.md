@@ -40,7 +40,7 @@ They was nuthin’ for me to do then but beat it out o’ the office and get a d
 
 ***
 
-We kept on playin’ our best, and that was about good enough to get us beat oftener than we win. But I was satisfied with the way we was goin’. I knowed we wasn’t topheavy with class. Sullivan came in from scoutin’, and I ast him where was his collegers. Ile says:
+We kept on playin’ our best, and that was about good enough to get us beat oftener than we win. But I was satisfied with the way we was goin’. I knowed we wasn’t topheavy with class. Sullivan came in from scoutin’, and I ast him where was his collegers. He says:
 
 “I’ve been everywhere in the rah-rah circuit, and I aint saw no ball player that could carry bats in the Japanese League.”
 
@@ -108,7 +108,7 @@ I says: “Yes, whatever that is, I’m it.”
 
 “Three-thirty,” I says, “but we get out there about a quarter after two.”
 
-Then he ast me couldn’t they start it some other time because he had a engage‘ment. I says I would excuse him, and he says: “Thanks.” Then I says: “Il excuse you all the time if you say the word.” But he says no, that wouldn’t be right, because he felt like as if he should ought to do some work oncet in a while to earn his pay. Then he says he was pleased to of met me and walked away.
+Then he ast me couldn’t they start it some other time because he had a engagement. I says I would excuse him, and he says: “Thanks.” Then I says: “Il excuse you all the time if you say the word.” But he says no, that wouldn’t be right, because he felt like as if he should ought to do some work oncet in a while to earn his pay. Then he says he was pleased to of met me and walked away.
 
 I guess he must of kept his date at a soda fountain or wherever it was he had a date at, because he didn’t show up out to the park and I never seen no more of him till the next mornin’. Then he come to see me while I was writin’ a letter and ast me could he have six passes to the game. I says: “You'd better take ten.” and I writes out a pass for ten on one o’ the hotel letter-heads. and I signs Otto Hess’ name to it. He says “Thanks,” and walked away. If I’d of signed President Bryan’s name, he’d of thanked me just the same. And the pass would of been just as good.
 

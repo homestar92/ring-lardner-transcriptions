@@ -1,4 +1,4 @@
-WHAT did the Coach say to him?" asked Harris.
+What did the Coach say to him?" asked Harris.
 "You'll fall over when I tell you," Dana replied.
 "The fellas hadn't started takin' off their suits.
 They were waitin' to hear Dickie get his. Some of 'em

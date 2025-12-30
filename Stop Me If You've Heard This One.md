@@ -3,8 +3,8 @@ and Luke Garner, young playwrights, entered
 the Lambs' Club at the luncheon hour and
 were beckoned to a corner table by an actor
 friend, Charley Speed. Charley had a guest, recognized
-at once by the newcomers as Henry Wild Osborne, fa-
-mous globe-trotter, raconteur and banquet-hall fixture.
+at once by the newcomers as Henry Wild Osborne, famous
+globe-trotter, raconteur and banquet-hall fixture.
 
 "Sit down, boys," said Charley after he had introduced
 them to the celebrity. "I'm due at a house committee
@@ -13,8 +13,8 @@ meeting and you can keep Harry entertained."
 But "Harry" proved perfectly capable of providing his
 own entertainment and theirs, and he opened up with
 a barrage of Pats and Mikes, Ikeys and Jakeys, and
-MacPhersons and MacDonalds that were not only com-
-paratively new but also quite funny, at least so Blades
+MacPhersons and MacDonalds that were not only comparatively
+new but also quite funny, at least so Blades
 and Garner judged from the whole-hearted laughter of
 the narrator himself.
 
@@ -26,14 +26,14 @@ interesting than the chronicles concerning fictional
 Mikes, Sandys and Abes. He told them of Lindbergh,
 who had accepted an invitation to dine with him in his
 apartment and had come wearing a hat that did not
-fit, explaining he had borrowed it at his hotel, not hav-
-ing had a hat of his own since he was a child.
+fit, explaining he had borrowed it at his hotel, not having
+had a hat of his own since he was a child.
 
 "He's a man of one idea. He will talk about aviation
-and nothing else. He dislikes crowds and has had diffi-
-culty maintaining a show of good nature in the face of
-unwelcome attention. He has managed to do so, how-
-ever, excepting when addressed or referred to as 'Lucky
+and nothing else. He dislikes crowds and has had difficulty
+maintaining a show of good nature in the face of
+unwelcome attention. He has managed to do so, however,
+excepting when addressed or referred to as 'Lucky
 Lindy,' a nickname he just can't stand.
 
 "He was kind enough to ask me to fly with him on
@@ -56,11 +56,11 @@ and Fred had dined together at old Rector's. At the
 next table were two famous Princeton football players,
 each over six feet tall and weighing two hundred and
 twenty pounds. The sons of Old Nassau had been
-drinking some-
-thing conten-
-tious and tried
-to pick a quar-
-rel with him
+drinking something
+contentious
+and tried
+to pick a quarrel
+with him
 and Stone,
 though they
 had no idea
@@ -74,11 +74,11 @@ athletes' slurring remarks, but when he and Osborne got
 up to leave and the Princeton boys followed them and
 jostled them, the comedian lost his temper, grasped a
 collegiate throat in each hand, lifted the pair up bodily
-and knocked their heads together till they were uncon-
-scious, and then tossed them into the check-room.
+and knocked their heads together till they were unconscious,
+and then tossed them into the check-room.
 
-He told them of having been in the Metropole at sup-
-per with Herman Rosenthal the night the gambler was
+He told them of having been in the Metropole at supper
+with Herman Rosenthal the night the gambler was
 called away from the table and shot to death by four
 gangsters; of having warned Jim Jeffries not to drink
 the tea that "poisoned" him just prior to the fight with
@@ -90,11 +90,11 @@ offered his armies to the Frenchman to do with as he
 pleased; of having escaped death by eight inches when
 the Germans dropped their first bombs on Paris; of
 having taught Lloyd Waner how to avoid always hitting
-to left field; of having taken Irving Berlin out of "Nig-
-ger Mike's" place and set him to writing songs; of hav-
-ing advised Flo Ziegfeld to dress his chorus in skirts
-instead of tights; of having suggested and helped or-
-ganize the Actors' Equity, and of having informed the
+to left field; of having taken Irving Berlin out of "Nigger
+Mike's" place and set him to writing songs; of having
+advised Flo Ziegfeld to dress his chorus in skirts
+instead of tights; of having suggested and helped organize
+the Actors' Equity, and of having informed the
 Indiana police where to find Gerald Chapman.
 
 He had been everywhere and seen everything, and
@@ -110,7 +110,7 @@ He hoped he hadn't bored them.
 
 "I've been urged to many times," said Osborne, "but
 I'm never in one place long enough to get at it. I've
-got chronic Wanderlust."
+got chronic *Wanderlust*."
 
 "So have I," said Garner, "but it doesn't do me any
 good."
@@ -142,14 +142,14 @@ act and read it to George Cohan. He liked it and told
 me to finish it and bring it to him. When I had finished
 it, I learned he was in Chicago. I couldn't wait for him
 to get back so I decided to go out there and see him,
-though I had to borrow money for the trip. I was im-
-patient and took the Century.
+though I had to borrow money for the trip. I was impatient
+and took the Century.
 
 ---
 
 In the section across from me there was one of the
-about twenty-five, dark, well dressed, full of class, nice-
-looking. She had a book, one of Fletcher's detective
+about twenty-five, dark, well dressed, full of class, nice-looking.
+She had a book, one of Fletcher's detective
 stories, but I noticed she didn't turn more than three
 pages between New York and Albany. Most of the
 time she just stared at the river.
@@ -160,24 +160,23 @@ there. I wished it, but didn't believe it, because she was
 evidently not the kind you could meet unconventionally.
 
 "I went in the diner about seven and was given the
-only vacant chair at a table for four. My table com-
-panions were an elderly couple and a man a little older
+only vacant chair at a table for four. My table companions
+were an elderly couple and a man a little older
 than I, a man of striking appearance, handsome, and
 dark enough to suggest Spanish or Italian ancestry.
 
 "The elderly couple finished their meal and left. The
 'Spaniard' was just beginning to eat when the girl from
 my car came in and took
-one of the seats just va-
-cated.
+one of the seats just vacated.
 
 "Her glance and the
 'Spaniard's' met. There was
 mutual recognition and an
 emotion close to panic on
 both sides. The man got
-up hurriedly, put a five-
-dollar bill on the table and
+up hurriedly, put a five-dollar
+bill on the table and
 went out of the diner,
 toward the front end of the
 train. The girl grasped the
@@ -256,11 +255,11 @@ have detectives in Chicago.
 "In the two days I was there, I read
 every story in every paper, trying to find
 a solution to 'my mystery,' but without
-success. And that's all there is to it, ex-
-cept that Cohan turned down my play."
+success. And that's all there is to it, except
+that Cohan turned down my play."
 
-"Very interesting!" Mr. Osborne re-
-marked. "I believe if I had been you,
+"Very interesting!" Mr. Osborne remarked.
+"I believe if I had been you,
 I'd have followed the man and his escort,
 just to satisfy my curiosity."
 
@@ -283,7 +282,7 @@ interesting."
 
 "But I think," said Blades slowly, "I
 think somebody else told me that same
-stuff about Lindbergh and---"
+stuff about Lindbergh and⁠—"
 
 "Yes," interrupted Garner, "and I'm
 under the impression that the one about
@@ -297,18 +296,18 @@ happened."
 Two years later Blades and Garner,
 now credited with a couple of Broadway
 hits, were guests at a “small” dinner
-party given by Wallace Gore, the pub-
-lisher. Their host presented them to
-Mr. Henry Wild Osborne, who acknowl-
-edged the introduction as if it were a
+party given by Wallace Gore, the publisher.
+Their host presented them to
+Mr. Henry Wild Osborne, who acknowledged
+the introduction as if it were a
 novelty.
 
 Osborne sat between two adoring
 women who managed to keep him to
 themselves through the soup. But he
 was everybody's property and soon was
-regaling the whole table with up-to-the-
-minute episodes in the careers of O'Brien
+regaling the whole table with up-to-the-minute
+episodes in the careers of O'Brien
 and Berlinsky. He ran out of them at
 last and his host said: "Harry, I wonder
 if you'd mind telling these people about
@@ -336,8 +335,8 @@ He took a swallow of wine and began:
 
 "It was a month ago I had a wire from
 Charles Dawes, asking me to come out
-there and advise him in a little mat-
-ter--- Well, we won't go into that. I
+there and advise him in a little matter⁠—Well,
+we won't go into that. I
 boarded the Broadway Limited and was
 settling down to a little session with de
 Maupassant when I noticed a beautiful
@@ -347,21 +346,21 @@ section across from me.
 "I am past the age for train flirtations
 but this girl held my attention by the
 expression on her face, a look of ineffable
-sadness, of tragic longing for-I knew
+sadness, of tragic longing for⁠—I knew
 not what.
 
 "I was weaving in my mind a blighted
-romance with her as its sorrowing hero-
-ine, when Andy Mellon, walking through
+romance with her as its sorrowing heroine,
+when Andy Mellon, walking through
 the car, saw me and stopped for a chat.
 He was with me till dinner-time, when
-he invited me to dine in his drawing-
-room, but I declined, saying I had eaten
+he invited me to dine in his drawing-room,
+but I declined, saying I had eaten
 a late luncheon and would do without
 another meal. In reality, I was in no
 mood for talk, and shortly after he had
-gone, I made my way to the diner, trust-
-ing he would not uncover my mendacity.
+gone, I made my way to the diner, trusting
+he would not uncover my mendacity.
 
 "I told the steward I had no objections
 to sitting with others provided they were
@@ -386,15 +385,15 @@ see. For their glance was charged with
 electricity, a bolt of lightning that
 struck something akin to terror in each.
 An instant afterwards, the young man
-was up from the table, laying a ten-
-dollar note beside his plate, and then he
+was up from the table, laying a ten-dollar
+note beside his plate, and then he
 was gone, fleeing from the mysterious
 horror of this chance encounter with a
 woman whom God had never intended to
 inspire young manhood with anything
 but burning love.
 
-"And the girl, the young woman--I
+"And the girl, the young woman⁠—I
 started from my chair, ready to catch
 her if she swooned. For it seemed she
 must swoon, so pale she was. But with a
@@ -406,8 +405,8 @@ would have caused my doctor intense
 mental anguish. I asked the waiter for
 my check and he, observing the young
 man's money lying there, inquired if I
-knew whether he was coming back. Be-
-fore I could speak, the girl uttered a
+knew whether he was coming back. Before
+I could speak, the girl uttered a
 sharp, 'No'; then bit her lip as if in rage
 that she had said it.
 
@@ -418,8 +417,8 @@ an unsealed, unaddressed envelope in my
 hand.
 
 "It kills me to do this,' she said in a
-voice barely audible. I am not accus-
-tomed to asking favors from a stranger,
+voice barely audible. I am not accustomed
+to asking favors from a stranger,
 but it is necessary and you look kind.
 am sure you noticed the man, the young
 man, who was with us in the dining
@@ -441,20 +440,20 @@ was in the club car as she had guessed,
 staring straight ahead of him.
 
 "Without a word I handed him the
-envelope, and returned to her and re-
-ported. She expressed gratitude with a
+envelope, and returned to her and reported.
+She expressed gratitude with a
 smile that was more heartrending than
 tears.
 
-"My instinct, or sense of decency, or-
-dered me not to pry. I took my book to
+"My instinct, or sense of decency, ordered
+me not to pry. I took my book to
 the club car and tried vainly to read, for
 my brain was consumed with curiosity
 and anxiety as to what was going on
 between those two torn souls.
 
-"When at length I turned in, at Pitts-
-burgh, the berth opposite mine was
+"When at length I turned in, at Pittsburgh,
+the berth opposite mine was
 dark and its curtains drawn.
 
 "I rose in the morning as we were
@@ -469,19 +468,19 @@ affirmative. Yes, suh. She done leave
 us three hours ago, at Fort Wayne.'
 
 "I remarked I had thought she was
-bound for Chicago. 'She sho' was Chi-
-cago bound,' said George, 'but young
+bound for Chicago. 'She sho' was Chicago
+bound,' said George, 'but young
 gals, dey got a "unailable" right to
 change deir min'. I then asked if he
 had seen her conversing with a big,
 blond, handsome young man. 'No, suh.
 De only man she co'versed to was maself,
-and ma bes' frien's don't call me hand-
-some or blond neithuh one.'
+and ma bes' frien's don't call me handsome
+or blond neithuh one.'
 
 "I waited on the platform in the
-Union Station and watched all the pas-
-sengers as they left the train. The girl
+Union Station and watched all the passengers
+as they left the train. The girl
 was not among them, but the man was,
 and as he walked out to the taxi stand,
 I followed him unobtrusively, saw him
@@ -493,23 +492,23 @@ word from my friend the General.
 "But I could not get my mind off the
 queer incidents of the trip and you can
 imagine the shock it gave me to read, in
-an afternoon paper, the story of a well-
-dressed, unidentified young woman who
-had committed suicide by throwing her-
-self in front of the second section of the
+an afternoon paper, the story of a well-dressed,
+unidentified young woman who
+had committed suicide by throwing herself
+in front of the second section of the
 Broadway Limited at Fort Wayne.
 
-"My duty was clear. I hurried to po-
-lice headquarters, stated my name and
+"My duty was clear. I hurried to police
+headquarters, stated my name and
 was received by the chief. I told him I
 was sure he could earn the thanks of
 the Fort Wayne authorities and officials
 of the railroad by sending one of his
-men with me to the hotel where I be-
-lieved my 'friend' of the train was stop-
-ping; that if I could find him, I was
-sure we would be able to learn the un-
-fortunate girl's identity and perhaps
+men with me to the hotel where I believed
+my 'friend' of the train was stopping;
+that if I could find him, I was
+sure we would be able to learn the unfortunate
+girl's identity and perhaps
 the reason for her ghastly deed.
 
 "The chief delegated Captain Byrne
@@ -536,8 +535,8 @@ in young Janssen's possession. But they
 didn't tell his family and no one besides
 a few policemen and myself is aware
 that there was a girl in the case. The
-published reason for his act was tem-
-porary insanity induced by illness. And
+published reason for his act was temporary
+insanity induced by illness. And
 if he was sick, I have been dead for
 twenty years."
 
@@ -549,7 +548,7 @@ toward the card room.
 "What do you suppose he's got against
 brunets?" said Blades.
 
-"And why," said Garner, "do you sup-
-pose he won't use the New York Central
+"And why," said Garner, "do you suppose
+he won't use the New York Central
 Lines?"
 

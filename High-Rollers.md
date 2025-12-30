@@ -244,7 +244,7 @@ as the play progressed.
 ---
 
 For example, there was an afternoon
-when they were at the the National and
+when they were at the National and
 Hart and Parker were battling each
 other for a thousand dollars a hole and
 a Nassau of five thousand. The two were

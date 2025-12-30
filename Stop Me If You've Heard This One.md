@@ -148,6 +148,7 @@ and took the Century.
 ---
 
 In the section across from me there was one of the
+most beautiful women I ever saw, a young woman
 about twenty-five, dark, well dressed, full of class, nice-looking.
 She had a book, one of Fletcher's detective
 stories, but I noticed she didn't turn more than three

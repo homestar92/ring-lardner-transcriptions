@@ -60,7 +60,7 @@ without them.
 
 "She don't even know we're gone," said Henry.
 
-"She may not know you're gone.'
+"She may not know you're gone."
 
 "Anyway, she ain't missing us now, because she's
 asleep."
@@ -228,7 +228,7 @@ it to me and he's mighty sweet."
 ---
 
 Joe (Mr. Schwartz) went out to procure
-the special drink while at water
+the special drink while a waiter
 brought Henry his fourth pint of rye.
 
 "Do you live here in New York?”
@@ -378,7 +378,7 @@ tables and when she got to our table she
 was pretty well gone. I offered to buy
 a drink. She said she didn't want rye,
 but Mr. Schwartz would fetch her some
-rum from her locker. He did so.
+rum from her locker. He did so. I
 bought another pint of rye and drunk
 it while she drunk the rum."
 

@@ -367,7 +367,7 @@ Our hockey season began inauspiciously. In the first place, the athletic associa
 
 “There is no ice,” I said one evening to Bera Grudge, who had inquired how we were doing. ““We ought to have some ice.”
 
-“‘Ring for a bellboy,” was her view of the episode.
+“Ring for a bellboy,” was her view of the episode.
 
 Perhaps I ought to explain, before proceeding, that hockey was not played quite the same in those days as it is now. The players numbered only two and their positions were, respectively, Go Way Back and Sit Down. The records will bear me out when I say that I was best Sit Down Princeton ever had, not even barring F. Scott Fitzgerald.
 
@@ -389,7 +389,7 @@ Owing to my success on the mandolin club, where I played E string on one of the 
 
 “Well,” said Dean Cornwell, “you register and we'll fix you up the best we can. But you can’t have a bath because there is an Odd Fellows’ convention here this week.”
 
-“What is his name?” I asked. ‘‘And why does he object to people’s having baths?”
+“What is his name?” I asked. “And why does he object to people’s having baths?”
 
 The Dean was greatly amused at my simplicity and in after years we met again and got a hearty laugh out of the episode.[^23]
 
@@ -399,7 +399,7 @@ Dean Cornwell next inquired regarding my choice of a course.
 
 Once more I had displayed my naiveté and the Dean was in hysterics.
 
-“Lardner,” said he, “‘I wish you would stay at Princeton all your life. You are a yell!”[^24]
+“Lardner,” said he, “I wish you would stay at Princeton all your life. You are a yell!”[^24]
 
 Aided by the Dean’s influence, I soon became a member of the Dekes, the Alpha Delts, the Phi Beta Kappas, the Kiwanis, and Realty Board and was rushed by the Triangle Club, the most exclusive of Princeton’s social organizations. They rushed me as far as Trenton and then relinquished the chase on my promise to enter the University of Illinois.
 
@@ -440,7 +440,7 @@ A boy named “Hi” Fever was trying to acquire enough money to attend college 
 
 “Is it?” exclaimed Mrs. Tweek. “Well, in another month we can have oysters again!”
 
-My silo was finally filled to overflowing by unclaimed cases and it seemed advisable to move to another part of town. I put up a tent in Grant Park and hung out a shingle inscribed, ‘“‘Surgeon. Cold Cuts a Specialty.” The park was always popular with employees of Loop offices and department stores during their lunch hour and thousands of them took advantage of the opportunity to enjoy their midday meal and undergo some necessary operation at the same time. The potato salad which I served with the cold cuts was covered with a sort of ether dressing and from each patron I managed to remove at least his tonsils without his being any the wiser. A certified public accountant once estimated that if all the tonsils I cut out during lunch hours were laid end to end, it would be a nuisance.
+My silo was finally filled to overflowing by unclaimed cases and it seemed advisable to move to another part of town. I put up a tent in Grant Park and hung out a shingle inscribed, “Surgeon. Cold Cuts a Specialty.” The park was always popular with employees of Loop offices and department stores during their lunch hour and thousands of them took advantage of the opportunity to enjoy their midday meal and undergo some necessary operation at the same time. The potato salad which I served with the cold cuts was covered with a sort of ether dressing and from each patron I managed to remove at least his tonsils without his being any the wiser. A certified public accountant once estimated that if all the tonsils I cut out during lunch hours were laid end to end, it would be a nuisance.
 
 I was now nineteen years of age and thinking of getting married. I consulted a friend of mine, Dr. Flip.
 
@@ -477,11 +477,224 @@ The other invention of that year was the telephone. They are still trying to fin
 
 The first telephone exchange had only one number, Central 1. All the subscribers had to take that for their number and when you called up, there was no telling whom you would get.[^27]
 
-There was no rate by the month, each subscriber being charged a nickel per call. It made interesting gambling, dropping your nickel in the slot and then waiting to find out who would answer; if you expected, for example, to talk to, say, Flo Ziegfeld and a sweet voice at the other end of the line announced ‘This is Neysa McMein,” or “‘This is Florence O’Denishawn,” you had the same thrill as when a 50 to 1 shot which you have bet on at the track finishes first. Personally I always played in tough luck. I would call up Marilyn Miller and get Heywood Broun; or try for one of the Dolly Sisters and obtain Percy Hammond. It was an outrage.
+There was no rate by the month, each subscriber being charged a nickel per call. It made interesting gambling, dropping your nickel in the slot and then waiting to find out who would answer; if you expected, for example, to talk to, say, Flo Ziegfeld and a sweet voice at the other end of the line announced “This is Neysa McMein,” or “This is Florence O’Denishawn,” you had the same thrill as when a 50 to 1 shot which you have bet on at the track finishes first. Personally I always played in tough luck. I would call up Marilyn Miller and get Heywood Broun; or try for one of the Dolly Sisters and obtain Percy Hammond. It was an outrage.
 
-The nickel a call system lasted until the repeal of the law preventing women from talkmg to one another. When women were at length permitted to call each other up, the company went into the hands of a telephone receiver because it was taking in only five cents a day.
+The nickel a call system lasted until the repeal of the law preventing women from talking to one another. When women were at length permitted to call each other up, the company went into the hands of a telephone receiver because it was taking in only five cents a day.
 
 In 1900, Robert Fulton invented and tried to introduce the automatic or dial telephone. His invention was turned down, unwillingly, by the phone trust in compliance with a petition from people in the then infantile motion picture industry, who argued that the strain of attempting to learn the alphabet would reek havioc with their Art.
+
+## Chapter 15
+### Sport Writer on *The Rabies*
+
+In 1900 I turned over my medical practice to a bystander and went to work as a sport writer on *The Rabies*, one of the first of the so-called tabloid newspapers. This was long before the tabloids became so painfully reticent and dignified, and the editors of the various departments were annually selected from the graduating class of the Oklahoma School of Oafs. The sporting editor under whom I worked was an unrecognized cousin of Will Rogers named Haney Thwack. He had been sent to the school to be cured of a penchant for oatmeal and was given his diploma in spite of the very obvious fact that the cure was nowhere near complete. In fact, the first day I reported at his desk, I found the same covered with receptacles of all kinds filled with the pompous cereal in different stages of preparation. ‘Oatmeal Haney” was what the boys called him behind his back, and once or twice he overheard and just smiled. There was no offending “Oatmeal Haney.”[^28]
+
+“Lardner,” he said to me, “there’s a coming golf champion down in Georgia named Bobby Jones. He is now a year old, or will be in a few years. I want you to get a picture of him in the bathtub and a good human nature, personality interview.”
+
+“But, Mr. Thwack,” I remonstrated, “how can I get an interview with a man that age? Why, I don’t suppose he can even talk plain.”
+
+“Age makes no difference with most Georgians,” replied my superior, testing the cereal with his knee. “They hardly ever get so they can talk plain.”
+
+Bobby was splashing at a great rate when I was admitted to the lavatory.
+
+“What are you doing, Mr. Jones?” was my first question.
+
+“Me take baff,” he lisped. “Me no lika baff. Min’s me of a watah hazard.”
+
+It was comical to hear him.[^29]
+
+“How are you getting along with your golf?” I asked.
+
+“Ah is jes’ tryin’ to mastah the spoon,” he said. “Dis mo’nin’ at bretfus Ah used it fo’ de fustes’ time an’—an’—(he laughed at the memory) Ah spilt evahthing.”
+
+The youngster then posed for flashlights, with the stopper out, with the stopper in, with the tub full and with the tub empty. “Oatmeal Haney” congratulated me on my handling of the assignment and I was sent to interview Neysa McMein.
+
+Miss McMein proved an interesting talker, once you could understand her dialect, as different from the Jones boy’s as a couple of eighth notes.
+
+I asked her where she had got the idea of drawing covers.
+
+“Me getty idee from ol’ Mis’ Pukkins,” she said. “Ol’ Mis’ Pukkins, she use’ draw covers fo’ de big hotel in Quincy, Illinois. Soon as de gues’ leave dere room in de mo’nin’, she draw all de covers and let de beds air.”
+
+Miss McMein recounted the difficulties of her early career. I forget just what she did say. She overcame them some way or other and today her cover charge is $1500.00. The friendship begun at that time ripened into something grotesque and right now there is a saying along Broadway that wherever you find Neysa McMein, Ring Lardner is probably home working.
+
+One of the rules in *The Rabies* office provided that members of the sporting department get weighed every day before reporting for work and if they weighed over 135 pounds stripped (as most of them usually were), they would have to go into some other department. This was in the days prior to Prohibition and I was drinking a great deal of water, with the result that one afternoon I tipped the beam at 141.[^30]
+
+“Oatmeal Haney” was loath to let me go and when I was ordered to report to the city editor, he made a scene, which he afterwards tried to sell to the Follies.
+
+The city editor, Tom Bilgewater, regarded me at first wonderingly, then tenderly.
+
+“Well,” he said, when he had regained the use of his voice, “you are a very likely looking fellow.”[^31]
+
+## Chapter 16
+### Star Reporter for *The Rabies*
+
+Old timers will have no difficulty in recalling the Helsh murder, and veteran newspaper men have never tired of complimenting me on my work in connection therewith. It was my first assignment as star reporter for *The Rabies* and the fact that I was chosen for the task speaks volumes for my city editor, who was violently drunk at the time.
+
+For the benefit of half-witted readers, I will recount the Helsh case in brief. Wallace Helsh was a wealthy barn tearer in Pennsylvania. He went all over the state tearing down barns so horses could get more air. Mrs. Helsh was the former Minnie Blaggy, prominent in Philadelphia society and the daughter of Blotho Blaggy, who was in charge of one of the switches in the Broad Street railroad yards. Young Helsh and Miss Blaggy became acquainted on one of the former’s barnstorming tours and were married two weeks after their first meeting. At the time of the murder, they had been married three years and Mrs. Helsh (née Blaggy) was expecting a baby, the child of one of her sisters. The baby was supposed to arrive on the 12:09 (midnight) train and the police first believed that the murder had grown out of a quarrel between the Helshes over which of them should sit up and meet it. This theory was based on the testimony of a neighbor, Basil Kidney, who said he had been hiding behind a book in the Helsh living room and overheard the following conversation:
+
+“Will you sit up and meet our niece?” This from Mrs. Helsh.
+
+“No.” This from Helsh.
+
+“Why not?”
+
+“Because I don’t water meter.”
+
+The witness did not hear any more of the conversation because it was then time for him to go on to another neighbor’s house, the Quimbys, and hide in their living room. He was an habitual living room hider. But half an hour after his departure from the Helsh home, a mysterious voice called up the police headquarters at Bryn Mawr and announced that there had been a murder at 24 Vine Street. This was not where the Helshes lived, which made it all the more puzzling.
+
+“Dig right into this!” said my city editor. “Comb Philadelphia, find out who did it and get lots of pictures.”
+
+“How about my transportation?” I inquired.
+
+“You can have carte blanche,” was his reply.
+
+But thinking he referred to a dog cart and an old horse named Blanche, which conveyed our society reporter to and from her work every day, I declined his offer and went to Philadelphia by rail. My mistake was profitable, for the first man I met when I rolled from under the train at Broad Street was Blotho Blaggy, Mrs. Helsh’s father.
+
+“How about the murder, Mr. Blaggy?” I asked.
+
+“Fine,” he said. “They have arrested my little four-year-old grandchild, who was on her way to visit her aunt and uncle, but they can’t pin anything on her. She hates pins; says she is too old for them.”
+
+Next morning, *The Rabies* made all the other tabloids look silly. Across the front page we had a streamer, “Child Murder Suspect Balks at Pins!” and under it were pictures of Lillian Gish, who had appeared on the screen at a Chestnut Street theatre that week, and of Chief Bender, making a balk. On Page 2 was my story of the murder and on Page 3, the first chapter of Mrs. Helsh’s diary, of which I have preserved a copy and will reprint a few paragraphs:
+
+“Oo, Oo, diary, I am going to keep oo and write in oo every day and when I am a ole, ole lady bug, I will read oo and live over the days of my honeymoon.
+
+“Daddy was a baddy, baddy boy today. T asked um to bwing me a ittsy bittsy diamond wing and he fordotted all about it and when I scolded um he swang for my jaw and knocked out some toofums that my real honest to goodness daddy had give me for a wedding pwesent.
+
+“Oo never can tell what a red hot daddy will do-oo-oo.”
+
+I have perhaps forgotten to mention that when the police finally reached the Helsh home, Helsh was nowhere to be seen and Mrs. Helsh (née Blaggy) was playing a game of Bemis with her little niece. Asked when she expected her husband, she said the hour of his arrival always depended on the number and toughness of the barns he had visited, but he usually got back about six o'clock. The police then arrested the niece and left a guard to receive Helsh if and when he showed up. Sure enough, just at six o'clock he reached home and found dinner ready.
+
+On the following morning, *The Rabies* printed pictures of Georges Carpentier, June Walker and Miss Omaha on the beach at Atlantic City and a portrait of the bathtub in which Mrs. Helsh’s sister had bathed her little girl before sending her on the fatal visit. I was given a bonus of $50 and spent it and the next two weeks waiting around for some more excitement.
+
+## Chapter 17
+### Promoted to Contest Editor
+
+In the days of which I am now writing, Horace Greeley and Ben Hecht were joint editors of *The Rabies*. They edited all the news that came in about different joints around town. They received only a small salary, but were given a share of the paper’s profits; therefore it was to their interest that the circulation and, consequently, the advertising be built up. One evening Mr. Greely called me into his private bath.[^32]
+
+As I entered he said, “Young man, go wash,” and pointed to the bowl.[^33]
+
+When I had dried the both of us, Mr. Greeley said:
+
+“Kid” (he called me kid), “the more people that buys this paper, the better for I and Ben. Now the best circulation getters is contests and we are going to make you contest editor with carte blanche to offer whatever prizes you like in every kind of contest you can think of. Est-ce que c’est claire de lune?” (“Is it clear?”)
+
+I nodded my head and left him. On my way back to the city room, I encountered Charley Cautious, a fellow reporter.
+
+“Whose private bath have you been in?” he inquired.
+
+“Horace’s,” I replied.
+
+“Horace’s?” he repeated.
+
+“Horace’s,” I said.[^34]
+
+After a rub-down, I went to work contriving contests. My first idea was an essay contest on “Why I Married Mr. Hopper,” but it proved a failure as, at that time, there were only three persons eligible to the competition and two of the three would not, or could not, reply. The next one went over with a bang. It was a guessing contest of famous men. The names of the men, with a few of the letters left out, were printed in groups of five a day and prizes amounting to $50,000 were offered to those sending the most nearly correct answers, accompanied by a twelve thousand word article on boo scorpions.[^35]
+
+In the paper the first day we had “Abr‑ham L‑nc‑ln; Th‑mas Edis‑n; Charl‑s Ch‑plin; Jac‑ B‑rrymore; Charl‑s D‑ckens.”
+
+On the second day⁠—“J‑mes A. G‑rfield; U. S. Gra‑t; Robert E. L‑e; M‑rk Antony; H‑rry K. Th‑w.”
+
+And on the third day⁠—“G‑orge Ade; J‑seph J‑fferson; Irvin S. Co‑b; H. L. M‑ncken; J‑hn P‑ul J‑nes.”
+
+Prior to the inauguration of this contest, *The Rabies* had a paid circulation of 126. To be eligible to compete, you had to subscribe to the paper for at least six months, and an even half million people entered the competition, raising our total circulation to 500,126.
+
+Now comes the strange part of it. Of the half million articles on boo scorpions, every one seemed to be the work of a master of the subject; in fact, the articles were so uniformly convincing and scathingly denunciatory that Congress started a nation-wide campaign against these ribald vermin and succeeded in exterminating them. Today one speaks of a boo scorpion much the same as of a dinosaur or a mah jongg fiend.[^36]
+
+But it was unnecessary, not to say impossible, to award any of the prizes, because none of the 500,000 competitors came anywhere near guessing the names of the famous men. Almost without exception the answers sent in were Abraham Lincoln, Thomas Edison, Charles Chaplin, Jack Barrymore, Charles Dickens, James A. Garfield, U. S. Grant, Robert E. Lee, Mark Antony, Harry K. Thaw, George Ade, Joseph Jefferson, Irvin S. Cobb, H. L. Mencken and John Paul Jones. Whereas the correct answers were⁠—Abroham Luncalm, Thamas Edisun, Charlus Choplin, Jace Burrymore, Charlas Duckens, etc., every one of them a real person, known to me by hearsay and each famous in the locality in which he lived. For example, the tenth one, guessed by all the competitors as Harry K. Thaw, was in reality a man named Hurry K. Thew, a well known Kansas City bossop tamperer, who drove half the K. C. housewives crazy by sneaking through their gardens by night, tampering with their bossops.
+
+This contest virtually made *The Rabies* and nearly wrecked me. For months afterwards I lay in a hospital, at death’s door from the strain I had gone through.
+
+## Chapter 18
+### Hallowe’en in Polyandry Hospital
+
+Arrangements were made by the proprietors of *The Rabies* to have me examined by two of the most eminent diagnosticians then in New York, Dr. Pine and Dr. Gasp. Dr. Gasp had 104 degrees, while his partner's temperature was normal. Dr. Pine explained that Dr. Gasp had been drinking heavenly.[^37]
+
+The two doctors made me strip to my nightgown and went all over me with a horoscope. Their diagnosis was chronic alfalfa and they said I must be rushed to a hospital and tattooed.
+
+On the third day of October, 1896, I was ridden on a rail to the Polyandry Hospital and taken in charge by Dr. Barnacle, who immediately put me under the ether. The janitor found me there two days later and lifted me onto a bed. That night I was removed to the operating room and tattooed in three places. On my right knee they did a picture of Whiteman’s band playing before the Chesapeake and Ohio station agent at Clifton Forge; on my chest, the first Battle of the Marne, and on my (at that time) rather high forehead, the piano score of Parsifal.
+
+Operations in those days were quite painful as the anesthetics employed were not nearly so effective as those now in use. In my case, and all other major surgical operations such as appendicitis, internal ulsters, etc., the patient was allowed to suck a lemon; it was not until 1899 that they gave you an aspirin tablet in cases of the removal of a leg or an arm.[^38]
+
+I recovered so wonderfully that after the third day Dr. Barnacle ceased his daily visits to me and left me in the care of the internes (so called because every time you wanted one of them, he had just turned in). My room, which I shared with the Marx brothers, the Dolly sisters and the Fairbanks twins, was a veritable paunch of flowers and I received so many telegrams that the company sent them in separate envelopes.
+
+On the thirtieth of the month I was pronounced cured and told I could go home, but the nurses, who had taken quite a fancy to me, persuaded me to remain and participate in the Hallowe’en pranks, which were then a feature of hospital life.[^39]
+
+Well, the things we didn’t do would be easier to tell than the things we did.[^40]
+
+Among the pranks I recall particularly are the following:
+
+1. The patient in Room 18 had been almost fatally burned in an apartment house fire. A crowd of twenty other patients and nurses gathered outside his door and yelled “Fire!” till he jumped out the window. As Room 18 was on the fifth floor, you can imagine his surprise.
+2. In Room 4 was a man who had fallen out of a rug and broken three ribs. We sent him spare-ribs for his supper.
+3. Room 6A was occupied by a ball player with Charley horse. We sent him some oats.
+4. I have forgotten what ailed the woman in Room 11 and what we did to her.
+
+Those are just a few of the pranks we played in Polyandry Hospital on Hallowe’en, 1896.
+
+## Chapter 19
+### A Soft Job
+
+Dr. Pearson, on the day of my release from the hospital, warned me that I would have to be careful for at least a year and advised me not to return to the nerve wracking profession of journalism.
+
+“Get into some calmer line of work,” he said, “something that won’t be much of a physical or mental strain.”
+
+“What, for instance, Duck?”[^41] I inquired.
+
+“The calmest, most leisurely calling I can think of,” replied the doctor, “is that of a ticket agent in a large railroad terminal,”
+
+In compliance with this hint, I investigated and found that applicants for such a position were required to take a week’s training. The training outfit consisted of a ticket rack in which were tickets to every town in the country, arranged in alphabetical order; a flat shelf equipped with date stamps, pencils and pens, and an iron grating which separated the student from the practice customers.
+
+The applicant had to report at 8 o’clock in the morning. His first duty was to break the points of the pens and pencils and set the date stamp either six months behind or ahead of the current date. Then, all day long until 6 in the evening, crowds of practice customers kept coming up and standing in front of the grating. The applicant was instructed to keep his eyes fixed firmly on the floor except twice during the day, when he might look at a customer and wait on him, there being a rule that no one agent might sell more than two tickets per diem.
+
+The first practice customer whom the applicant deigned to notice would, we will say, ask for a ticket to Baltimore. The applicant would look through the T’s, M’s, K’s and any other six letters; then turn his attention to the B part of the rack and produce a ticket to Baltimore. He would then twirl his date stamp six months ahead or behind as the case might be, and stamp the ticket. If the fare to Baltimore was $4.10, he would have to borrow a good pencil or pen from another applicant and write one under the other, the figures $4.00 and .10, on an envelope; then scratch his head and add them and write down the total⁠—$4.10. The practice customer would then submit a five dollar bill and the applicant would repeat to himself the names of all his friends in a painstaking effort to think of somebody who might have change.
+
+I learned all these tricks easily and was given a position at one of the windows in Grand Central Station, New York. On the first day I lived up to the rules, looked at only two people and sold two tickets. But after that, my natural imaginativeness and individuality overcame my sense of duty and I proceeded to revolutionize the ticket selling industry. One or two samples of my methods, and their results, may prove interesting.
+
+A beautiful widow with two children asked for tickets to Peekskill.
+
+“Madam,” I said, “Peekskill has many attractions, but I think you would find Ardsley just as nice, and it’s nearer and cheaper.”
+
+“All right, make it Ardsley,” said she. “And how about my kiddies? Are they half fare?”
+
+“Not half as fair as their mummy,” said I. “But joking to one side, I think it is a mistake to take them at all. I know a fellow in Ardsley who wants to marry a widow and I will gladly give you a letter of introduction to him. But he hates children and if you were to show up with those two, well, to put it mildly, whelps, your chances of matrimony would go glimmering.”
+
+“Mamma,” whined one of the whelps, “let’s go glimmering.”
+
+This remark may have settled the issue; at any rate, the little lady made the trip alone, leaving her children in the waiting room, where, I heard later, they were quite a nuisance for a couple of days; after which they disappeared. Their mother married the Ardsley wight, who left her, in four years, with three new children, or one up on what she had before, to say nothing of the superior quality of the later litter.
+
+On another occasion, my frankness led me into a lasting comradeship with Nora Bayes, who came to my window one afternoon and demanded a ticket to Albany and a lower berth to Syracuse.
+
+“But, Miss Bayes,” I remonstrated, “if you are only going to Albany, why do you want a berth to Syracuse?”
+
+“Because I always sleep past my station,” was her reply.
+
+This struck me as so comical that I hurried up to the athletic field of the University of Columbia and watched some of the men practice broad jumping.
+
+## Chapter 20
+### Dan Boone’s Joke
+
+One of the traits or characteristics for which the writer has been noted in recent years is dignity, self-possession. Only the other day I was complimented on this by no less a personage than Mr. Charles M. Schwab.
+
+“Lardy,” he said in his enchanting southern drawl, “you certainly have a lot of poise.”
+
+“Yes,” I replied lightly. “Three are at home and one is away at school.”
+
+But at the time of which I am now writing, I was so playful and “flighty” that it had never occurred to me to enter a vocation where solemnity and composure were deemed essential and it was a shock to me when my good friend Daniel Boone suggested that I go into politics.
+
+“Lardy,” he said, “why don’t you run for an office?”
+
+“Why? Do you think it is going to rain?” was my laughing retort.
+
+Boone resented my levity and never spoke to me again, and every night for several months thereafter, he attempted to “get even” by ringing my front doorbell, then hiding behind some bushes in the yard and shouting “Pretty fellow!” when I came to the door. It is my firm belief that if I had taken his suggestion seriously that day, he would, by the tremendous force of his personality, have pushed me into a judgeship or at least got me on a jury. As it was, through reading “The Americanization of Edward Bok,” I became interested in the collection of autographs and found it, for a time, the most engrossing sport in which I had ever participated.
+
+In emulation of Mr. Bok, I started right after the “big fellows,” my first “objective” being Senator Smoot. A servant informed me that the Senator was taking a bath. Luckily (for me) he had neglected to lock the bathroom door, so when I walked in on him, took all the towels and told him firmly that he could not have one until he had signed my autograph album, there was nothing for him to do but comply. He was greatly amused at what he termed my bonhomie.
+
+My next quarry was Madame Modjeska whose signature I obtained by tickling her feet with a sprig of holly until she was glad to do anything to get rid of me. By similar pranks and pleasantries I landed all the Presidents. I became known as a kind of a pest, but just the same I am the owner today of the greatest collection of famous autographs in the world and the only question is what to do with it.
+
+It was for the purpose of adding to this collection that I visited Philadelphia in September of 1926; notables from all over the country were there at the time to witness the great heavyweight championship prizefight between Jack Dempsey and Gene Tunney, but it developed that very few of them could write their names. The fight went ten rounds and the judges gave the decision to Mr. Tunney and a lot of us boys thought it would have been a horse on Mr. Dempsey if they hadn’t. It was reported after the fight that the winner was considering an offer from C. C. Pyle to join the ranks of the professionals.
+
+This was my first trip to the City of Brotherly Love[^42] since Gen. Smedley Butler was sent there to clean it up. The result of his work was a revelation. Unless you had brought your own liquor, you could no longer get a drink in Philadelphia without asking for it.
+
+Philadelphia at that time had a boxing commission something like New York’s (No offense meant). The commission, which was appointed by the Governor, named the judges that decided the outcome of fights. On this occasion Gov. Pinchot said he would like to see Mr. Tunney win and it may have been to save the commission and its judges from embarrassment that Mr. Dempsey acted as if the whole party was a big surprise to him. He seemed to have at last mastered the boxing style of Farmer Lodge who helped him prepare for his fight with Firpo some years before.
+
+A man sitting right back of me kept insisting that Mr. Dempsey ought to be disqualified for violating Pennsylvania’s boxing code, which barred the rabbit punch. I was not familiar with the rules, but Jack certainly punched like a rabbit.
 
 ## Footnotes
 
@@ -556,3 +769,41 @@ Editor’s note: My mistake.
 
 [^27]:Editor’s note: This is still true today.  
 Author’s note: You spoke a full quart.
+
+[^28]:Editor’s note: Unless you deprived him of the cereal.  
+Author’s note: That is understood.
+
+[^29]:Editor’s note: Was it?
+
+[^30]:Editor’s note: There was also a rule against tipping the beam.
+
+[^31]:Editor’s note: Bilgewater was known among his intimates as “Blind” Bilgewater.  
+Author’s note: You have him confused with some other Bilgewater. This Bilgewater was known as “Keen Eye” Bilgewater.  
+Wife’s note: Dinner is ready.
+
+[^32]:Editor’s note: Tabloid editors then worked in private baths instead of private offices
+
+[^33]:Editor’s note: This remark of Mr. Greeley’s has often been misquoted as “Young man, go west,” and “Young man, go mah jongg,” and sometimes even as “Young man, go get my slippers.”  
+Author’s note: Some of the misquotations have been laughable.
+
+[^34]:Editor’s note: This was probably the origin of the song, “Horace’s, Horace’s, Horace’s.”
+
+[^35]:Editor’s note: A boo scorpion was a sort of spider that went around booing ball players, actors and cock-eyed spaniels.
+
+[^36]:Editor's note: The author was probably not aware of the fact that the last named pixy is still running amuck in many places, notably East Hampton, Long Island, in spite of the vigilance of the narcotic squad.
+
+[^37]:Editor’s note: The author evidently means “heavily.”  
+Author’s note: The editor is evidently a f⁠⸺⁠l.
+
+[^38]:Illinois: 491; Shields v. Shields.
+
+[^39]:Editor’s note: And still are.  
+Author’s note: I didn’t know that.
+
+[^40]:Editor’s note: Then why not tell the things you didn’t do?  
+Author’s note: Why not shut up?
+
+[^41]:Editor’s note: The author doubtless meant to say “Doc.”  
+Author’s note: The author meant what he said. Pearson was a notorious quack.
+
+[^42]:Editor’s note: Philadelphia.

@@ -1077,9 +1077,8 @@ Author’s note: The author meant what he said. Pearson was a notorious quack.
 
 [^43]:Editor’s note: There is that word again.
 
-[^44]:Author’s note: At this point I wish to correct an error that was made by the New York newspapers in their account of the wedding. I was repeatedly referred to as the groom, though I have had nothing to do with the care of a horse since I was twelve years old, and then only as a favor. The mistake probably was due to a misunderstanding by an Associated Press reporter, who, when my engagement was announced, called up Hugga’s mother, Sitta Much, and asked if she was satisfied with me as a son-in-law. Mrs. Much replied: “I certainly am. He is a hustler.” The reporter, no doubt, thought she said “hostler.” The two words “hostler” and “hustler” sound a great deal alike, especially in Eskimo.[^900]
-
-[^900]:Editor’s note: Another amusing incident is told concerning that same telephone conversation. When the reporter first got the bride’s mother on the wire, he said: “Mrs. Much?” and she replied: “Yes. A great deal.”
+[^44]:Author’s note: At this point I wish to correct an error that was made by the New York newspapers in their account of the wedding. I was repeatedly referred to as the groom, though I have had nothing to do with the care of a horse since I was twelve years old, and then only as a favor. The mistake probably was due to a misunderstanding by an Associated Press reporter, who, when my engagement was announced, called up Hugga’s mother, Sitta Much, and asked if she was satisfied with me as a son-in-law. Mrs. Much replied: “I certainly am. He is a hustler.” The reporter, no doubt, thought she said “hostler.” The two words “hostler” and “hustler” sound a great deal alike, especially in Eskimo.  
+Editor’s note: Another amusing incident is told concerning that same telephone conversation. When the reporter first got the bride’s mother on the wire, he said: “Mrs. Much?” and she replied: “Yes. A great deal.”
 
 [^45]: Editor’s note: A custom. The anthem referred to begins, “Lap and the world laps with you.”
 

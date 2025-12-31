@@ -253,7 +253,7 @@ The Grudges had so many house guests that Christmas that it was necessary to ins
 
 “She said it was her laundress.”
 
-“Sis-boom-ah ! Tiger!” This from Bera.
+“Sis-boom-ah! Tiger!” This from Bera.
 
 On another occasion Mrs. Stevens told me that another guest, a Mr. Spurl, brought his laundry down to her and bet her she couldn’t “do it up” in four hours.
 
@@ -316,7 +316,7 @@ Afterwards, on the sled, she asked me what kind of bird I thought she had given 
 
 “Last year,” spoke up Vera, “mother pulled an even better one than that. She gave a great big package to a starving family by the name of Weaf, saying “Here is a goose for you,’ and there was nothing in the package but a picture of Goose Goslin of the Washington ball club.”
 
-“Sis-boom-ah !” commented Bera.
+“Sis-boom-ah!” commented Bera.
 
 When we got back to the Grudge home, there were three horses in the living room, Doc’s gift to his two daughters and son Jack.
 
@@ -345,7 +345,7 @@ On the corner of Hudson and Spring Streets, I asked directions of a friendly loo
 
 He told me to walk way up past Troy on the East bank of the river, and look for a Ford. After what seemed to me a rather tedious stroll, I passed through Troy and began looking all over for a Ford, but couldn’t find one—or any other kind for that matter. I told my troubles to a farmer, who laughed heartily and said:
 
-“Mon, mon! (He was a Scotchman) Ye are long before ze day of ze automobile. When your New York friend said ‘Ford,’ he meant ‘a place in a river where it may be crossed by wading.’”
+“Mon, mon! (He was a Scotchman) Ye are long before ze day of ze automobile. When your New York friend said ‘Ford,’ he meant ‘a place in a river where it may be crossed by wading.’ ”
 
 Embarrassed and chagrinned, I walked down to the river bank and removed my shoes, stockings and plasters, as this seemed as narrow and shoal a point as any other.
 
@@ -705,7 +705,7 @@ We now come to my first marriage. The girl was a born Laplander and landed in my
 
 As she Lapped the fresh made spirits, I made her tell me of herself. Her name was Hugga⁠—Hugga Much⁠—and she was the daughter of an Eskimo society woman who had fallen in love with her family’s Lap dog trainer.
 
-“Mah mammy was sho ’nough ‘folks’” she said proudly.
+“Mah mammy was sho ’nough ‘folks’ ” she said proudly.
 
 When the party was over and I had gone back to New York, she obtained my address and began showering me with mash notes, written in the same stertorous drawl. She was the most persistent of all the women who have ever marked me as their goal and it soon became evident that fighting her off was a waste of time. I finally said yes, and the scene that followed defies description. Dignified men marched the streets ringing cowbells and fairly reeking with confetti; women tore each other’s clothes, and even little children asked, “Where is nurse?” and “What is all the hullabaloo?”
 
@@ -746,9 +746,9 @@ We strolled up and down the Gladway and she asked me why it was so named. I repl
 
 She was always making mistakes, but was always quick to acknowledge them.
 
-I showed her the huge stadium in which Jack Dempsey had lost his title and I my shirt. I pointed out the spot where the ring had been located and the spot, six feet away from it, where I had sat. She was amazed when I informed her that the “‘house” had been sold out that night and exclaimed at the vast distance between the scene of battle and the most remote seats.
+I showed her the huge stadium in which Jack Dempsey had lost his title and I my shirt. I pointed out the spot where the ring had been located and the spot, six feet away from it, where I had sat. She was amazed when I informed her that the “house” had been sold out that night and exclaimed at the vast distance between the scene of battle and the most remote seats.
 
-“Why, the people in some of those seats,” she said, “couldn’t really tell whether it was a fight or a schottische !”
+“Why, the people in some of those seats,” she said, “couldn’t really tell whether it was a fight or a schottische!”
 
 “Neither could I,” I replied, laughingly.
 
@@ -773,6 +773,193 @@ Thus it was that my young wife and I began a mercantile career which netted us o
 “Perhaps you are right,” said Mrs. Femur, and before she had left the place we had sold her a $12.00 amber muzzle which netted us $10.45.
 
 Another of our big winners, which we usually sold in place of post cards, was fleabane concocted by Hugga herself out of drippings from Queen Marie’s diary.
+
+## Chapter 23
+### My Romance Blasted
+
+This chapter is one I would not have written but for the insistence of my relatives and friends who are aware of the injustice done me by the press and have persuaded me that it is only fair to myself and them that I state, for once and all, the true facts of the case.
+
+The subject is my divorce from my first wife, Hugga Much, or rather (thanks to perjured evidence and a “judge” so crooked that the state automobile association had fairly plastered his body with signs reading “Danger! Reverse Curve Ahead!”) her divorce from me.
+
+We had been married only a few years when the storm broke. We were living in Gluten, N. Y., and while nominally proprietors of the post office there, were cleaning up a tidy fortune through the barter of dog muzzles, assorted leashes and fleabane. It netted us so little profit to conduct the regular business of a post office that we had discouraged Glutenites from buying such things as envelopes and stamps, telling them either that we were just out of those commodities or that the ones we had in stock were infected, or otherwise damaged.
+
+This finally, through some jealous busybody, was called to the attention of Postmaster General Basil Paunch and that official personally came up from Washington to investigate. At his first sight of Hugga, he forgot all about the business that had brought him and fell violently in love. His love was returned and one day I stumbled upon the ungainly pair playing “Nine Men’s Morris” at the municipal filling station. To avoid a scene, I ordered Paunch to visit me at my office and when I met him there, we had quite a talk.
+
+He told me it got awfully hot in Washington in the summer months, but the springs and falls were lovely and the winters much milder than in New York. The principal streets, he said, were named after states or letters of the alphabet.[^50]
+
+I started my divorce suit in Sullivan County, but my wife asked for a change of venue as the doctor said it would do her good. Neither of us had ever been to Chicago for a really long stay, so we chose the Crescent City for the scene of action. We found it much the same as New York except that the citizens carried muskets instead of canes. State Street had just been provided with a blazing new system of lights as a result of complaints of machine gunners that because of poor visibility, hundreds of harmless matricides had been mistaken for bystanders and shot down or up.
+
+On the day preceding the opening of the case, forty-six special trainloads of co-respondents reached the city. In the forenoon they were received by the then Mayor, Gifford Pelk, and given the keys to their trunks, which had been opened by mistake. A tour of the Stockyards and breweries took up the balance of the day, and then came the problem of sleeping accommodations. Even with cots lining all the halls, the hotels were unable to take care of the co-respondents named either by Hugga or me and a panic was averted only by a great idea born in the brain of a well-known newspaper man, James Crusinberry.
+
+“First,” he said, “get everybody to bed that has a bed. Then assemble the leftovers and tell them to take a walk around the block. Thus they will all be provided with a lodging.”
+
+“Where?” inquired a man with a pointed beard.
+
+“In the Morgue,” replied Mr. Crusinberry.
+
+“One time,” put in another stranger, “we had a case somewhat similar to this in my home town, Cincinnati. There were so many co-respondents that the hotels could not accommodate half of them. So a committee of citizens went to the outskirts of town and put up tents for the overflow. They called it the Tent City.”
+
+“That wouldn’t do here,” said a man whose name turned out to be Frank Bering.
+
+“Why not?” asked the stranger.
+
+“Because,” said Mr. Bering, “Chicago is the Second City, not the Tent.”
+
+## Chapter 24
+### My Divorce Trial
+
+The day of my divorce hearing dawned bright and clear. By the time court opened, it was just right for the spectators, but a little warm for the litigants. The vast crowd was on hand early and appeared highly entertained at the antics of the rival bands. The twelve thousand co-respondents named by me made a tremendous hit when they marched into the court-room, stopped and formed a C and pointing at my wife, sang their alma mater, “Yes Sir,” That’s! My Baby!
+
+Hugga and I were called to the centre of the room, where we first shook hands and then cut for positions. Hugga cut the high card and chose to sit near the west window, where there was a slight breeze. The officials were Judge Ogle, Attorney Dumb for me, the plaintiff, and Attorney Wheedle for Hugga, the defendant.[^51]
+
+A transcript of the testimony will best show what a raw deal I got. The only witness was Clena Sheets, a chambermaid in the Baldwin Hotel at Curve, Tenn.
+
+Direct examination by Attorney Dumb:
+
+Q. Did you ever see this defendant? A. Yes.
+
+Q. Where? A. Who?
+
+Q. This defendant. A. I seen her at the Baldwin Hotel, in Curve.
+
+Q. Who? A. This defendant.
+
+Q. Was she alone? A. Why, I suppose so. I don’t think they ever was a time when we had more than one guest.
+
+Q. Did you know she was married? A. I know she wasn’t. She had a single room.
+
+Q. What was the number of her room? A 502,
+
+Cross examination by Attorney Wheedle:
+
+Q. Miss Sheets, how is it that you remember the number of this defendant’s room? A. I remember it because it’s the only room in the hotel.
+
+Q. If there is only one room, in the hotel, why is it numbered 502? A. That’s his favorite number.
+
+Q. Who? A. Jack Downey, who runs the hotel.
+
+Re-direct examination by Attorney Dumb:
+
+Q. Miss Sheets, you are under oath and you will find it to your advantage to tell the truth. Kindly give the honest reason why the only room in your hotel is numbered 502. A. All the other rooms were burned up in the big fire.
+
+Q. Leaving only Room 502 standing? A. That’s right.
+
+Q. Was Room 502 on the fifth floor? A. Where and the he‑ll do you think it would be? (Laughter.)
+
+A. And were the office floor and the mezzanine and all the rooms below, above and on the same floor as 502 destroyed by the fire? A. Yes. (Catcalls.)
+
+Q. And Room 502 alone was unscathed. How do you account for that? A. I have nothing to do with the accounting. That is attended to by the bookkeeper. (Bird calls and bugle calls.)
+
+Q. Was this defendant in Room 502 at the time of the fire? A. Yes.
+
+Q. How do you know? A. If she wasn’t, she’d of been burned. (Violins, violoncellos, etc., pizzicato.)
+
+Q. Have you ever seen any of these co-respondents? A. Yes, all of them.
+
+Q. Where? A. In the writing room of the hotel.
+
+Q. What were they doing? 4. Co-responding. (Cries of “Goodness!” and “Touchdown! Touchdown!”)
+
+Judge Ogle: “It seems to me that this defendant proved herself a woman of extraordinary acumen in selecting the only fireproof room in the hotel. If she had used half as sound judgment in choosing a husband, the less said about it the better. The court finds for the defendant, awards her $12.00 per week alimony, a Colonial house within walking distance of a golf course, half a mile from the railroad station, five master bedrooms, three baths, four servants’ rooms with bath, three-car garage, electricity, water and gas, and might add that if she has no engagement for this evening, why neither has the court.”
+
+Thus ended my first marital venture and I will state here that I bear no ill will toward Hugga, who, I am told, is doing very well as an elevator starter at the Olympic Games.
+
+## Chapter 25
+### Even Judge Ogle Smiled
+
+In recounting the trial I forgot to include a couple of examples of the sparkling repartee between counsel for the opposing sides, which, I believe, are well worth publication. At one stage of the proceedings, my lawyer, Attorney Dumb, made the remark that Hugga’s lawyer, Mr. Wheedle, looked as if he had forgotten to shave that morning.
+
+“So do you!” replied Attorney Wheedle without an instant’s hesitation.
+
+“I’ll bet your wife wishes she was single,” said Attorney Dumb.
+
+“Yours is!” retorted his opponent.
+
+Not long after this tour de force Mr. Wheedle objected to Mr. Dumb’s habit (amounting almost to a knack) of snapping the various court attendants’ suspenders. It really was annoying, both to the attendants and the rest of us; the noise was deafening.[^52]
+
+“If the court pleases,” said Mr. Wheedle, “I believe this trial could be gotten through with a great deal more pleasantly if counsel for the plaintiff would pay less attention to the attendants’ suspenders.”
+
+“I presume counsel for the defense wears a belt,” retorted Mr. Dumb sarcastically.
+
+“I would like to belt you in the jaw!” exclaimed Mr. Wheedle.
+
+“You look like a horse!” said Mr. Dumb.
+
+“Is that why you keep riding me?” asked Mr. Wheedle.
+
+Even Judge Ogle could not suppress a smile, but quickly recovered his dignity and pounded on his desk with dental floss.
+
+This badinage probably had no effect on the outcome of the trial, but as a result of it, the two attorneys were later persuaded to give up the profession of law and join the staff of the *Harvard Lampoon*.
+
+Like Jack Dempsey, I became popular in defeat and when I returned to New York I found awaiting me an invitation to attend an exclusive luncheon at the Plaza in honor of the Queen of Roumania. Those excluded were the assistant bell captain and Joe Muriosi of the men’s washroom.
+
+I found Marie a woman of a ready quick wit, a woman who spoke Roumanian with only a trace of accent. She was plainly dressed in a Mother Hubbard and Plus Fours.
+
+“Po’k chops; dat’s ma dish,” she said to the waiter. “Bring me some o’ dem po’k chops and sweet potato. An’ make de po’k chops nice an’ brown. Nice, brown po’k chops is somethin’ Marie don’t like nothin’ else but.”
+
+“The watermelon is good today,” suggested the waiter.
+
+“Oh, dat watahmelon! Oh, dat watahmelyon hangin’ on de vine!” sang her majesty, beating time with an oyster opener.
+
+After dessert, the head porter introduced Col. William Grenfall, who helps open taxi doors at the Fifty-eighth Street entrance.
+
+“Friends,” said Col. Grenfall, “it is a coincidence that royalty should visit America in this year of all years, the year of the Sesquicentennial Exposition as well as the hundredth anniversary of the *Youth’s Companion*. This reminds me of a story told me last night by my good friend Junius Gabbett who calls trains at the Grand Central Station.”
+
+“What does he call them?” interrupted the Queen.
+
+“Trains,” replied Col. Grenfall with an amused smile. “You will stop me, I trust, if you have heard the story before. It seems there were⁠—”
+
+Col. Grenfall was paged at this point; it developed there was a taxi at the Fifty-eighth Street entrance and the door stuck.[^53]
+
+The Queen, responding, said the only disturbing feature of her trip had been the announcement of the athletic break between Harvard and Princeton, which had apparently plunged the entire country in gloom and which she called the most important event in United States history since Marc Connelly, playing alone at Coldstream, missed a putt that would have given him a 124.
+
+## Chapter 26
+### I Revolutionize Theatre Business
+
+My memoirs are now drawing to a close. (Cries of “Touchdown! Touchdown!” and “We want Borah!”) But it would be little less than criminal were I to complete the story of my life without explaining why I selected Great Neck, Long’s Island, as the place to end my days. My second wife, a tall, gangling Swiss girl named Emma Geezle, whose father had made his money in Alpine stock, said she had lived all her life in a little haunch at the corner of Broadway and Forty-second street and she was sick of the bright lights.
+
+“Take me,” she said, “to some town where we won’t be dazzled by the lights.”
+
+So I asked a prominent realtor to recommend a town where there would be no danger of being blinded by electricity.
+
+“Great Neck,” was his reply. “You will find that some of the people out there get lit up quite often, but the houses hardly ever. If the weather report reads ‘Cloudy,’ or ‘Light southwest winds,’ the current becomes so affected that many a wife, attempting to dress for a party, has found herself frantically trying to complete her accouterment by donning a wing collar and a dinner jacket.”
+
+So Emma and I bought ourselves a love nook in Great Neck, christened it “The House of a Dozen Candles” and are now devoting most of our time to keeping the house in order, no small task when your menage consists of five servants, six children, four rooms and bath, a police dog, three mechanics and a full-grown leopard.
+
+In my spare moments I devised a scheme which for a time revolutionized the musical comedy business in New York. In those days it was customary for producers of revues and other musical plays to seek to attract patronage by having their performers wear hardly any costumes.
+
+The tights worn by chorus girls in old time burlesque shows came to be regarded as too cumbersome and various committees on public morals were at their wits’ ends for methods to compel the theater men to observe what they called the elements of decorum and attire their dancers and coryphees in something more tangible than a square inch of gauze.
+
+It was Mayor Walker who called me in to make suggestions. After a day’s thought I concocted the following plan: To make it compulsory for all members of the audience to disrobe utterly before entering the theater.
+
+At first, the Mayor could not see that this would make matters any better, but I quickly convinced him. As soon as the ordinance was passed, attendance at shows fell off so lamentably that most of the productions were obliged to close. It was really surprising, even. to me, to note the number of citizens who refused to undress before presenting their seat checks to the ushers. Most of them complained that the play houses were too drafty.
+
+At any rate, the producing managers’ association soon petitioned the Mayor to have the ordinance wiped off the books and a compromise was readily effected whereby the audiences were permitted to remain clothed again provided the actors did likewise.
+
+A banquet was given with me as the guest of honor and David Belasco, often referred to as the Master because he occupies the Master’s bedroom at the Belasco home, presented me with a lock of his hair.
+
+In the concluding chapter I will tell of my declining years in Great Neck and the accident that resulted in my death.
+
+## Chapter 27
+### A Post-Mortem Message
+
+Before recounting the accident, it will be necessary to describe the locale of our Great Neck home and to name and picture a few of our then neighbors. As is perhaps known to a few of my less dumb readers, Great Neck is something of a literary and theatrical center.
+
+Not far from us, on Cow Lane, lived Ed Streeter, author of the “Dere Mable” letters, for which I received many congratulations. In “the Estates” resided Sam Hellman, writer of short stories and inventor of the popular dessert, “Rind Wine,” consisting of watermelon soaked in champagne.
+
+Up the hill was the home of Gene Buck boasting a living room of such dimensions that fifty or one hundred guests often visited the Bucks in a single evening, each thinking he was the only one that had come. Mr. Buck had formerly lived in a hovel of sixteen rooms, but when the first baby came, decided it was necessary to branch out. A second little Buck has since been added to the family and Gene is negotiating for the purchase or rental of the Paramount Building.
+
+Our next door neighbors in the summer time were the H. B. Swopes. H. B. (Silent) Swope was the executive editor of The New York *World*. He and his madam had Company every week-end, Company being used in the military sense, full strength.
+
+It got noised about that Emma and I had chow every Sunday about one o’clock and three or four platoons of our neighbors’ Company, having gone breakfastless owing to the sleeping prowess of mine host and hostess, acquired the quaint habit of dropping in at our haunch at about that hour and making complimentary remarks about our children. When this ruse had been seen through at the expense of several fragments of chicken and cups of coffee, Emma stamped out the practice by posting a sign which read, “Try Our Table d’hôte $3.00.”
+
+In other parts of our village lived Bobby North, of the original Floradora Sextette; Ed Wynn, female impersonator; Raymond Hitchcock, soft shoe hoofer; Joe Santley, trap and drums; Arthur Hopkins, eccentric dancer; Sam Harris, the bridge authority; Ernest Truex, the Welsh comic; Oscar Shaw, gigolo; Frank Craven, the Tattooed Man; Bob Woolsey, proprietor of the Flea Circus; Tad Dorgan, designer of farm implements, and Thomas Meighan, “Is It a Man or Wolf?”
+
+To say nothing of one of the Marx Brothers, who had recently bought a house, and Eddie Cantor, who had done the same and it was said that neither of them had come anywhere near paying cash.
+
+It was doubtless as a result of this environment that the thing happened to me. I got up one morning and after my customary plunge down the staircase, I took my finger exercises, consisting of pointing first one finger and then the other at my wife. She made the remark that it would be a nice day to go out in the bay and fish for hake.[^54]
+
+Getting into my rowboat, I put ona No. 2 bait, a combination of a cockroach and the kind of salad they serve you in hospitals. I thought perhaps a hake would eat it, as nobody else would. I had hardly made my first cast when⁠—[^55]
 
 ## Footnotes
 
@@ -890,7 +1077,7 @@ Author’s note: The author meant what he said. Pearson was a notorious quack.
 
 [^43]:Editor’s note: There is that word again.
 
-[^44]:Author’s note: At this point I wish to correct an error that was made by the New York newspapers in their account of the wedding. I was repeatedly referred to as the groom, though I have had nothing to do with the care of a horse since I was twelve years old, and then only as a favor. The mistake probably was due to a misunderstanding by an Associated Press reporter, who, when my engagement was announced, called up Hugga’s mother, Sitta Much, and asked if she was satisfied with me as a son-in-law. Mrs. Much replied: “I certainly am. He is a hustler.” The reporter, no doubt, thought she said “hostler.” The two words “‘hostler” and “hustler” sound a great deal alike, especially in Eskimo.[^900]
+[^44]:Author’s note: At this point I wish to correct an error that was made by the New York newspapers in their account of the wedding. I was repeatedly referred to as the groom, though I have had nothing to do with the care of a horse since I was twelve years old, and then only as a favor. The mistake probably was due to a misunderstanding by an Associated Press reporter, who, when my engagement was announced, called up Hugga’s mother, Sitta Much, and asked if she was satisfied with me as a son-in-law. Mrs. Much replied: “I certainly am. He is a hustler.” The reporter, no doubt, thought she said “hostler.” The two words “hostler” and “hustler” sound a great deal alike, especially in Eskimo.[^900]
 
 [^900]:Editor’s note: Another amusing incident is told concerning that same telephone conversation. When the reporter first got the bride’s mother on the wire, he said: “Mrs. Much?” and she replied: “Yes. A great deal.”
 
@@ -907,3 +1094,23 @@ Editor’s note: The same spelling.
 
 [^49]:Editor’s note: Presumably Webster.  
 Author’s note: Not related to the Elmira Websters.
+
+[^50]:Editor’s note: My sister Cora, who visited Washington at the time of President McKinley’s inauguration, wrote me that G street was one of the main business thoroughfares.  
+Author’s note: It was, and still is.  
+Editor’s note: It was during this trip that Cora became acquainted with Wayne Pardee.  
+Author’s note: Not *the* Wayne Pardee!  
+Editor’s note: A nephew.
+
+[^51]:*Editor’s note: According to newspaper accounts, Mr. Lardner turned down a suggestion of his counsel’s that the case be tried before a petty jury, saying that if Hugga found out they were the least bit petty, she would insist on a party instead of a trial.
+
+[^52]:Editor’s note: Consult William Holabird on “What Shall We Do With Suspender Snappers”
+
+[^53]:Editor’s note: Probably something the matter with it.  
+Author’s note: Must have been.
+
+[^54]:Editor’s note: There has always been fine hake fishing in the bay on which the Lardner home fronts.  
+Author’s note: Nobody ever caught a hake there yet.  
+Editor’s note: Makes the chance of catching one all the better.
+
+[^55]:Editor’s note: At this point the author’s memoirs are abruptly terminated. The coroner’s jury brought in a verdict of “death by being hit in the stomach by a hake.”  
+Author’s note: Or death from stomach hake.

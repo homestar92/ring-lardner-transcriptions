@@ -162,7 +162,7 @@ Miss Austen wanted to go to Hollywood by way of Pittsburgh, but at that time the
 
 It was about a month subsequent to my affair with Jane that the world was startled by Robert Fulton’s invention of the taxicab. The first taxi now would seem a crude vehicle, but at the time it was hailed as a marvel. It was a sidewheeler and was steered from the rear seat, by the passenger, thus insuring at least, its arrival at the point where the passenger wanted to go. The driver sat in front and warned pedestrians out of the way. He generally did this by cupping his hands to his mouth and shouting, almost continuously, “Halloa! Halloa!” For a while the new conveyances were known as “Halloa cabs.”[^9]
 
-The strain on the driver’s voices was so great that very few of them were able to hold their jobs after a week or two. There was danger of the whole thing falling through because of the dearth of leatherlunged shouters and to obviate this, Fulton invented a musical instrument called the slide trombone and drivers were taught to play Berlin’s “All Alone,” the inference being that the cab wanted the street to itself. The instrument was so constructed that in case the pedestrians did not take warning from the melody, the driver could push the slide to its extreme length and knock them out of the way.
+The strain on the driver’s voices was so great that very few of them were able to hold their jobs after a week or two. There was danger of the whole thing falling through because of the dearth of leather-lunged shouters and to obviate this, Fulton invented a musical instrument called the slide trombone and drivers were taught to play Berlin’s “All Alone,” the inference being that the cab wanted the street to itself. The instrument was so constructed that in case the pedestrians did not take warning from the melody, the driver could push the slide to its extreme length and knock them out of the way.
 
 Fulton’s achievements made him so popular in New York that he was given the keys to the city of Boston and a one way ticket to San Diego. It is estimated that the earnings of his taxicabs had run well over fifty dollars when they were suddenly cut off by the invention of the horse.
 
@@ -175,7 +175,7 @@ I recall once visiting the Saratoga racecourse in the administration of Presiden
 
 The furore over the invention of horses by Thomas A. Edison had no sooner abated than the country was thrown into a new ferment of grape juice by John F. (“Peaches”) Hylan’s discovery of the subway. People who now ride in subways in various cities and complain of strap-hanging, overcrowding, etc., would scarcely believe the facts concerning that first New York subway, or tuber as it was called on account of its resemblance to a potato. Instead of being obliged to pay a nickel apiece for a ride, passengers were sent engraved invitations and the number of same was limited to the seating, or rather, lying down, capacity of the trains; say forty or fifty individuals who expected to be particularly busy at their office on Monday received subway cards for that day; forty or fifty others, whose busy day was Tuesday, were invited to ride that day, and so on through the week.
 
-Each car was equipped with half a dozen four poster beds, half a dozen twin beds, three or four easy chairs and a chaise lounge. Later the twin beds were taken out of the equipment because so few twins seemed to be in business in New York; more correctly, many sets of twins were in business, but not in the same line and not particularly busy on the same day. For example, the Kitchell twins, Howell and Groweil; they both had offices downtown, but Howell was a fishmonger with an exclusive Friday trade, while Growell sold welts and by tacit agreement, out-of-town welt buyers visited New York Mondays only. And it was the same with other sets of twins.[^11]
+Each car was equipped with half a dozen four poster beds, half a dozen twin beds, three or four easy chairs and a chaise lounge. Later the twin beds were taken out of the equipment because so few twins seemed to be in business in New York; more correctly, many sets of twins were in business, but not in the same line and not particularly busy on the same day. For example, the Kitchell twins, Howell and Growell; they both had offices downtown, but Howell was a fishmonger with an exclusive Friday trade, while Growell sold welts and by tacit agreement, out-of-town welt buyers visited New York Mondays only. And it was the same with other sets of twins.[^11]
 
 These early subway cars had straps, stout leather straps, but they were not fastened to the roofs of the cars. They were loose and were used either for sharpening razors or for amusement purposes. Passengers used to play a game called “Have You Heard This One?” Each passenger was required to tell a story and if any of the other passengers had heard it before, the raconteur was given a hiding with the straps. This was where Growell Kitchell picked up most of his welts.
 
@@ -191,7 +191,7 @@ Unlike Jane Austen, who had insisted on visiting the night clubs, Lily wanted to
 
 “No, Lardy,” she would reply.[^14]
 
-So a party of four or five of us, usually consisting of H. L. Mencken, the Marx Brothers, Ward and Vokes, Barnum and Bailey, the Duncan Sisters, the Striblings, the Bison City Quartette, the Happiness Boys and the Four Horsemen, besides myself and the Langtry, would daily engage a corner table at Seventh Avenue and Thirtythird street and, as I have said, enjoy the antics of the tradesmen out for their noon lark.
+So a party of four or five of us, usually consisting of H. L. Mencken, the Marx Brothers, Ward and Vokes, Barnum and Bailey, the Duncan Sisters, the Striblings, the Bison City Quartette, the Happiness Boys and the Four Horsemen, besides myself and the Langtry, would daily engage a corner table at Seventh Avenue and Thirty-third street and, as I have said, enjoy the antics of the tradesmen out for their noon lark.
 
 At length Mayor Walker asked me to take Lil to Atlantic City as she had never seen an auction sale. But it happened that just at this period a law had been passed against auctions, said to be the only law ever passed in New Jersey. So all that the Langtry and I could find to do was walk up and down, walk up and down. I noticed that she grew more and more uninterested and one day she yawned several times and then uttered an exclamation of tedium.
 
@@ -231,7 +231,7 @@ With the team thus strengthened we went on and won the Trinity and Villa Nova ga
 
 I might say in passing that the last named institution beat us by trickery. When we came on the field, our opponents were sitting at various corners with their eyes closed and tin cups in their hands in which passers by were expected to drop coins. I was taken in and would surely have dropped a dime in the opposing captain’s cup had it not been a habit of mine never to carry more money in a game than was necessary to tip the officials. Some of the other boys loosened up, however, and as soon as the cups were filled, the “blind” men opened their eyes with a whoop and proceeded to give us a licking. At that we might have trimmed them if, the night before the game, we hadn’t gone out and got blind ourselves to make it more even. The Weehawken team’s college color was light yellow and this was the origin of the expression blind man’s buff.[^16]
 
-With the approach of Christmas I was swamped with invitations from classmates to spend the Holidays at their homes. I accepted the invitation of Jack Grudge, son of Henry Grudge, then president of U. S. Steel. Grudge pére’s fortune was estimated in the hundreds and Mrs. Grudge was social dictator of New York and Staten Island; no one could claim to have “made” Society until he had been in the Grudges’ palatial town house at West Sixteenth street and the river.[^17]
+With the approach of Christmas I was swamped with invitations from classmates to spend the Holidays at their homes. I accepted the invitation of Jack Grudge, son of Henry Grudge, then president of U. S. Steel. Grudge père’s fortune was estimated in the hundreds and Mrs. Grudge was social dictator of New York and Staten Island; no one could claim to have “made” Society until he had been in the Grudges’ palatial town house at West Sixteenth street and the river.[^17]
 
 There were two daughters in the family, Vera and Bera Grudge, co-eds at Princeton. Vera was a pretty, interesting girl, but Bera, besides always wearing rompers, was what the French would euphemistically call nutté. To whatever remark you addressed to her, she would reply “Sis-Boom-Ah! Tiger!” Her father rented a covey of tigers from the Bronx Zoo and had them there in the house, hoping she would get disgusted with them, but she would lie right down in front of them, look them in the eye and sis-boom them ad Nassaum. Her father said to me one night:
 
@@ -263,7 +263,227 @@ On another occasion Mrs. Stevens told me that another guest, a Mr. Spurl, brough
 
 “Sis-boom-ah! Tiger!” This from Bera.
 
+## Chapter 10
+### A Gay Christmas Eve
 
+Christmas Eve at the Grudges’! No Christmas Eve since has seemed like anything at all. With all their wealth and position, my host and hostess and their children were intensely democratic and their servants joined in the festivities on an equal footing with the family and guests. In fact, Mrs. Stevens (Lydia), the laundress who sat beside me at meals, was quite the life of the party and kept us in spasms of laughter. For example⁠—
+
+“Mr. Lardner,” she said to me as we watched Bera Grudge and the hostler trim the tree, ‘I suppose I may expect a present from you.”
+
+“Yes,” I replied, “and it will be something appropriate for a person of your calling. I am going to give you a cuff in the neck.”
+
+“If you do,” she retorted without an instant’s hesitation, “I will be hot under the collar.”
+
+“Underwear, did you say?” I put in.
+
+“Sis-boom-ah! Tiger!” murmured Bera.
+
+This was before the invention of evergreens and the baubles and candles were hung on a shoe tree.
+
+When the tree had been trimmed, the question arose as to who would hang up the stockings.
+
+“Why not Mrs. Stevens?” I said jokingly. “She certainly ought to be an expert.”
+
+“I’ll hang one on your jaw in a minute,” teased the laundress.
+
+A few moments later, Mr. Grudge, whom his friends called Doc because his home overhung the river, suggested:
+
+“Let’s have some carols.”
+
+“But don’t bring Earl!” said the laundress.
+
+The singing was interrupted by the noise of an infant’s cries upstairs.
+
+“Is that your baby?” I asked Mrs. Stevens.
+
+“Yes, sir,” she replied, and Gus Kahn and Walter Donaldson,[^18] who were at the party, got their idea for a song hit from those two simple lines.
+
+As we were all separating for the Be Mrs. Grudge asked me whether I would care to accompany her and Vera and Bera on a mission of charity early Christmas morning.
+
+“Every Christmas,” said Mrs. Grudge, “the two girls and I visit some worthy poor family and try to take the curse off what would otherwise be for them a dismal day.”
+
+I assured her I would be delighted, so at five o’clock next morning, the four of us set out on a dog sled (This was before the days of surf boards) and drove to the home of an Italian family named Chianti who lived in penury.[^19]
+
+There were fourteen Chianti children, so Mrs. Grudge kissed their father and then handed him an odd-shaped bundle.
+
+“I’ve brought you a bird,” she said, “and I wish you a merry Christmas.”
+
+Afterwards, on the sled, she asked me what kind of bird I thought she had given him.
+
+“Well,” I said, “I suppose a family of that nationality would prefer a guinea hen.”
+
+“Nevertheless,” said Mrs. Grudge, “what I gave him was a gull. He will open the bundle thinking it is a turkey or something else edible, and when he sees what it is, he will tell his kiddies the joke and the laughter will be general all day.”
+
+“Last year,” spoke up Vera, “mother pulled an even better one than that. She gave a great big package to a starving family by the name of Weaf, saying “Here is a goose for you,’ and there was nothing in the package but a picture of Goose Goslin of the Washington ball club.”
+
+“Sis-boom-ah !” commented Bera.
+
+When we got back to the Grudge home, there were three horses in the living room, Doc’s gift to his two daughters and son Jack.
+
+“Oh, father!” shrieked Jack. “Just think! Three of them!”
+
+“A horse apiece,” remarked Mrs. Stevens, peeping in from the laundry.
+
+It was now time to examine the stockings. In mine I found an orange, a flashlight, a mechanical toy (A Negro that did the Charleston), a box of crayons, some candy and a miniature chess set.
+
+“Oh, Mrs. Stevens,” I cried excitedly, “see what I found in my stocking!”
+
+“And see what I found in mine,” she replied.
+
+I looked. It was a run.
+
+## Chapter 11
+### How I Swam the Hudson
+
+The Holidays were over and it was time to go back to Yale, then located, as I have said in a previous chapter, at Lancaster, Pa. The first hazard was the Hudson River, which was quite difficult to cross in those days of no boats. I asked a handsome, big traffic policeman how to set about it.
+
+“Take the Desbrosses Street ferry,” he advised.
+
+At Desbrosses Street and the River, however, I learned that no ferries were running because no boats of any kind had yet been invented. I found out afterwards that the traffic policeman was none other than A. D. Lasker, famous two years later as the designer and builder of the first boat. At the time he spoke to me, he was doubtless so full of his dream of boats that he thought they were already actually in existence.
+
+On the corner of Hudson and Spring Streets, I asked directions of a friendly looking vendor of shoe laces.[^20]
+
+He told me to walk way up past Troy on the East bank of the river, and look for a Ford. After what seemed to me a rather tedious stroll, I passed through Troy and began looking all over for a Ford, but couldn’t find one—or any other kind for that matter. I told my troubles to a farmer, who laughed heartily and said:
+
+“Mon, mon! (He was a Scotchman) Ye are long before ze day of ze automobile. When your New York friend said ‘Ford,’ he meant ‘a place in a river where it may be crossed by wading.’”
+
+Embarrassed and chagrinned, I walked down to the river bank and removed my shoes, stockings and plasters, as this seemed as narrow and shoal a point as any other.
+
+“What’s the idea?” inquired a deep voice which I discovered belonged to a white-bearded old fisherman who was dredging for chocolate covered almonds.
+
+When I told him my plan, he tried hard to discourage me.
+
+“You will never make it. No Yale man ever has, and only five Princetonians.”
+
+“What Princeton can do, so can Yale!” I replied, and sang two stanzas of the Yale song⁠—“Beulah, Beulah!”
+
+Covering myself from head to foot with grease, I stepped boldly into the treacherous stream, which at that juncture is twenty-eight feet wide and knee deep. In less than half a day, I was on the west bank, but wish to state that I owe my success quite as much to the encouragement given me by Whiteman’s orchestra, which accompanied me in a tug, continuously playing ‘Rocked in the Cradle of the Deep,” and ‘Abide With Me,” as to my fine physique and mastery of the crawl stroke.[^21]
+
+Unable to break off the habit all at once, I crawled down to Albany and caught the night boat back to New York.[^22]
+
+From New York, I crossed to Jersey by ferry and decided to enter Princeton, as it was closer and I had heard there were vacancies there on the hockey team and the mandolin eleven. Also I was attracted by the promise of an occasional glimpse of my late host’s daughters, Vera and Bera Grudge, co-eds at Old Nassau.
+
+Our hockey season began inauspiciously. In the first place, the athletic association had neglected to provide a Puck and the local news-stands had sold out. On the opening night of practice, we played with a copy of Godey’s Lady’s Book, but it proved unwieldy. Moreover, it was an open winter in New Jersey and the lake was not frozen over.
+
+“There is no ice,” I said one evening to Bera Grudge, who had inquired how we were doing. ““We ought to have some ice.”
+
+“‘Ring for a bellboy,” was her view of the episode.
+
+Perhaps I ought to explain, before proceeding, that hockey was not played quite the same in those days as it is now. The players numbered only two and their positions were, respectively, Go Way Back and Sit Down. The records will bear me out when I say that I was best Sit Down Princeton ever had, not even barring F. Scott Fitzgerald.
+
+Our first big game that season was with Wesleyan and we lost it by default, both my teammate, Carson Hull (later known as Big Bill Edwards), and I forgetting all about it. Some of the undergraduates got very angry at us for this, and for many days, every time we would appear on the campus, they would point at us and shout: “You bad men, you!”
+
+
+## Chapter 12
+### I Transfer from Princeton to Medicine
+
+After the Wesleyan game fiasco, there was some talk of firing myself and Big Bill Edwards off the team and selecting other players to represent Princeton at hockey, but this idea was given up when it was found that we were the only two men in college who had skates.
+
+Our second game was with my former alumna, Yale, and Big Bill, who was then known as Hull on account of his resemblance to that part of a ship, broke it up the moment he stepped on the ice. The balance of the hockey season was spent trying to get him out of the lake, where the fish were making vigorous complaints about the congestion. The lake was called Lake Carnegie after the library of that name, it being used as a receptacle for the students’ books.
+
+Owing to my success on the mandolin club, where I played E string on one of the banjos, my name came to the ears of the Dean.
+
+“Have you registered?” he asked.
+
+“No,” I replied.
+
+“Well,” said Dean Cornwell, “you register and we'll fix you up the best we can. But you can’t have a bath because there is an Odd Fellows’ convention here this week.”
+
+“What is his name?” I asked. ‘‘And why does he object to people’s having baths?”
+
+The Dean was greatly amused at my simplicity and in after years we met again and got a hearty laugh out of the episode.[^23]
+
+Dean Cornwell next inquired regarding my choice of a course.
+
+“Well,” I said, “six thousand yards is plenty if it’s well trapped.”
+
+Once more I had displayed my naiveté and the Dean was in hysterics.
+
+“Lardner,” said he, “‘I wish you would stay at Princeton all your life. You are a yell!”[^24]
+
+Aided by the Dean’s influence, I soon became a member of the Dekes, the Alpha Delts, the Phi Beta Kappas, the Kiwanis, and Realty Board and was rushed by the Triangle Club, the most exclusive of Princeton’s social organizations. They rushed me as far as Trenton and then relinquished the chase on my promise to enter the University of Illinois.
+
+At Illinois I took up the study of medicine, a six months’ course in those days, unless you were bright. Among my classmates were Harold (Red) Grange, L. M. (Mike) Tobin, C. C. (Chamber of Commerce) Pyle, and Fred (Peaches) Nymeyer. Illinois had the right idea about that bane of most medical students’ existences⁠—anatomy. It was the custom at that time for the instructors to employ some prominent undergraduate or alumnus and dissect him with a view to showing, for the pupils’ benefit, his general structure and the location and function of his various organs.
+
+Yale, for example, used Mr. Taft and it took two years to go all over him, even in a hurry. And the same at Michigan, where Germany Schulz was selected as the subject. At Illinois, on the other hand, we dissected one of Singer’s Midgets and got through the course in one day, with an hour off for glee club rehearsal.
+
+I was graduated in medicine and awarded my M. D. after only two months of study; moreover, I passed the final examination with a perfect mark of 100 and still have a copy of the questions and answers of that examination, which may be of interest to medical students and practicing physicians of the present day:
+
+Q. Where is your appendix located? A. In Washington Park Hospital, Chicago, unless the cleaning woman has been in.
+
+Q. How does the stomach act when you eat regularly? A. Surprised.
+
+Q. What has been your hospital experience? A. Terrible.
+
+Q. What would you do in a case of an epileptic fit? A. Call a doctor.
+
+Q. What would you do if somebody had a stroke? A. See that they counted it.
+
+## Chapter 13
+### My Medical Career
+
+Most young doctors make the mistake of hanging out their shingles in large or small cities where there are already more medicos than can earn a comfortable living. At the time I received my degree, automobiles were just coming into vogue and after giving the subject considerable thought, I evolved the following scheme⁠—to establish a gasoline station on a popular motor highway, far from any town; to run a restaurant in connection with it, and to keep secret_the fact that I was an M. D. I selected a site halfway between Kansas City and Pittsburgh, put up two gasoline pumps and an attractive roadhouse and painted a sign, “Filling Station for Man and Motor.” The sign itself amused everybody.[^25]
+
+For a wage of four dollars a week, I hired a fifteen-year-old boy who, in infancy, had fallen through an open stopper in a wash basin and spent a week in the waste pipe, and ever since had had a horror of water in any form. By now he was so soiled and blurred that people began to languish the instant they saw him.
+
+It was Roach’s (this boy’s) task to stand out in front by the gasoline pumps and as soon as customers stopped for gas, got a good look at him and started to droop, he would say, “Madam, or Sir (as the case might be), you ain’t well. Fortunately, there is a doctor stopping with us,” whereupon I would be summoned and would minister to my patient or patients, charging huge fees and getting away with it because Kansas City and Pittsburgh, the nearest points where another doctor might be reached, were so far distant. The only trouble with my plan was that my patients treated me as they would their own doctor and did not pay cash, but asked me to send them my bill, and invariably they gave me fictitious names and addresses. Occasionally, however, one of them paid for a meal and at the end of the first two months, my books showed a profit of $4.50, not counting the $20.00 which I owed Roach.
+
+With this stake I moved to Chicago and rented a suite of offices at the corner of Madison and Paulina Streets, then the heart of the shooting belt. The suite comprised a reception room and a silo. There was no need of a consultation or operating room because by the time my patients reached the outer door, they were so full of stray bullets that it was too late to do anything but identify them. I made my money by keeping them in the silo until a reward was offered for information as to their whereabouts. Sometimes it was years or even never, owing to a way Chicago husbands and wives had in those days of leaving home on interminable bats, and as a rule, the party left behind either took the prolonged absences as a matter of course or was not aware of same.
+
+The following incident is typical of the Chicago of that time:
+
+A boy named “Hi” Fever was trying to acquire enough money to attend college by selling subscriptions to “Risky Stories.” His father had suggested that he call on one L. H. Tweek. The boy rang the doorbell at the Tweeks’ and Mrs. Tweek answered it. “Hi” asked if her husband was at home.
+
+“I don’t know,” replied Mrs. Tweek. “I have a vague recollection that he said something about going to the ‘Follies’ opening at the Colonial.”
+
+“But,” said the Fever boy, “that show’s opening was in December and it is now August.”
+
+“Is it?” exclaimed Mrs. Tweek. “Well, in another month we can have oysters again!”
+
+My silo was finally filled to overflowing by unclaimed cases and it seemed advisable to move to another part of town. I put up a tent in Grant Park and hung out a shingle inscribed, ‘“‘Surgeon. Cold Cuts a Specialty.” The park was always popular with employees of Loop offices and department stores during their lunch hour and thousands of them took advantage of the opportunity to enjoy their midday meal and undergo some necessary operation at the same time. The potato salad which I served with the cold cuts was covered with a sort of ether dressing and from each patron I managed to remove at least his tonsils without his being any the wiser. A certified public accountant once estimated that if all the tonsils I cut out during lunch hours were laid end to end, it would be a nuisance.
+
+I was now nineteen years of age and thinking of getting married. I consulted a friend of mine, Dr. Flip.
+
+“Dr. Flip,” I said, “I was thinking about getting married.”
+
+“I wish I had,” was his reply.
+
+“What? Got married?”
+
+“No,” he said. “Just thought about it.”
+
+## Chapter 14
+### My 2 Big Inventions
+
+America was now taking its place with the rest of the world in the arts and sciences and the year 1899 saw two great inventions, by citizens of the United States, which were universally hailed as revolutionary and daring. The first of these was the invention of the straw, by Paul Whelton, a Boston newspaper man. Mr. Whelton worked on the paper nights and in the daytime held a position as lifeguard at Revere Beach. In those days the Atlantic Ocean in the vicinity of Boston was way over your head and Revere bathers were being drowned by the thousands despite the courage and resourcefulness of Mr. Whelton and his two assistants, Nick Flatley and Mel Webb.
+
+The chief lifeguard sat on the beach day after day, for months and months, watching the drowners drown and trying to figure out what was the matter. The idea came to him all of a heap.
+
+“The idea came to me all of a heap,” was the way he afterwards expressed it.
+
+It occurred to him all of a heap that as each drowner was drowning for the third time, he seemed to appear to be clutching. And there was nothing to clutch at!
+
+“If they just had something to clutch at!” thought Mr. Whelton, and that night, as he worked at the copy desk in the newspaper office, he thought suddenly of a straw, and the problem was solved.
+
+Resigning from the paper, he started the quantity manufacture of straw and in a few days appeared on the beach with an armload of the new commodity. As each bather came out of the bath-house, Mr. Whelton approached him in a friendly way and said, smilingly: “Have a straw.”[^26]
+
+People kept on drowning, but it was soon established that there was less danger if they bathed in straw stacks than in the ocean.
+
+Mr. Whelton would not take money for the straws doled out for clutching purposes, but he soon found two other uses for his invention in which his conscience did not prevent acceptance of financial return. He began selling straws to the weather bureau and to sailors, outfielders and golfers, so they could tell which way the wind was blowing. And also, along about this time, the sport of camel hunting became quite popular through New England. “The ship of the desert” was very good eating as well as sufficiently foxy and elusive to make the pursuit interesting. New England camels, however, were deathly afraid of horses, horses, horses and you had to hunt them on foot.
+
+And after you had walked miles and miles for a camel and finally caught up with him, there was no sure way of bringing him down. He scoffed at bullets, sniggered over knife thrusts and turned up his nose at lethal poisons. After endless experimenting by the wealthy nimrods of Beacon Street, Brookline and South Boston, it was found that a straw would reek havioc with his vertebrae, and Mr. Whelton’s fortune was made.
+
+The other invention of that year was the telephone. They are still trying to find the guy.
+
+The first telephone exchange had only one number, Central 1. All the subscribers had to take that for their number and when you called up, there was no telling whom you would get.[^27]
+
+There was no rate by the month, each subscriber being charged a nickel per call. It made interesting gambling, dropping your nickel in the slot and then waiting to find out who would answer; if you expected, for example, to talk to, say, Flo Ziegfeld and a sweet voice at the other end of the line announced ‘This is Neysa McMein,” or “‘This is Florence O’Denishawn,” you had the same thrill as when a 50 to 1 shot which you have bet on at the track finishes first. Personally I always played in tough luck. I would call up Marilyn Miller and get Heywood Broun; or try for one of the Dolly Sisters and obtain Percy Hammond. It was an outrage.
+
+The nickel a call system lasted until the repeal of the law preventing women from talkmg to one another. When women were at length permitted to call each other up, the company went into the hands of a telephone receiver because it was taking in only five cents a day.
+
+In 1900, Robert Fulton invented and tried to introduce the automatic or dial telephone. His invention was turned down, unwillingly, by the phone trust in compliance with a petition from people in the then infantile motion picture industry, who argued that the strain of attempting to learn the alphabet would reek havioc with their Art.
+
+## Footnotes
 
 [^1]:Editor’s note: This must be a mistake. In 1891, Paul Whiteman was only a year old.  
 Author’s note: It was a different Paul Whiteman.  
@@ -312,3 +532,27 @@ Author’s note: The h‑ll I do!
 Author’s note: So is your old man.
 
 [^17]:Editor’s note: This house is now occupied by the Cunards.
+
+[^18]:Editor’s note: Kahn and Donaldson claim they were not there.  
+Author’s note: Were too!
+
+[^19]:Editor’s note: A suburb of Brooklyn.
+
+[^20]:Editor’s note: This was undoubtedly Mary Lewis.  
+Author’s note: No. It was a man.  
+Editor’s note: My mistake.
+
+[^21]:Editor’s note: Mr. Lardner was the first to employ the crawl stroke, covering the entire twenty-eight feet on his hands and knees.
+
+[^22]:Editor’s note: Boats had, by this time, been invented.
+
+[^23]:Editor’s note: *I* didn’t.
+
+[^24]:Editor’s note: If Lardner had stayed there all his life, which he would have done if he had waited for his degree, he doubtless would have become known as the Princeton yell.
+
+[^25]:Editor’s note: Not me.
+
+[^26]:Editor’s note: Haverstraw, New Jersey, is said to have been named after Mr. Whelton.
+
+[^27]:Editor’s note: This is still true today.  
+Author’s note: You spoke a full quart.

@@ -141,8 +141,7 @@ They won't stop at anything when they're starving."
 ---
 
 "I think they'd stop at Myrtle," said Tod. "She's tough."
-"Th
-at's a nice way for a father to speak of his
+"That's a nice way for a father to speak of his
 child! A dear child like Myrtle!"
 
 "Myrtle's a dear child, all right," Tod conceded, "and

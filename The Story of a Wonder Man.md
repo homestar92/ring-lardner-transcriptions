@@ -5,13 +5,13 @@ The publication of this autobiography is entirely without the late Master’s sa
 
 Some of the copy was so badly charred as to be illegible. The ghouls took the liberty of filling in these hiatuses with “stuff” of their own, which can be readily distinguished from the Master’s as it is not nearly as good. Readers and critics are therefore asked to bear in mind that those portions of the book which they find entertaining are the work of the Master himself; those which bore them or sound forced are interpolations by milksops.
 
-Another request which I know the Master would have wished me to make is that neither reader nor critic read the book through at one sitting (Cries of “‘Fat chance!” and ‘‘Hold ’em, Stanford!’’). It was written a chapter at a time and should be perused the same way with, say, a rest of from seven weeks to two months between chapters. It might even be advisable to read one chapter and then take the book back to the exchange desk, saying you had made a mistake.
+Another request which I know the Master would have wished me to make is that neither reader nor critic read the book through at one sitting (Cries of “Fat chance!” and “Hold ’em, Stanford!”). It was written a chapter at a time and should be perused the same way with, say, a rest of from seven weeks to two months between chapters. It might even be advisable to read one chapter and then take the book back to the exchange desk, saying you had made a mistake.
 
-Mr. Lardner’s friends will regret that he omitted from these memoirs reference to his encounter with Mussolini, the Tiger of France and Italy. The two happened to be occupying the same compartment on “The Dixie Flyer”’ between Cannes and Mentone.
+Mr. Lardner’s friends will regret that he omitted from these memoirs reference to his encounter with Mussolini, the Tiger of France and Italy. The two happened to be occupying the same compartment on “The Dixie Flyer” between Cannes and Mentone.
 
 “Great golf weather,’ remarked the Tiger.
 
-“I beg your pardon,” replied the writer. “‘Je ne parle pas le Wop.”
+“I beg your pardon,” replied the writer. “Je ne parle pas le Wop.”
 
 I forget what else happened.
 
@@ -68,7 +68,7 @@ In March, 1891, a few days before my sixth birthday, the postman brought an invi
 
 The invitations were always purposely sent out so late that only people who lived right near Seattle could hope to get there in time, and they were not invited. You may imagine that our home was a scene of bustling activity from the instant the card reached us till it was time to board the train for Duluth. I was taken along because there was no one to leave me with, and to help open the car windows.
 
-We left Niles at noon on the third day of March and did not reach Duluth till the morning of the sixth. This was before the era of patent couplers and the cars of a train were fastened to one another with gay ribbons. (It was in 1895 that the Santa Fe adopted hooks and eyes.) The result was that every mile or so, the engineer would feel a lightening of the pull on his “‘iron horse” and would find on investigating that two or more cars or even the entire train had been left far behind, in fact four hours after the ““start”’ of the trip it was discovered that the engine was way up in Wisconsin while the train was still standing in the station at Chicago with the conductor hoarse from shouting “What’s the matter?”
+We left Niles at noon on the third day of March and did not reach Duluth till the morning of the sixth. This was before the era of patent couplers and the cars of a train were fastened to one another with gay ribbons. (It was in 1895 that the Santa Fe adopted hooks and eyes.) The result was that every mile or so, the engineer would feel a lightening of the pull on his “iron horse” and would find on investigating that two or more cars or even the entire train had been left far behind, in fact four hours after the “start” of the trip it was discovered that the engine was way up in Wisconsin while the train was still standing in the station at Chicago with the conductor hoarse from shouting “What’s the matter?”
 
 Everybody felt kind of blue when we arrived in Duluth at last and realized that we were already thirty-six hours late for the ball and with at least three weeks separating us from Seattle. Some were in favor of returning at once to Niles, but wiser counsel prevailed and we prepared to complete the trip in the hope that the difference in time between Minnesota and the Coast would work to our advantage.
 
@@ -79,7 +79,7 @@ The trip from Duluth to Seattle was rather uneventful and can be dismissed in a 
 
 So many of the other guests had been tipped off to the sled gag that all but one of the dogs in Duluth were already chartered by that time, so we had no choice but to engage the remaining one, which turned out, to his mother’s surprise, to be a four months old Sealyham. We hitched him up to two sleds, the front one for our party and the trailer for suit-cases, mess kits, golf bags, etc. We were insured against thirst by Uncle Walrus, who in playing thirty-six holes of golf during our stay in Duluth, had luckily acquired a handful of water blisters.
 
-It was a gay crowd for the first two hundred miles. My sister Ann, an accomplished musician though otherwise an oaf, played chords on the dulcimer to such songs as “Promise Me,” “‘Killarney” and “‘What’ll I Do?” and my fresh young voice made the welcome ring and the Ring welcome all through the Dakotas. We stopped for the night at Bismarck, where my little brother Croup insisted on fishing for herring. Luck was with us and we didn’t have a bite, though the Sealyham kept scratching himself.
+It was a gay crowd for the first two hundred miles. My sister Ann, an accomplished musician though otherwise an oaf, played chords on the dulcimer to such songs as “Promise Me,” “Killarney” and “What’ll I Do?” and my fresh young voice made the welcome ring and the Ring welcome all through the Dakotas. We stopped for the night at Bismarck, where my little brother Croup insisted on fishing for herring. Luck was with us and we didn’t have a bite, though the Sealyham kept scratching himself.
 
 Next morning the latter began to complain of glanders, brought on, he said, by working like a horse, and it was a relief to him and the rest of us when Uncle Walrus and Aunt Chloe and their two children died of exposure and had to be pushed off the sled. With the load thus lightened, we made Butte the second night and registered at the Montana-Biltmore, where Jack Bowman was then head bell beagle. News got out that I was in the city and the fire whistle blew from eleven o’clock till ten minutes after. We learned in the morning that it was just a grass fire.
 
@@ -89,7 +89,7 @@ On Saturday night, March 9, we arrived in Seattle and found with joy that, throu
 
 I was recognized by Texas Guinan, led to the middle of the floor and introduced to Mrs. Madison. “And,” said the latter, “I want you to shake hands with my partner, whom I have nicknamed the Georgia Clinging Vine.”
 
-Without thinking, Stribling loosened his hold with his right arm to shake hands with me and Miss Guinan at the same time grabbed his left and jerked it away. Mrs. Madison was free and I whirled her away to the strains of ‘‘Nervous Breakdown.” Paul Whiteman[^1] was leading the orchestra.
+Without thinking, Stribling loosened his hold with his right arm to shake hands with me and Miss Guinan at the same time grabbed his left and jerked it away. Mrs. Madison was free and I whirled her away to the strains of “Nervous Breakdown.” Paul Whiteman[^1] was leading the orchestra.
 
 “Well, Mrs. Madison,” I said, “you look kind of peaked. You look like you was suffering from the grip.”
 
@@ -121,7 +121,7 @@ It was now that the Spanish war broke out and I enlisted as a general.
 
 The chief difficulty about the Spanish war lay in finding out where it was being held. The censorship was so strict that even we who had enlisted as generals were kept in the dark as to the location of hostilities and there was some talk of mutiny unless the government came across and at least confided in us whether to march our divisions north, south, east or west.
 
-It was all right to have some civilian come up to you and say “How is the war, General?” because then you could reply, “Fine, thank you,” but when they asked you “Where is it?”’ that was a horse with another collar. We all had to have two sets of uniforms, white for home and gray for traveling, because there was no telling if the battles were to take place at our park or on the road.
+It was all right to have some civilian come up to you and say “How is the war, General?” because then you could reply, “Fine, thank you,” but when they asked you “Where is it?” that was a horse with another collar. We all had to have two sets of uniforms, white for home and gray for traveling, because there was no telling if the battles were to take place at our park or on the road.
 
 While we were still in this chaotic state, three big pieces of news reached Chicago on successive days⁠—one that Grant had taken Vicksburg, the second that Admiral Farragut had vanquished the Spanish fleet in Manila Bay, and the third that General Miles had surrendered to Lee Shubert at Appomattox. The war was over and there was such a divergence among the opinions of the fight experts that no historian has a right to say who win.
 
@@ -135,7 +135,7 @@ It was owing to these conditions that I made the acquaintance of Professor Ashle
 
 “Through the nose,” replied the pedagogue, calling long distance. “But I thought you would want to talk to me about biology, as I am Professor of Biology at the University of Chicago.”[^7]
 
-“All right, Prof.,”’ I said. “What do you think of biology?”.
+“All right, Prof., I said. “What do you think of biology?”.
 
 “It’s a wonderful idea,” replied Prof. Snoot, “but can they enforce it? We have had it now since January 1920, and they tell me there is more drunkenness than ever; why, I understand that women, who never drank before, are now insisting on a cocktail before dinner.”
 
@@ -148,7 +148,7 @@ We were now entering the station at Washington. In those days all trains stopped
 ## Chapter 6
 ### How I Threw Big Party for Jane Austen
 
-It was at a petting party in the White House that I first met Jane Austen. The beautiful little Englishwoman had come to our shores in response to an attractive offer from the Metro-Goldwyn-Mayer people, one of whose officers had spelled out her novel “‘Pride and Prejudice” and considered it good material for a seven reel comedy. Syd Chaplin was at that time with this firm and was slated for the title rôle.
+It was at a petting party in the White House that I first met Jane Austen. The beautiful little Englishwoman had come to our shores in response to an attractive offer from the Metro-Goldwyn-Mayer people, one of whose officers had spelled out her novel “Pride and Prejudice” and considered it good material for a seven reel comedy. Syd Chaplin was at that time with this firm and was slated for the title rôle.
 
 Miss Austen had a few weeks’ time to spare before she was due in Hollywood and it fell to my lot to entertain her. I postponed my engagement with President Pierce, whom I intended to interview in regard to my pension as general in the Spanish war, and placed myself entirely at the disposal of the little authoress. She expressed a desire to see the night life of New York and I organized a party to visit Texas Guinan’s. In the party, besides myself and Miss Austen, or Janey as we called her, were Brinck Thorne, then captain of the Yale football nine, and Harry Wills.[^8]
 
@@ -170,11 +170,98 @@ Horses were very uncertain at first. For example, you would bet on one that was 
 
 I recall once visiting the Saratoga racecourse in the administration of President Fillmore and meeting a man named Bud Fisher, a portrait painter and fancier of horse flesh. He had just paid $12.00 or $12,000, I forget which, for a horse named Hyperion, had engaged a star jockey, Earl Sande, to ride him and advised me and other acquaintances to bet on him. We followed the advice, and the horse ran a very good race, but the jockey was left at the post, sitting in the middle of the track. It was quite laughable.
 
+## Chapter 7
+### New York‘s Noon Life
 
+The furore over the invention of horses by Thomas A. Edison had no sooner abated than the country was thrown into a new ferment of grape juice by John F. (“Peaches”) Hylan’s discovery of the subway. People who now ride in subways in various cities and complain of strap-hanging, overcrowding, etc., would scarcely believe the facts concerning that first New York subway, or tuber as it was called on account of its resemblance to a potato. Instead of being obliged to pay a nickel apiece for a ride, passengers were sent engraved invitations and the number of same was limited to the seating, or rather, lying down, capacity of the trains; say forty or fifty individuals who expected to be particularly busy at their office on Monday received subway cards for that day; forty or fifty others, whose busy day was Tuesday, were invited to ride that day, and so on through the week.
 
+Each car was equipped with half a dozen four poster beds, half a dozen twin beds, three or four easy chairs and a chaise lounge. Later the twin beds were taken out of the equipment because so few twins seemed to be in business in New York; more correctly, many sets of twins were in business, but not in the same line and not particularly busy on the same day. For example, the Kitchell twins, Howell and Groweil; they both had offices downtown, but Howell was a fishmonger with an exclusive Friday trade, while Growell sold welts and by tacit agreement, out-of-town welt buyers visited New York Mondays only. And it was the same with other sets of twins.[^11]
 
+These early subway cars had straps, stout leather straps, but they were not fastened to the roofs of the cars. They were loose and were used either for sharpening razors or for amusement purposes. Passengers used to play a game called “Have You Heard This One?” Each passenger was required to tell a story and if any of the other passengers had heard it before, the raconteur was given a hiding with the straps. This was where Growell Kitchell picked up most of his welts.
 
+It was during the early days of the subway that Emile Zola visited New York and remarked in broken French: “Why, you New Yorkers are like ze little animals, what you call them, ze moles. You are always burrowing in ze ground.” Horace Greeley was much taken with this comment and made a suggestion that was afterwards put into effect—that the city be divided into burrows, the Burrow of Brooklyn, the Burrow of the Bronx, etc.[^12]
 
+At this time Lily Langtry was the toast of New York. Co-starred with the Marx Brothers in “A Texas Steer,” she swept Broadway and was next given a job sweeping the cross streets. Mayor Walker presented her with the keys to St. Louis, but she refused to take the hint and it became my duty to show her around Gotham.[^13]
+
+Unlike Jane Austen, who had insisted on visiting the night clubs, Lily wanted to see the city’s noon life. Nothing gave her more of a thrill than to lunch at one of the sidewalk tables outside the Pennsylvania station and watch the zinc-workers and hatters at their midday revels.
+
+“Vive!” she would shout as some particularly daring peasant girl tossed a ringer or a leaner, or an extra hilarious traffic policeman successfully coaxed a perambulator in front of a taxi or Halloa cab as they were then called.
+
+“But listen, Lil,” I often remonstrated, “don’t you want to even get an impression of what goes on in places like the Knickerbocker Club or the Lambs or Sophie Tucker’s or places like that?”
+
+“No, Lardy,” she would reply.[^14]
+
+So a party of four or five of us, usually consisting of H. L. Mencken, the Marx Brothers, Ward and Vokes, Barnum and Bailey, the Duncan Sisters, the Striblings, the Bison City Quartette, the Happiness Boys and the Four Horsemen, besides myself and the Langtry, would daily engage a corner table at Seventh Avenue and Thirtythird street and, as I have said, enjoy the antics of the tradesmen out for their noon lark.
+
+At length Mayor Walker asked me to take Lil to Atlantic City as she had never seen an auction sale. But it happened that just at this period a law had been passed against auctions, said to be the only law ever passed in New Jersey. So all that the Langtry and I could find to do was walk up and down, walk up and down. I noticed that she grew more and more uninterested and one day she yawned several times and then uttered an exclamation of tedium.
+
+“No wonder,” she said, “they call this the Bored Walk.”
+
+## Chapter 8
+### Football Trick Uncorked
+
+All this happened in the summer of my seventeenth year and in the fall I made up my mind to go to college. As told in a previous chapter, I had decided to start in at the University of Michigan, but at the last moment I received a better offer from Yale and the first day of September found me in Lancaster, where Yale was then located, ready to take my entrance examinations.
+
+Entrance requirements at that time were a great deal more exacting than at the present day. One had to pass with a grade of fifty in at least three major studies. I selected spelling, arithmetic, and English literature. I can still recall the five words we were asked to spell, namely Scott Fitzgerald, Zelda Fitzgerald, Scotty Fitzgerald (their daughter), Rube Goldberg (one of their friends), and St. Paul (where Mr. Fitzgerald came from). I spelled two and a half of the words right, giving me the required mark of fifty.
+
+The arithmetic test consisted of two questions, the first of which was, If four sailors go into a corner grocery and buy three cakes of soap at five cents a cake, what is it? The answer was tar soap. The other question was, Give the telephone numbers, residence and business, of five successful stevedores. In this test I scored one hundred, or as the examiners called it, a sweep.
+
+In English literature we were required to name the criminal in the three following stories from “The Adventures of Sherlock Holmes”⁠—“The Speckled Band,” “The Engineer’s Thumb,” and “The Copper Beeches.” I got the first two all right, but by the time I came to the third, the gin which was then passed around between every two questions, began to make me sleepy and I wrote down “Never mind.” However, I had won low medal score and the next thing on the programme was football.
+
+I shall never forget the first day I reported for football practice. Now, at New Haven, they have a field so big that they call it the Bowl. Our field at Lancaster was so small that they called it the Ash Tray. The Yale team was then being coached by John Paul Jones, a grandfather of Tad Jones. Ted Coy was the captain, but there was a rule that if, on the first day of practice, any candidate appeared who was more beautiful than the captain, he supplanted the last named. Thus it was that I captained Yale in my freshman year.
+
+I will omit the details of the first week’s practice, which embraced the usual fundamentals, such as pumping up the ball, mending holes in the bladder, lacing and unlacing, and throwing your hat over the cross bar of the goal. We were scheduled to play Harvard the first Saturday, as it was then figured, and correctly, that if the hardest game came first, there was much less of a strain on the players through the balance of the season. In fact, as soon as the Harvard game was over, the squad used to let up gradually week by week until by the time of the final game of the season, usually with Maine or Harrisburg High School, the majority of the athletes were so stewed that they came to the field in their pajamas or went to the wrong field entirely.
+
+On the Friday before the Harvard game, I overcame my natural diffidence and began to inspire the men with such expressions as “Come on, men!” “Keep at them, men!” etc., and when one of our players made a particularly good stroke, I never failed to say “Bravo!” or, if it was a girl, “Brava!”
+
+All the chairs were taken half an hour before the big game started. There must have been a hundred and twelve people in the Ash Tray. First the Harvard partisans would give their cry⁠—“Mind over matter, men! Mind over matter!”⁠—and from across the Tray the Yalensians would shout back: “Fight for Old Eli and Root for Elihu, Root!” The rival bands played their battle hymns, Harvard’s melodious “Break the News to Mother” vying with the Yale classic, “Ridi, Pagliacci.” The two teams, each shy one man, who was drunk, tiptoed on the field so as not to let the crowd know they were there, and thus avoid the danger of rioting.
+
+I hardly tried in the first half and we failed to score. Harvard was also held scoreless. In our dressing room, between the halves, Coach Jones lit into some of the men mercilessly, telling them their faults. “Heffelfinger,” he shouted at a big guard, “you didn’t clean your nails this morning. As for you, Coy, you quit tickling Thorne in the back of the neck from now on.” And so forth. He criticised everybody but me.
+
+Most of the second half went by and still there was no score. The crowd had gone home stiff.[^15]
+
+Finally the field judge stopped the game to find out what time it was. He was a painter and could not work after four-thirty. The players’ watches all disagreed and the official ruled that it was four twenty-nine, which was what his cousin, Charley Brickley’s, watch said. With a minute to play, I uncorked the trick I had been holding in reserve all through the game. I neglected to mention that two days prior to the battle, we had sent Harvard a set of our signals and they, knowing every play as it was called, were able to stop it. But now I called a signal that was not in the set we had sent them. It was for Jim Braden to deflate the ball, pack it up and send it back to the manufacturers with a complaint that it was defective. The mail box was back of Harvard’s goal line and the Harvard team stood aside and allowed him to make the touchdown, never suspecting that the ball was in that neatly wrapped bundle. That is the true story of my first big victory over Harvard, 5 to 1.
+
+## Chapter 9
+### Yale, Beaten by Blind Boys
+
+After the Harvard game I tendered my resignation as Yale captain because my incumbency was making some of the men so miserable. Every night when they were put to bed, Thorne and Coy and Butterworth cried with such plaintiveness that none of the other athletes could sleep. Coach Jones frequently walked the floor with them all night; he even gave them an extra bottle at bedtime, but to no avail. However, the rest of the squad would not stand for my retirement and the problem was ultimately solved by our trading the three malcontents to Dartmouth for a practice ball.
+
+With the team thus strengthened we went on and won the Trinity and Villa Nova games and reached the big annual Thanksgiving Day battle against Miss Spence’s School with a record of three victories and four defeats, having been nosed out on successive Saturdays by Moler’s Barber College, the War College of Washington, La Salle Extension University and the Weehawken School for the Blind.
+
+I might say in passing that the last named institution beat us by trickery. When we came on the field, our opponents were sitting at various corners with their eyes closed and tin cups in their hands in which passers by were expected to drop coins. I was taken in and would surely have dropped a dime in the opposing captain’s cup had it not been a habit of mine never to carry more money in a game than was necessary to tip the officials. Some of the other boys loosened up, however, and as soon as the cups were filled, the “blind” men opened their eyes with a whoop and proceeded to give us a licking. At that we might have trimmed them if, the night before the game, we hadn’t gone out and got blind ourselves to make it more even. The Weehawken team’s college color was light yellow and this was the origin of the expression blind man’s buff.[^16]
+
+With the approach of Christmas I was swamped with invitations from classmates to spend the Holidays at their homes. I accepted the invitation of Jack Grudge, son of Henry Grudge, then president of U. S. Steel. Grudge pére’s fortune was estimated in the hundreds and Mrs. Grudge was social dictator of New York and Staten Island; no one could claim to have “made” Society until he had been in the Grudges’ palatial town house at West Sixteenth street and the river.[^17]
+
+There were two daughters in the family, Vera and Bera Grudge, co-eds at Princeton. Vera was a pretty, interesting girl, but Bera, besides always wearing rompers, was what the French would euphemistically call nutté. To whatever remark you addressed to her, she would reply “Sis-Boom-Ah! Tiger!” Her father rented a covey of tigers from the Bronx Zoo and had them there in the house, hoping she would get disgusted with them, but she would lie right down in front of them, look them in the eye and sis-boom them ad Nassaum. Her father said to me one night:
+
+“Lardy,” he said, “I’d give anything to get Bera married off.”
+
+“All you have to do,” I replied, “is get her married. She is already off.”
+
+“The trouble is,” he continued, when the laughter had died down to a certain extent, “that she is tiger mad. She won’t look at a human.”
+
+“Well,” I said, “about your only chance is to marry her to a blind tiger.”
+
+Jack Grudge afterwards told me that his father certainly enjoyed my visit.
+
+The Grudges had so many house guests that Christmas that it was necessary to institute a first and second table system for meals. I sat at the second table between Bera and the laundress, a Mrs. Stevens. Our banter would often be interrupted by Bera just when Lydia (Mrs. Stevens) and I were “going good.”
+
+“Mrs. Stevens,” I would say, “I once had a sister who was quite fond of one of her gowns, but she would wear it only in the front yard.”
+
+“Why?” This from Mrs. Stevens.
+
+“She said it was her laundress.”
+
+“Sis-boom-ah ! Tiger!” This from Bera.
+
+On another occasion Mrs. Stevens told me that another guest, a Mr. Spurl, brought his laundry down to her and bet her she couldn’t “do it up” in four hours.
+
+“Did he win?” I inquired.
+
+“He lost his shirt,” said Mrs. Stevens (Lydia).
+
+“Sis-boom-ah! Tiger!” This from Bera.
 
 
 
@@ -208,3 +295,20 @@ Author’s note: Other teams would not play against Mr. Thorne unless he limited
 [^9]:Editor’s note: They still are in some cities.
 
 [^10]:Editor’s note: “Sucker” was a slang invention of the author’s, meaning probably in this case, “dub” or “flop.”
+
+[^11]:Editor’s note: These facts are brought out in other autobiographies of the early nineties.  
+Author’s note: What of it?
+
+[^12]:Editor’s note: The Oakland Mole in San Francisco Bay got its name in much the same way.
+
+[^13]:Editor’s note: A pseudonym for New York.
+
+[^14]:Editor’s note: She called him Lardy.
+
+[^15]:Editor’s note: The author probably means “bored stiff.”  
+Author’s note: The h‑ll I do!
+
+[^16]:Editor’s note: The above paragraph is followed in the manuscript by a description of the game between Yale and Spence. It is vulgar.  
+Author’s note: So is your old man.
+
+[^17]:Editor’s note: This house is now occupied by the Cunards.

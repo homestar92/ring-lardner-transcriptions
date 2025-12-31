@@ -696,6 +696,84 @@ Philadelphia at that time had a boxing commission something like New York’s (N
 
 A man sitting right back of me kept insisting that Mr. Dempsey ought to be disqualified for violating Pennsylvania’s boxing code, which barred the rabbit punch. I was not familiar with the rules, but Jack certainly punched like a rabbit.
 
+## Chapter 21
+### I First Marry in Central Park⁠—Lapland Lady for Bride
+
+We now come to my first marriage. The girl was a born Laplander and landed in my lap during the course of a quiet weekend party at the Curley estate on Long Island. I suppose I was fascinated by the music of her broken English as much as by the blonde perfection of her 212 pounds of bubbling youth.
+
+“Listen, hon’,” were her first words: “Ise mahty thusty. Is you-all goin’ to fetch me some mo’ dat dere gin?”
+
+As she Lapped the fresh made spirits, I made her tell me of herself. Her name was Hugga⁠—Hugga Much⁠—and she was the daughter of an Eskimo society woman who had fallen in love with her family’s Lap dog trainer.
+
+“Mah mammy was sho ’nough ‘folks’” she said proudly.
+
+When the party was over and I had gone back to New York, she obtained my address and began showering me with mash notes, written in the same stertorous drawl. She was the most persistent of all the women who have ever marked me as their goal and it soon became evident that fighting her off was a waste of time. I finally said yes, and the scene that followed defies description. Dignified men marched the streets ringing cowbells and fairly reeking with confetti; women tore each other’s clothes, and even little children asked, “Where is nurse?” and “What is all the hullabaloo?”
+
+Now followed preparations for the wedding. I was for having some of my friends as ushers and got as far as selecting Robert Benchley and Robert Sherwood, two beggars of *Life*, but Hugga, always strong for system and efficiency, insisted on my engaging the ushers from Madison Square Garden. I wanted the ceremony held at Old Trinity; Hugga said it was below her station⁠—she usually got off at Columbus Circle. So we decided to put it on in Central Park, which was convenient for both of us and big enough to accommodate most of our buddies.[^43]
+
+My best man was Paul Whelton of the Boston Wheltons. He was then employed at Sing Sing prison as an electric chair tester, his duties being to sit in the chair just before an execution and inform the electrician regarding the current, whether it was just right or too strong or not strong enough. “Volts” Whelton, his buddies[^43] called him.
+
+Hugga’s bridesmaid was Texas Guinan and her maid of honor was Elizabeth Barrett (Peaches) Browning.[^44]
+
+It rained the night before the wedding, but the park had been covered with tarpaulin and when this had been removed, Judge Landis examined the turf and ruled that the ceremony must go on. Hugga was greeted with commingled boos and cheers. She seemed perfectly calm. I learned afterward that this was the sixth time she had tempted Hymen. Mayor Walker of New York and Dudley Field Malone presented her with the keys to Key West and McKeesport and everybody stood up and bared their chests while the band played the Lapland national anthem.[^45]
+
+Nick Altrook and Al Schacht next put on their comical burlesque channel swim and then I entered leaning on the arm of a taxi driver. It was all he could do to hold me up.[^46]
+
+The one ring service was read by an official of the Lotus club and we adjourned to the wedding breakfast, consisting of half a grapefruit, cereal, choice of bacon or ham and eggs, or country sausage and wheat cakes, toast, rolls or muffins, coffee, tea, milk, cocoa, Kaffee Hag, open 7 to 9:30. Sundays, 7:30 to 10.
+
+## Chapter 22
+### On My Honeymoon
+
+After the wedding breakfast, my first act was to get a shave and a shine. Then I sought out my bride and broached her on the subject of a honeymoon.
+
+“Where would you like to go on your honeymoon?” I broached her.
+
+“I don’t care,” she rebroached, “as long as it is a place where we can be by ourselves.”
+
+So I hailed a taxi and we caught the eleven o’clock express for Philadelphia and visited the Sesquicentennial Exposition. Hugga remarked that it reminded her of her native town, Skulk, in Lapland.[^47]
+
+We strolled up and down the Gladway and she asked me why it was so named. I replied that it was named in honor of the people who had backed the Exposition.
+
+“And when is it going to open?” she asked.
+
+“Who?” I rejoined.
+
+“The Exposition,” said Hugga.
+
+“It opened early last summer,” I told her.
+
+“Oh!” said Hugga.
+
+She was always making mistakes, but was always quick to acknowledge them.
+
+I showed her the huge stadium in which Jack Dempsey had lost his title and I my shirt. I pointed out the spot where the ring had been located and the spot, six feet away from it, where I had sat. She was amazed when I informed her that the “‘house” had been sold out that night and exclaimed at the vast distance between the scene of battle and the most remote seats.
+
+“Why, the people in some of those seats,” she said, “couldn’t really tell whether it was a fight or a schottische !”
+
+“Neither could I,” I replied, laughingly.
+
+Hugga had brought me a dowry of $3,500 and as we both preferred small towns to large, we decided to invest in some business in a desirable residential community upstate from New York. Through a friend of Hugga’s father we learned that the post office in a place called Gluten was for sale. Gluten had a population of nearly two thousand, of whom more than eight hundred were dogs.
+
+“It’s a great little town!” said Hugga’s father’s friend. “It’s got running water and two spigots.”
+
+Hugga was quite practical.
+
+“Don’t let’s be carried away by blurbs,” she said. “It seems to me that the post office in a town where the inhabitants are forty per cent dogs is not likely to be very profitable. Dogs, or at least the dogs I have known (she flushed) are not great letter writers.”
+
+“But the dogs of Gluten are male dogs,” retorted her father’s friend.[^48]
+
+“Of course,” put in my father-in-law, Mr. Much, “you can’t expect big profits from a small town post office if you run it solely as a post office. The idea is to sell stamps, post cards, envelopes, etc., only when necessary and depend on other kinds of merchandise for your main source of revenue.”
+
+“And the town being what it is, I would advise you to carry a large line of canine accessories,” added his friend.[^49]
+
+Thus it was that my young wife and I began a mercantile career which netted us over a thousand dollars the first year and attracted the attention of the then Postmaster General, Basil Paunch. On our front window was inscribed a small sign, “United States Post Office,” and under it, a much larger sign, “Everything for the Dog.” It was a simple matter to divert customers from their original intention of purchasing stamps and persuade them to buy something doggy, at a much greater profit to us. One example of our method will suffice. On our first day, a Mrs. Femur came in and asked for a two-cent stamp.
+
+“You don’t want a stamp,” said Hugga. “What you need is a muzzle.”
+
+“Perhaps you are right,” said Mrs. Femur, and before she had left the place we had sold her a $12.00 amber muzzle which netted us $10.45.
+
+Another of our big winners, which we usually sold in place of post cards, was fleabane concocted by Hugga herself out of drippings from Queen Marie’s diary.
+
 ## Footnotes
 
 [^1]:Editor’s note: This must be a mistake. In 1891, Paul Whiteman was only a year old.  
@@ -807,3 +885,25 @@ Author’s note: Why not shut up?
 Author’s note: The author meant what he said. Pearson was a notorious quack.
 
 [^42]:Editor’s note: Philadelphia.
+
+[^43]:Editor’s note: “Buddies” is not in any dictionary and may be a colloquialism meaning, perhaps, clowns or funny men.
+
+[^43]:Editor’s note: There is that word again.
+
+[^44]:Author’s note: At this point I wish to correct an error that was made by the New York newspapers in their account of the wedding. I was repeatedly referred to as the groom, though I have had nothing to do with the care of a horse since I was twelve years old, and then only as a favor. The mistake probably was due to a misunderstanding by an Associated Press reporter, who, when my engagement was announced, called up Hugga’s mother, Sitta Much, and asked if she was satisfied with me as a son-in-law. Mrs. Much replied: “I certainly am. He is a hustler.” The reporter, no doubt, thought she said “hostler.” The two words “‘hostler” and “hustler” sound a great deal alike, especially in Eskimo.[^900]
+
+[^900]:Editor’s note: Another amusing incident is told concerning that same telephone conversation. When the reporter first got the bride’s mother on the wire, he said: “Mrs. Much?” and she replied: “Yes. A great deal.”
+
+[^45]: Editor’s note: A custom. The anthem referred to begins, “Lap and the world laps with you.”
+
+[^46]:Driver’s note: I never held nobody up.
+
+[^47]:Author’s note: Skulk is not really a town at all; merely a fishing smack.
+
+[^48]:Author’s note: His name, we found out afterwards, was Webster.  
+Editor’s note: There was a family of Websters in Elmira.  
+Author’s note: This was a different Webster.  
+Editor’s note: The same spelling.
+
+[^49]:Editor’s note: Presumably Webster.  
+Author’s note: Not related to the Elmira Websters.

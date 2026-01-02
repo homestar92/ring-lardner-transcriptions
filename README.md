@@ -5,3 +5,6 @@ This is a repo of manual transcriptions I've made of Ring Lardner stories that d
 To the best of my knowledge and abilities, these represent the exact text as presented in the original publication.
 
 Only stories which are old enough to be public domain will appear here. As of now, this means stories from 1929 or earlier, but once January 1, 2026 arrives, stories from 1930 will be public domain and may appear here as well.
+
+The transcriptions of Own Your Own Home chapters 1-4 were transcribed by Scott Topping for his "Lardnermania" website formerly located on the domain tridget.com. A snapshot of that transcription from the Wayback Machine can be found here:
+https://web.archive.org/web/20041019234945/http://www.tridget.com/lardnermania/oyoh/index.htm

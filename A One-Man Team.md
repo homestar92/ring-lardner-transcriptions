@@ -193,7 +193,7 @@ It must be recorded that the Coach slept too. From four till six he slept, and a
 
 ***
 
-“One thing more, boys,” said the Coach. “I’m responsible for this defense, and if it isn’t the right one, I'll take the blame. All I ask you to do is play it, play it as I’ve taught it to you. Remember, it’s his last chance to shine, and he’ll want to do all the shining. Forget everybody else and go after Davis. Now get him! Get him! Get him !”
+“One thing more, boys,” said the Coach. “I’m responsible for this defense, and if it isn’t the right one, I'll take the blame. All I ask you to do is play it, play it as I’ve taught it to you. Remember, it’s his last chance to shine, and he’ll want to do all the shining. Forget everybody else and go after Davis. Now get him! Get him! Get him!”
 
 The squad raced out of the dressing-room onto the field. From ten thousand throats came a welcoming cheer. Ten thousand voices chanted the ‘Varsity hymn, trailing not more than a beat or two behind the accompaniment of the Blue and White band.
 

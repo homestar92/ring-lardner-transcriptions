@@ -104,7 +104,7 @@ I ast him what he meant.
 
 “Both o’ them was strong for the skirts; and, o’ course, a pair o’ fine-lookin’ slobs like them could cop one out in every town. We took up that end of it, too, tellin’ Smittythat Fogarty’s Marie was prettier than his Julia, and that kind o’ stuff.
 
-“You know what they done for us. We’d of finished about sixth without ’em. I never seen such pitchin’ in my life, and I never seen two fellers hate each other the way them two done. When you guys bought Smitty and didn’t get Fogarty I called the turn. Some o’ the boys figured they both might of got the habit o’ workin’ and might keep it up when they was separated; but I knowed different. And that’s why I made the bet with Punch Knoll. Looks like ’ll win it easy, don’t it?”
+“You know what they done for us. We’d of finished about sixth without ’em. I never seen such pitchin’ in my life, and I never seen two fellers hate each other the way them two done. When you guys bought Smitty and didn’t get Fogarty I called the turn. Some o’ the boys figured they both might of got the habit o’ workin’ and might keep it up when they was separated; but I knowed different. And that’s why I made the bet with Punch Knoll. Looks like I’ll win it easy, don’t it?”
 
 “Looks like it,” I says. “Alexander and Rixey’d both ought to be ready again in a month and then Smitty’ll lose his home sure. And we’ll be absolutely last by that time.”
 

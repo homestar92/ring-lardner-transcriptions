@@ -246,7 +246,7 @@ Mr. Arnold lighted a cigar with an unsteady hand.
 
 “I’d heard there was one,” said Walter.
 
-‘Well, this war’s what’s brought up this here other thing. It seems like the President wants to preserve food.”
+“Well, this war’s what’s brought up this here other thing. It seems like the President wants to preserve food.”
 
 “Strawberries and stuff like that?”
 

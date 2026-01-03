@@ -46,9 +46,7 @@ We kept on playin’ our best, and that was about good enough to get us beat oft
 
 So I figured we wasn’t goin’ to be pestered with none o’ them there birds that does nothin’ but kick the ball round because they got the habit playin’ football.
 
-The skirt had been travelin’ a lot and hadn’t gave me no bother to speak of. But when she come back, my troubles begin. She come out to the games and set in a box clos’t up to our bench. We was playin’ Brooklyn one day, and Rucker was good. We was a couple o’ runs behind along in the eighth and no hope o’ catchin’ up, with him goin’ that way.
-
-‘They was two of us out, and then Rucker walks somebody and Red Smith boots one, so they was two on when it come my turn to hit. I starts up, but she calls me over to the box.
+The skirt had been travelin’ a lot and hadn’t gave me no bother to speak of. But when she come back, my troubles begin. She come out to the games and set in a box clos’t up to our bench. We was playin’ Brooklyn one day, and Rucker was good. We was a couple o’ runs behind along in the eighth and no hope o’ catchin’ up, with him goin’ that way. They was two of us out, and then Rucker walks somebody and Red Smith boots one, so they was two on when it come my turn to hit. I starts up, but she calls me over to the box.
 
 “Mr. Dixon,” she says, “this would be a good place for a home run.”
 

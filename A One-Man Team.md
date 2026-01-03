@@ -18,7 +18,7 @@ It was the final week of the season, and the Doane game loomed large ahead. Harr
 
 “There’s a difference between Monroe and Doane,” put in Dana. “All those Monroe coaches know about working up an attack, you could put on a souvenir postcard and mail it anywhere for one cent. Benjamin didn’t have as much protection as a kewpie. There was nothing for him to work with. I’m not trying to take away any credit from Coach, but I never saw a team give less help to a star than Monroe gave to Benjamin. It will be another thing again with Doane. They'll have stuff built up round Davis that they didn’t show when we were watching them. Smith’s no fool.”
 
-“I didn’t say he was,” retorted Harris. “He’s a good, smart coach and can construct as shifty an attack as you’d want to see. I don’t claim he cut loose with everything he had, for my benefit. But you know as well as I do that ninety per cent of his offense is Davis. And you know Coach’s reputation for making a monkey. out of that kind of an offense.” He smiled at his chief. “You deserve the rep’, don’t you?”
+“I didn’t say he was,” retorted Harris. “He’s a good, smart coach and can construct as shifty an attack as you’d want to see. I don’t claim he cut loose with everything he had, for my benefit. But you know as well as I do that ninety per cent of his offense is Davis. And you know Coach’s reputation for making a monkey out of that kind of an offense.” He smiled at his chief. “You deserve the rep’, don’t you?”
 
 The Coach smiled back.
 
@@ -279,7 +279,7 @@ The quarter-back had gone through for another yard or so before Ainslee delivere
 
 “With us bunched like that,” said Harris, “Davis will throw it a mile.”
 
-“I can’t help. it,” said the Coach. “I’ve got to take the chance.”
+“I can’t help it,” said the Coach. “I’ve got to take the chance.”
 
 The consultation was over. Doane’s quarter-back began shouting his numbers. Doane’s ends ran far out, and the Blue and White ends went with them. Moxey and Byron again lined up tandem, behind a tackle.
 

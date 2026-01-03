@@ -801,7 +801,7 @@ clothes. But he don't want to meet no girls."
 
 "They's no sense to it," I says. "It wouldn't hurt him
 a bit to mingle a little with the dames. It'd do him good.
-And he'd get along O. K. when he found out they wasn't
+And he'd get along O.K. when he found out they wasn't
 all tryin' to steal him."
 
 "I'll promise not to steal him," says Mary.

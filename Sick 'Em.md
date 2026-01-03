@@ -138,7 +138,7 @@ This dope fit in perfect with what Jack Barnett had been tellin’ me. I made up
 
 “What are you drivin’ at?” he ast.
 
-“I want you to try a experiment,” I says. “It may not do no good, and then again it might. It might pull us through O. K. if you was willin’ to take a chancet.”
+“I want you to try a experiment,” I says. “It may not do no good, and then again it might. It might pull us through O.K. if you was willin’ to take a chancet.”
 
 “Shoot,” says Red. “I’ll try anything oncet.”
 
@@ -162,7 +162,7 @@ I had to pretty near drag him to get him out o’ the clubhouse. Hank was just g
 
 “I guess you can get him for the waiver price,” says Hank; “but you’ll have to see the boss.”
 
-So me and Red went up to the office and sprung it on ’em. They seemed surprised, but said Red could have him. So Red wired home and got the deal O. K.’d. And Fogarty went with us to St. Louis.
+So me and Red went up to the office and sprung it on ’em. They seemed surprised, but said Red could have him. So Red wired home and got the deal O.K.’d. And Fogarty went with us to St. Louis.
 
 Before we got on the train, Red told me I’d have to do the funny work. I said I’d tackle it, and then I went to Pat and explained the thing to him and ast for help. He was willin’ and we fixed it up that I was to room with Fogarty and Pat with Smitty.
 
@@ -210,7 +210,7 @@ When our grips come I went to my room to take a nap and a shave; but I didn’t 
 
 “Where do you get that stuff?” says Fogarty. “Don’t you think I know nothin’? If he’s fine-lookin’ I’m a snake. And if he’s a swell pitcher, why don’t they never start him?”
 
-“He’s had a sore arm,” I says; “but he’s all O. K. now and Red’s goin’ to work him to-day.”
+“He’s had a sore arm,” I says; “but he’s all O.K. now and Red’s goin’ to work him to-day.”
 
 He left the room right after that and I didn’t see no more of him till we got out to the park; but Red tipped me that he’d came to him and ast if he could work the game. Red told him he was goin’ to start Smitty.
 

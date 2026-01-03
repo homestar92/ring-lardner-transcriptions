@@ -250,7 +250,7 @@ It wasn't till Bull had been there about three weeks that he told 'em what he do
 
 At meals, Martin wouldn't talk nothin' but baseball, and Bull had to talk it with him. I suppose the proud parents and Maggie felt kind o' sorry for Bull, figurin' that the kid, bein' perfect, was gettin' all the best of him in the arguments. The old boy was foxy enough to see that the easiest way to win Maggie was by helpin' to make Martin look good. So when they'd got about so far in a fannin' bee, Bull'd stop dead and say, "By George! You're right," even if Martin was arguin' that Walter Johnson ought to learn to throw left-handed and play third base.
 
-Bull thought he was just a fresh kid. He thought the reason he wasn't workin' was probably because he'd lost a job and hadn't found another. He liked Martin O. K. till he begin to suspect that he was too proud to toil. It was the old lady that give him the hunch, when she says somethin' about the kid's delicate health.
+Bull thought he was just a fresh kid. He thought the reason he wasn't workin' was probably because he'd lost a job and hadn't found another. He liked Martin O.K. till he begin to suspect that he was too proud to toil. It was the old lady that give him the hunch, when she says somethin' about the kid's delicate health.
 
 "Yes," Bull says to himself, "he's awful delicate lookin', like Frank Gotch."
 

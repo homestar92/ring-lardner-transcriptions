@@ -144,7 +144,7 @@ We said a last farewell to gay Paris early one morning and set out for London by
 
 The Dover-London train was the best train I seen on the other side. It had parlor car seats with a table between every two of them and you could get tea or whatever you wanted. The madam took tea.
 
-Arrived in London, we got in a taxi and the madam done a little screaming when she seen that we kept on the left side of the street, but I patted her hand and told her it was O. K. and soon had her quiet.
+Arrived in London, we got in a taxi and the madam done a little screaming when she seen that we kept on the left side of the street, but I patted her hand and told her it was O.K. and soon had her quiet.
 
 The man at the Savoy give us a room on the court instead of on the Embankment, but it seems to me like it don't make much difference whether you have an inside or an outside room in a London hotel. They's an old saw to the effect that the sun never sets on the British Empire. While we was there, it never even rose.
 

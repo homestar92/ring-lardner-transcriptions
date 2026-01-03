@@ -54,7 +54,7 @@ think.
 "Sure!" said Larry. "There you are! Now you'll get
 some idear of what we're up against. You say, 'Let him be
 a champ like some of the old boys and fight everybody.'
-That'd be O. K. if we was living twenty or thirty years ago
+That'd be O.K. if we was living twenty or thirty years ago
 when they was a bunch round like Fitz, Corbett and
 McCoy, and Choynski, Sharkey, Ruhlin, big Jeff, and all
 that gang; any one of them liable to knock each other's
@@ -541,7 +541,7 @@ him."
 And he give them a letter to read. When
 they'd read it he said: "You see what he
 says in there about you. He says Mr. Crawley
-has treated him O. K. and he wants him
+has treated him O.K. and he wants him
 to have first refusal of this match. That's
 the only reason I've bothered you gentlemen.
 Confidentially, I didn't think you'd

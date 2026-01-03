@@ -608,7 +608,7 @@ says I.
 that don't hardly make a
 good game. But I like it better'n
 any o' them. Before I
-met Marion, I. and some o'
+met Marion, I and some o'
 the boys where I boarded had
 a little session o' penny ante
 every other evenin'. Just a

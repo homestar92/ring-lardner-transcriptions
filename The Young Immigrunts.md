@@ -17,7 +17,7 @@ MY parents are both married and 1/2 of them are very good looking. The balance i
 
 He wears pretty shirts which he bought off of another old ball player Artie Hofman to attrack tension off of his feet and must of payed a big price for them I heard my ant tell my uncle when they thorght I was a sleep down to the lake tho I guess he pays even more for his shoes if they sell them by the frunt foot.
 
-I was born in a hospittle in Chicago 4 years ago and liked it very much and had no idear we were going to move till 1 day last summer I heard my mother arsk our nurse did she think she could get along O. K. with myself and 3 brothers John Jimmie and David for 10 days wilst she and my old man went east to look for a costly home.
+I was born in a hospittle in Chicago 4 years ago and liked it very much and had no idear we were going to move till 1 day last summer I heard my mother arsk our nurse did she think she could get along O.K. with myself and 3 brothers John Jimmie and David for 10 days wilst she and my old man went east to look for a costly home.
 
 Well yes said our nurse barshfully.
 

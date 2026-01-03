@@ -160,7 +160,7 @@ overhearin' it. The scrappin' lasts till the party o' the
 second part opens up the tear ducks. Then you have to
 pretend like you didn't mean none of it.
 
-II
+## II
 
 BUT I was goin' to tell you about Harry Quinn. He's
 a boy about twenty-three or twenty-four years old
@@ -364,7 +364,7 @@ I was married in overalls and a jumper."
 and a nightgown."
 
 
-III
+## III
 
 I was hopin' that, in honor of his weddin', Harry'd take
 at least a month off. But no; he was back amongst us
@@ -651,7 +651,7 @@ thing, I want to show her to you."
 And in fifteen minutes
 it was fixed.
 
-IV
+## IV
 
 Well, I didn't give
 the plot away to the 
@@ -1284,7 +1284,7 @@ As for the Missus and I, it only took me
 a half hour to bring her to tears; and then,
 o' course, the sport was over.
 
-V
+## V
 
 I TOLD you a while ago that if men seen
 their wives play poker before they was

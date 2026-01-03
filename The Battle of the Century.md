@@ -92,7 +92,7 @@ that some hero pops up before the heavyweight
 champion of the world dies of starvation. Him
 and his manager both."
 
-II
+## II
 
 It was quite a w'ile after this when I was in
 New York and dropped in at the apartment
@@ -151,7 +151,7 @@ said Jim.
 fight who you pick out. But I don't see how you come to
 overlook Benny Leonard."
 
-III
+## III
 
 I staid round town and seen Larry two or three times,
 "It's going to be softer than I figured," he told me.
@@ -292,7 +292,7 @@ else?"
 
 "Nothing else,” said Moon.
 
-IV
+## IV
 
 SEVERAL months is supposed to elapse
 between these two acts. During this
@@ -349,7 +349,7 @@ Jim wasn't the fighter his friends claimed;
 it made him look like he could be licked,
 and that was a boost for the Goulet match.
 
-V
+## V
 
 THEY'S a big steamship man, Robert
 Crawley, that had kind a contract
@@ -739,7 +739,7 @@ begin thinking about expenses, and the
 conversation got up round a million, they
 was sunk.
 
-VI
+## VI
 
 It WAS early spring when I run acrost
 Larry again.
@@ -827,7 +827,7 @@ him entertained. But personally, I don't
 know no work I wouldn't be glad to stick at
 for five weeks, not at them kind of wages."
 
-VII
+## VII
 
 I LANDED in Jim's camp the second
 week in June. The day I got there he
@@ -937,7 +937,7 @@ off after all. He may get sick."
 the girl reporters has been writing about
 him."
 
-VIII
+## VIII
 
 You know what Barnum said. Well, he
 didn't go far enough. They like to be
@@ -1056,5 +1056,3 @@ figured out, he wasn't big enough."
 
 "By gosh!" I said. "I believe you've hit
 the nail right on the head!"
-
-1

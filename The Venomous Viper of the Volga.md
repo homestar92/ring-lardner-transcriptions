@@ -403,7 +403,7 @@ welterweight, be obliged to train down to the
 welterweight limit of 147 pounds.
 
 Then, a week prior to the date of the bout,
-the Murderer's manager announced it. was all
+the Murderer's manager announced it was all
 off-his man had eaten a bedridden oyster.
 The truth was that a report had reached camp
 that Brock, who promised to commit all the

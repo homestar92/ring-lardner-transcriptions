@@ -330,7 +330,7 @@ Kate," I said, "it is Mr. Coles." Poor girl, this came as such a surprise to her
 
 There was a knock at our door and a boy called to us that Mr. Garrett was waiting to take us down and see the "Falls."
 
-"Come on, Kate," I said. walk will do you good."
+"Come on, Kate," I said. "The walk will do you good."
 
 But she had thrown herself on the bed, and I could see that the poor girl was worn out as well as almost sick over what I had told her. So I left her and went out to join the others on the porch. Mr. Coles was not with them. Mr. Lester said he had gone to his room with a sick headache. This took all the pleasure out of the walk for me, and I would gladly of stayed in the "hotel" and tried to comfort Kate, but I thought it would look funny. So I went with the party to "Inspiration Point," and I was glad afterward that I had, for the Great Falls" is perfectly wonderful and different than anything I have ever seen, and I would not of missed it for the world. It is simply heavenly, and I would of loved to of sat there all afternoon "lost in dreams," watching this grand sight. But how much more I would of enjoyed it had Mr. Coles been along, and I could not help from worrying about him and wondering was he really very ill, and poor Kate, too.
 
@@ -528,7 +528,7 @@ I have been doing a lot of thinking yesterday and to-day on the train, and I hav
 
 MONDAY, September 4: I do not know why I am keeping up this diary, now that my trip is over. Just to pass the time, I guess. I thought but then I happened to think that it this morning I would tear it all up, Yellowstone Park, which I will copy contained my personal impressions of out some day and keep, and tear up the rest of it.
 
-It is after supper and mother has gone out to the picture show. would of gone with her only Don Kellogg is coming to see me. How he will laugh when I tell him about Kate and her "great catch." I bet he will not believe me when I tell him she is actually engaged. He will say: "Is the poor guy blind or crazy or what?"
+It is after supper and mother has gone out to the picture show. I would of gone with her only Don Kellogg is coming to see me. How he will laugh when I tell him about Kate and her "great catch." I bet he will not believe me when I tell him she is actually engaged. He will say: "Is the poor guy blind or crazy or what?"
 
 I would not of let Don know I was in town only I happened to remember I had lent him the book I wanted to read this week, so I 'phoned him as soon as I got home this morning and asked him would he send it to me.
 

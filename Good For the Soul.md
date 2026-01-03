@@ -400,7 +400,7 @@ He called me over away from the gang.
 
 "You're doin' a grand job," says I. "When you take money for managin', it's plain highway robbery."
 
-"I suppose you're earnin' yourn," says Carmody. "I suppose you got two good legs.'
+"I suppose you're earnin' yourn," says Carmody. "I suppose you got two good legs."
 
 That kind o' shook me up.
 
@@ -512,7 +512,7 @@ No, I won't," he says. "You watch me and see. If I've got the ball and they's a 
 
 "That's more secrets," says Carmody. "Between you and I, my arm's been bad a long w'ile and I had the hunch it was goin' to do just what it done. So I told him a little story a couple o' weeks ago. I told him I wasn't satisfied with the way Boyle was playin' first base and I told him I was a pretty good first sacker myself and thought I'd move over there. So he ast me who'd play shortstop and I told him you'd make the best man and he says he thought so, too, but your contract read that you'd only play right field. So I told him maybe he could coax you to switch."
 
-"It must be hard for you to shave with all that cheek," I says. "You can go and tell him now that you ast me would I play shortstop and I told you No, I wouldn't. So that's settled, and now I'm goin' to catch a train. If I can get back to-morrow I will. And if I do get back, I'll be in right field.'
+"It must be hard for you to shave with all that cheek," I says. "You can go and tell him now that you ast me would I play shortstop and I told you No, I wouldn't. So that's settled, and now I'm goin' to catch a train. If I can get back to-morrow I will. And if I do get back, I'll be in right field."
 
 I left him bawlin' me out, but I knowed he couldn't do nothin' to me. I had as much on him as he had on me.
 
@@ -570,7 +570,7 @@ Carmody didn't ask me what I was gettin' at. He dressed and went downstairs to f
 
 "I'd give a good deal to pull out o' last place," says he.
 
-"Well," I says, "I'll see if I can't think o' some good shortstop that ain't tied up.'
+"Well," I says, "I'll see if I can't think o' some good shortstop that ain't tied up."
 
 "You don't have to try and think o' one," says Mr. Grant. "I've got one in mind."
 

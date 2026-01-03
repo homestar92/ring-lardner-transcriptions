@@ -205,7 +205,7 @@ Sandy.
 to go in the fight game. Especially when they look as much
 like a fighter as you do. When I seen you on the stage this
 afternoon, I thought you must be a champion fighter from somewheres
-in Europe, just doing this thing for fun.'
+in Europe, just doing this thing for fun."
 
 "Who would I have to fight?"
 
@@ -328,7 +328,7 @@ you your five grand and do business with
 Troy."
 
 "I forgot to tell you what they call him-the
-Venomous Viper of the Volga.'
+Venomous Viper of the Volga."
 
 "Who calls him?"
 

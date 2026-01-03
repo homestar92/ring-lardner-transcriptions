@@ -353,7 +353,7 @@ Smitty used to get the paper from his home town where his folks lived at, somewh
 
 "They got eighteen now," says Smitty.
 
-"They must of left the course run down," Hawley says. "You can bet they kept it up good when my old man was captain.'
+"They must of left the course run down," Hawley says. "You can bet they kept it up good when my old man was captain."
 
 "Has your brother ever been in a big tourney before?" I says to Smitty.
 

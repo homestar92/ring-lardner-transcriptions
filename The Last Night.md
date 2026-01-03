@@ -198,7 +198,7 @@ Mr. Arnold was embarrassed and said:
 
 Mr. Arnold laughed uproariously.
 
-“That’s pretty good!” he said at length. “ ‘One of those bugs.’ I’ll bet they don’t nobody get ahead of you. I'd liked to of met you before it was too late.”
+“That’s pretty good!” he said at length. “ ‘One of those bugs.’ I’ll bet they don’t nobody get ahead of you. I'd liked to of met you before it was too late.”
 
 “I hope we’re not detaining you.”
 

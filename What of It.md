@@ -90,7 +90,7 @@ Lacey’s eyes followed Quolt’s for the third time, but without results. The t
 
 For maybe a half an hour the three gents sat in silence. Quolt’s eyes never left Lacey’s knee and the owner of same looked at it nervously every little while. Once or twice he opened his mouth like he was going to say something, but thought better of it. Finally Cosset spoke up.
 
-“That’s plenty,” he says to Quolt. “The treatment’s worked grand and you don’t have to stay in this stuffy hole no longer. I’ve got a swell name for my play already. It’s going to be named ‘What of It?’”
+“That’s plenty,” he says to Quolt. “The treatment’s worked grand and you don’t have to stay in this stuffy hole no longer. I’ve got a swell name for my play already. It’s going to be named ‘What of It?’ ”
 
 Mr. Quolt removed his glance from Lacey’s knee and looked at Cosset.
 

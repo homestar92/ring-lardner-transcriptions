@@ -32,7 +32,7 @@ Meantime I got a hold o’ one o’ the Chi papers and seen where they was panni
 
 “You and him was together at Fort Wayne, wasn’t you?” says I.
 
-“Yes,” says Smitty; ‘and he’s a false alarm.”
+“Yes,” says Smitty; “and he’s a false alarm.”
 
 I thought I’d bruise him.
 
@@ -64,7 +64,7 @@ Red had started Smitty just oncet. That was agin the Boston bunch, and he’d to
 
 “Can I go in and dress?” says Smitty.
 
-“I doubt it,” says Red. ‘You better take somebody along to help you.” Well, that might of been the end o’ the bird if he was with any club but our’n. Red had the waivers all right, but couldn’t make no deal that’d bring us within four thousand bucks of even. Still, we wasn’t gettin’ no service out of him and was payin’ him salary all the time.
+“I doubt it,” says Red. “You better take somebody along to help you.” Well, that might of been the end o’ the bird if he was with any club but our’n. Red had the waivers all right, but couldn’t make no deal that’d bring us within four thousand bucks of even. Still, we wasn’t gettin’ no service out of him and was payin’ him salary all the time.
 
 So Red was just about to sell him to a old-clo’es man when the old hoodoo hit us. Alexander strained his souper and Rixey got a pair o’ busted fingers, all in the same serious. We was left with one fair pitcher and a gang o’ kids that’d never saw no big-league games till last spring. The bust-up didn’t surprise nobody. We figured that we’d been lucky to go till the first o’ June without none o’ the boys gettin’ killed. It was the same old gag with us: Right up near thetop and happy for a couple o’ months. Then, Blooie!—and the club all shot to pieces.
 
@@ -90,7 +90,7 @@ Barnett started to laugh.
 
 Barnett kept on laughin’.
 
-“I knowed what’d come off,’ he says. ‘I told the fellers what’d happen. I bet Punch Knoll fifty bucks that Smitty wouldn’t last the season. You guys can talk about McGraw and Mack, and them other big-league managers, all you want to, but it’s us fellers down here in the sticks that knows how to get the work out of a man.”
+“I knowed what’d come off,” he says. “I told the fellers what’d happen. I bet Punch Knoll fifty bucks that Smitty wouldn’t last the season. You guys can talk about McGraw and Mack, and them other big-league managers, all you want to, but it’s us fellers down here in the sticks that knows how to get the work out of a man.”
 
 I ast him what he meant.
 
@@ -106,7 +106,7 @@ I ast him what he meant.
 
 “You know what they done for us. We’d of finished about sixth without ’em. I never seen such pitchin’ in my life, and I never seen two fellers hate each other the way them two done. When you guys bought Smitty and didn’t get Fogarty I called the turn. Some o’ the boys figured they both might of got the habit o’ workin’ and might keep it up when they was separated; but I knowed different. And that’s why I made the bet with Punch Knoll. Looks like ’ll win it easy, don’t it?”
 
-“Looks like it,’ I says. ‘Alexander and Rixey’d both ought to be ready again in a month and then Smitty’ll lose his home sure. And we’ll be absolutely last by that time.’
+“Looks like it,” I says. “Alexander and Rixey’d both ought to be ready again in a month and then Smitty’ll lose his home sure. And we’ll be absolutely last by that time.”
 
 We was goin’ to Chi that night and I didn’t see no use o’ stickin’ in Dayton when I hadn’t had no orders to look at no one else but that one guy. Besides, Barnett told me they wasn’t nobody else on neither club worth lampin’. I’d of liked to of listened to some more o’ the stuff about the two jealous cats, but I had to beat it back to Cincy.
 
@@ -174,11 +174,11 @@ Smitty was in his berth, gettin’ his beauty sleep, when Fogarty clumb aboard t
 
 “That big, ugly Mick,” says he.
 
-“Ugly!” I says. ‘If I was you I wouldn’t call him ugly. He’s a big, handsome boy, and he looks handsomer’n ever alongside a homely wop like you.”
+“Ugly!” I says. “If I was you I wouldn’t call him ugly. He’s a big, handsome boy, and he looks handsomer’n ever alongside a homely wop like you.”
 
 He never said a word. He turned away from me like as if I’d ast him for a hundred bucks. Red told me afterward that he come and sat with him in the dinin’ room at the hotel and ast if Fogarty was goin’ to be with us.
 
-“Sure!” says Red. ‘I thought it was about time we was gettin’ a pitcher.”
+“Sure!” says Red. “I thought it was about time we was gettin’ a pitcher.”
 
 “A pitcher!” says Smitty. “If they sold him to you for a pitcher you got cheated. He’s only a swell-headed pup that don’t think about nothin’ but the part in his hair.”
 
@@ -206,7 +206,7 @@ When our grips come I went to my room to take a nap and a shave; but I didn’t 
 
 “I can’t figure it out,” he says.
 
-“That’s easy,’ says I. “In the first place he’s a fine-lookin’ boy, and in the second place he’s a swell pitcher.”
+“That’s easy,” says I. “In the first place he’s a fine-lookin’ boy, and in the second place he’s a swell pitcher.”
 
 “Where do you get that stuff?” says Fogarty. “Don’t you think I know nothin’? If he’s fine-lookin’ I’m a snake. And if he’s a swell pitcher, why don’t they never start him?”
 
@@ -224,7 +224,7 @@ Maybe you think we didn’t feel good in that clubhouse—’specially me and Pa
 
 I wasn’t sure yet that success was goin’ to be permanent. Still, it was up to I and Pat to go through with our end of it, and my job was to stick close to Fogarty all that evenin’ and keep goadin’ him. I braced him outside o’ the hotel after supper and ast him to take a walk.
 
-“Grand game Smitty pitched to-day!’ I says.
+“Grand game Smitty pitched to-day!” I says.
 
 “What was grand about it?” says he. “Who couldn’t beat that bunch? He’d ought to of been ashamed of himself for lettin’ ’em score.”
 
@@ -234,7 +234,7 @@ I wasn’t sure yet that success was goin’ to be permanent. Still, it was up t
 
 “Well,” I says, “I don’t see no harm in a few walks so long’s a feller can get ’em over when he has to. It’s pretty hard for a guy with all that smoke to control it right along.”
 
-“Yes,” he says; “but I claim it takes a lucky bird to give eight bases on balls and get away with the ball game. It don’t show no pitchin’ on his part; all it shows is that the other club’d ought to try some easier game than baseball. All they had to do was go up there without their bats and they’d of trimmed us; but they didn’t even make him pitch. It looked to me like as if their manager’d offered a prize to the one that could miss ’em the furthest. They looked like a vaudeville team rehearsin’ a club-swingin’ act. At that, Smitty’s got a big advantage over most pitchers. He’s so dam’ homely that. it scares a feller to look at him.’
+“Yes,” he says; “but I claim it takes a lucky bird to give eight bases on balls and get away with the ball game. It don’t show no pitchin’ on his part; all it shows is that the other club’d ought to try some easier game than baseball. All they had to do was go up there without their bats and they’d of trimmed us; but they didn’t even make him pitch. It looked to me like as if their manager’d offered a prize to the one that could miss ’em the furthest. They looked like a vaudeville team rehearsin’ a club-swingin’ act. At that, Smitty’s got a big advantage over most pitchers. He’s so dam’ homely that. it scares a feller to look at him.”
 
 “If that’s a advantage,” I says, “nobody’d never even bunt one safe off o’ you.”
 
@@ -432,7 +432,7 @@ I’m the guy they’d ought to thank for coppin’ the league pennant. And the 
 
 “How about Fogarty?” I ast.
 
-“He ain’t no better off,’ says Red. “The worst of it is that neither one o’ them seems to care.”
+“He ain’t no better off,” says Red. “The worst of it is that neither one o’ them seems to care.”
 
 “Maybe I can wake ’em up,” I says.
 
@@ -454,7 +454,7 @@ Me and Fogarty wasn’t roomin’ together. The trainer was doubled up with him 
 
 “Fogarty,” says I. “The doctor says he’s all right and Red’s goin’ to start him to-morrow.”
 
-“You’re crazy!” says Smitty. ‘The doctor said he wouldn’t be no good till next year.”
+“You’re crazy!” says Smitty. “The doctor said he wouldn’t be no good till next year.”
 
 “That was pretty near a week ago,” I says. “Besides, that doctor didn’t know nothin’. We had the best doctor in Washin’ton up to see him to-night—the doctor that looks after the President and all the congressmen. He says they’s nothin’ at all the matter with him.”
 

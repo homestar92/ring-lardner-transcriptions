@@ -215,12 +215,12 @@ the table when I sat down. I want you to find him and
 give him this note. I would ask the porter, but I am
 afraid he might give it to the wrong person. The man
 is probably in the club car. Just hand him the note.
-Then come back and tell me. Will you do it?'
+Then come back and tell me. Will you do it?"
 
 "I found him in the club car, delivered the note she
 had intrusted to me, and returned and reported.
 
-"She said: "I am very, very grateful.'
+"She said: "I am very, very grateful."
 
 "And then I went forward to the club car again and
 sat down to be out of the way when he came to her, as
@@ -239,7 +239,7 @@ still no sign of her as we pulled into Englewood. I
 called the porter and asked whether he had seen her
 since the night before. He said why, yes, he had seen
 her around five o'clock, when he had helped her off the
-train at Toledo. "Toledo!' I exclaimed. 'I thought she
+train at Toledo. 'Toledo!' I exclaimed. 'I thought she
 was going through.' The porter said he had thought so,
 too, but she must have changed her mind. I inquired
 if he had seen her talking with a handsome dark man.
@@ -417,8 +417,8 @@ sleeper. She stopped beside me and put
 an unsealed, unaddressed envelope in my
 hand.
 
-"It kills me to do this,' she said in a
-voice barely audible. I am not accustomed
+" 'It kills me to do this,' she said in a
+voice barely audible. 'I am not accustomed
 to asking favors from a stranger,
 but it is necessary and you look kind.
 am sure you noticed the man, the young
@@ -465,14 +465,14 @@ the girl. Nor had she appeared as we
 slowed up for Englewood. My inquiry
 of the porter, had he seen her since the
 preceding night, was answered in the
-affirmative. Yes, suh. She done leave
+affirmative. 'Yes, suh. She done leave
 us three hours ago, at Fort Wayne.'
 
 "I remarked I had thought she was
 bound for Chicago. 'She sho' was Chicago
 bound,' said George, 'but young
 gals, dey got a "unailable" right to
-change deir min'. I then asked if he
+change deir min'.' I then asked if he
 had seen her conversing with a big,
 blond, handsome young man. 'No, suh.
 De only man she co'versed to was maself,

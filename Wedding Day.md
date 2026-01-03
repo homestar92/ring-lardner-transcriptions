@@ -8,7 +8,7 @@ Ed was a publicity man for the Shuberts. He and Alice apparently knew everybody 
 
 "What I can't understand," she told Ed as they taxied to the church, "is how he could ever be serious long enough to propose."
 
-"There's nothing as serious as some comics off the stage," said her brother-in-law. "If I wanted amusing companionship, I'd rather pal round with a ghoul or a moving-picture magnate.'
+"There's nothing as serious as some comics off the stage," said her brother-in-law. "If I wanted amusing companionship, I'd rather pal round with a ghoul or a moving-picture magnate."
 
 "Do you mean Mr. Shane isn't funny at all?"
 
@@ -42,7 +42,7 @@ Instead of which:
 
 The party entered the church and Jimmy introduced them to the minister, getting the name wrong. Wallie and Dorothy "stood up" with the couple and Ben Seaton gave the bride away. The ceremony was brief. Everybody kissed the bride and Jimmy kissed everybody, including Ruth. Names were signed and the required documents delivered.
 
-"We'll meet at my place," Ben announced. "Jimmy'll take Brownie and Dorothy and Wallie and Ed in his car. Josie and Miss Richards will have the pleasure of riding with me.'
+"We'll meet at my place," Ben announced. "Jimmy'll take Brownie and Dorothy and Wallie and Ed in his car. Josie and Miss Richards will have the pleasure of riding with me."
 
 In the taxi Josie said: "Do you live in New York, Miss Richards?"
 
@@ -50,7 +50,7 @@ In the taxi Josie said: "Do you live in New York, Miss Richards?"
 
 "That's one town I never was in. Were you, Ben?"
 
-"Yes. I played there two weeks with 'The Girl from Childs'-they tell me.'
+"Yes. I played there two weeks with 'The Girl from Childs'-they tell me."
 
 "I saw you in it," said Ruth.
 
@@ -218,7 +218,7 @@ They rose and drank to Brownie and then to the groom.
 
 "You're there with the repartee! And you told Harriette Underhill you wrote most of your own lines. If you did, they'd have to remodel the theater and put in couches."
 
-"The young lady from Detroit wants me to make a speech. Maybe she'll call on you later.'
+"The young lady from Detroit wants me to make a speech. Maybe she'll call on you later."
 
 "It would be a tough spot, following you, with the audience completely laughed out."
 
@@ -350,7 +350,7 @@ Alice, however, was prevailed on to talk while Ed was out in the kitchen, fixing
 
 "Undoubtedly, and tied his salary up for heaven knows how long. But he beat that game by saying he'd marry her and he's gone through with it, leaving her, of course, with no ground for a suit."
 
-"But can't she divorce him and get alimony? I mean, if he doesn't behave," said Ruth. "Her pride will keep her from that, for a couple of years at least. And I suppose he figures that by then he'll find some way of getting out of it cheaper.'
+"But can't she divorce him and get alimony? I mean, if he doesn't behave," said Ruth. "Her pride will keep her from that, for a couple of years at least. And I suppose he figures that by then he'll find some way of getting out of it cheaper."
 
 ---
 

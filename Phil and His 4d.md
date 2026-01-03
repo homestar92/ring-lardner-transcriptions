@@ -17,7 +17,7 @@ Well the janiter found out this A. M. that we was keeping a car in the flat and 
 
 Mean while Nells makeing up to the Thomsons that lives on the 1st. floor and Mrs. Thomsons a woman that if you dident know who she was youd think she was a hippopothenus and tomorrow night Nells going to ask them to go out with us and we will plant them in the back seat where theyll do the most good. The car will ride smoother that way tho of coarse it will be hard on the rear tires to rub against the pavement onct in a while when they aint used to it.
 
-You can see where this here motering keeps a man busy Dave and its a hole lot of fun but dont never leave no body tell you its a cheap sport. Not even with a 4d it aint.'
+You can see where this here motering keeps a man busy Dave and its a hole lot of fun but dont never leave no body tell you its a cheap sport. Not even with a 4d it aint.
 
 Your old pal.
 PHIL.

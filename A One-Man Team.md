@@ -12,7 +12,7 @@ It was the final week of the season, and the Doane game loomed large ahead. Harr
 
 “It’s a one-man team, Coach, just as Wallace and Dana told us,” he said. “Just take Davis out of their backfield, and they couldn’t score on the North Side Y.M.C.A.”
 
-“Yes,” said the Coach, “but who’s going to ‘just take Davis out of their backfield?’”
+“Yes,” said the Coach, “but who’s going to ‘just take Davis out of their backfield?’ ”
 
 “Well,” said Wallace, “you oughtn’t to be afraid of these one-man outfits after what you did to Monroe and Benjamin. Benjamin was their whole team, and what did he do against us? He might as well have been muzzled and on a leash. If he got away with anything, it was between halves.”
 
@@ -106,7 +106,7 @@ The Coach ordered more coffee.
 
 The table was filled when the Coach again recounted his dream.
 
-“It was just a dream and a bad one,” he said. “If it should come true, how many of you ’Varsity men would get your letters?’ He paused for a reply, but his audience seemed stricken dumb. “Not a one of you,” he went on. “If Davis gets away with one good pass, the man responsible for it will come out of that game quicker than if he broke his neck. You, Barrows! What’s Doane’s captain’s name?”
+“It was just a dream and a bad one,” he said. “If it should come true, how many of you ’Varsity men would get your letters?” He paused for a reply, but his audience seemed stricken dumb. “Not a one of you,” he went on. “If Davis gets away with one good pass, the man responsible for it will come out of that game quicker than if he broke his neck. You, Barrows! What’s Doane’s captain’s name?”
 
 “Davis,” replied a picture of health.
 
@@ -201,7 +201,7 @@ The team lined up and_ hurried through a few simple formations—formations lear
 
 The band started another tune. Some one had introduced the Coach’s parody to the crowd.
 
-“Hang Doane’s Davis on a sour-apple tree,’ sang the Blue and White rooters, and the Doane section smiled its appreciation.
+“Hang Doane’s Davis on a sour-apple tree,” sang the Blue and White rooters, and the Doane section smiled its appreciation.
 
 But now the song was drowned in a flood of riotous cheers. Davis had arrived, Davis and the ten men who were to help him stage a fitting climax for his career of glory.
 
@@ -277,7 +277,7 @@ He beckoned to Ainslee, a sub.
 
 The quarter-back had gone through for another yard or so before Ainslee delivered his message. Then, when they saw the Blue and White defense tighten up, the Doane backs held a council of war while one of their guards played dead.
 
-“With us bunched like that,’ said Harris, “Davis will throw it a mile.”
+“With us bunched like that,” said Harris, “Davis will throw it a mile.”
 
 “I can’t help. it,” said the Coach. “I’ve got to take the chance.”
 
@@ -337,7 +337,7 @@ And in the dressing-room, when the game was history and his poor beaten boys had
 
 “Hardly at all,” said Harris.
 
-“Not ‘hardly at all,’” said the Coach. “No ‘hardly’ about it. If you'll look back through that game, you'll see that Davis never touched the ball except with his foot, and then only when he was kicking goals from touchdowns.”
+“Not ‘hardly at all,’ ” said the Coach. “No ‘hardly’ about it. If you'll look back through that game, you'll see that Davis never touched the ball except with his foot, and then only when he was kicking goals from touchdowns.”
 
 “By George, you're right!” said Dana.
 
@@ -393,6 +393,6 @@ So the Coach led his triumphant rival to a table in the corner, as far as possib
 
 “You know, of course,” said Smith, “that Davis is right-handed.”
 
-“What of it?’ demanded the Coach.
+“What of it?” demanded the Coach.
 
 “Well,” said Smith, “in scrimmage practice, last Tuesday night, Davis broke his right wrist.”

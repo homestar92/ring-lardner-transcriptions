@@ -28,7 +28,7 @@ But when we got home, after a rotten trip, she ast me to come and see her at the
 
 “No,” I says. “We run into some tough luck.”
 
-Then she ast me was it tough luck or rotten ball playin,’ and I says it was some o’ both. Then she says:
+Then she ast me was it tough luck or rotten ball playin’, and I says it was some o’ both. Then she says:
 
 “We'll try and stren’then your team. I and Mr. Williams, the vice president, has decided we got to spend some dough for new players. I have gave Mr. Sullivan orders to go scoutin’ round the colleges.”
 

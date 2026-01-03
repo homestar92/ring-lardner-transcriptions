@@ -82,7 +82,7 @@ Well, I mastered the art o’ drivin’ and still they wasn’t no signs o’ Sp
 
 “What do you mean?” she says. “A friend o’ mine’s got a new car,” I told her, “and he’s goin’ to take you and I up on the North Shore.”
 
-“That'll be grand!’ she says. “But will you be sure and get here by one o'clock?”
+“That'll be grand!” she says. “But will you be sure and get here by one o’clock?”
 
 “Why?” I says.
 
@@ -294,7 +294,7 @@ For some peculiar reason, the starter worked. We was soon tearin’ northwards, 
 
 But the only danger was that somethin’ would hit us from behind, and nothin’ did.
 
-I’m gettin’ so now that I can talk when I drive; then I was scared to open my mouth. Alice made a couple o’ starts about the weather, but her heart wasn’t in it. What she wanted to say was “Look out!” or “Be careful!’ and I liked her all the better for not sayin’ it.
+I’m gettin’ so now that I can talk when I drive; then I was scared to open my mouth. Alice made a couple o’ starts about the weather, but her heart wasn’t in it. What she wanted to say was “Look out!” or “Be careful!” and I liked her all the better for not sayin’ it.
 
 At five p. m., we’d got as far as Lake Forest, havin’ drove forty miles in a fraction under four hours.
 

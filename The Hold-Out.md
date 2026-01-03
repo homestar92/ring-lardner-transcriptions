@@ -817,9 +817,10 @@ us after we'd been at the Springs
 two weeks, he was all smiles.
 
 "Well," he says, "I been readin'
-some mighty encouragin' news.'
+some mighty encouragin' news."
 
 "What news?" I says.
+
 "About Lahey," says he. "I
 told you he might surprise us."
 
@@ -1000,7 +1001,7 @@ I never seen a guy so blue.
 
 "Never mind," says I. "He won't be
 with us long. One o' these days his luck'll
-desert him and he'll get killed.'
+desert him and he'll get killed."
 
 "I think we'd better send for Hagedorn,"
 says the boss.
@@ -1067,14 +1068,14 @@ ast him.
 "Well, Frank," he says, "it's been a
 tough winter-the toughest I ever put in.
 I'm in debt so far that it scares me to think
-of it.'
+of it."
 
 "Where was that $2000 you had saved?"
 I says.
 
 "I was just stringin' you about that,"
 says Bill. "I never had a nickel saved.
-But $2000 is just about what I'm behind.'
+But $2000 is just about what I'm behind."
 
 "Good lord, Bill!" I says to him. "What
 have you done, bought a limousine?"

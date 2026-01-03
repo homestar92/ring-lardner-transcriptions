@@ -9,7 +9,7 @@ Another request which I know the Master would have wished me to make is that nei
 
 Mr. Lardner’s friends will regret that he omitted from these memoirs reference to his encounter with Mussolini, the Tiger of France and Italy. The two happened to be occupying the same compartment on “The Dixie Flyer” between Cannes and Mentone.
 
-“Great golf weather,’ remarked the Tiger.
+“Great golf weather,” remarked the Tiger.
 
 “I beg your pardon,” replied the writer. “Je ne parle pas le Wop.”
 
@@ -314,7 +314,7 @@ Afterwards, on the sled, she asked me what kind of bird I thought she had given 
 
 “Nevertheless,” said Mrs. Grudge, “what I gave him was a gull. He will open the bundle thinking it is a turkey or something else edible, and when he sees what it is, he will tell his kiddies the joke and the laughter will be general all day.”
 
-“Last year,” spoke up Vera, “mother pulled an even better one than that. She gave a great big package to a starving family by the name of Weaf, saying “Here is a goose for you,’ and there was nothing in the package but a picture of Goose Goslin of the Washington ball club.”
+“Last year,” spoke up Vera, “mother pulled an even better one than that. She gave a great big package to a starving family by the name of Weaf, saying ‘Here is a goose for you,’ and there was nothing in the package but a picture of Goose Goslin of the Washington ball club.”
 
 “Sis-boom-ah!” commented Bera.
 

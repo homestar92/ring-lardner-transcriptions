@@ -18,7 +18,7 @@ he said:
 "'Dickie, I want to shake hands with you. You didn't
 quite put it over, but you gave 'em a good scare.'
 
-"Well, Dickie broke down then and cried worse than any <!-- I think I need to add a single quote here - this would be an editorial change. -->
+"Well, Dickie broke down then and cried worse than any
 of us; but the Coach kept right on smilin'.
 
 "'Don't let it bother you any more,' he said. 'We'll get

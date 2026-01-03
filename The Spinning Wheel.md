@@ -178,7 +178,7 @@ The most she’d bet before was a dollar at a crack, but this time she stuck six
 
 ***
 
-Well, you take a normal woman and if a thing like that had happened, they’d scream or at least show some signs of excitement. But this dame just looked at Jess and said: “You’re a darling!’ without raising her voice. He made her quit again and now she was seventy or eighty dollars to the good.
+Well, you take a normal woman and if a thing like that had happened, they’d scream or at least show some signs of excitement. But this dame just looked at Jess and said: “You’re a darling!” without raising her voice. He made her quit again and now she was seventy or eighty dollars to the good.
 
 “I wish I’d been playing more,” she said. “It seems silly to just be piking when I can’t lose.”
 
@@ -220,7 +220,7 @@ He laid three checks on the line here, covering the numbers 25, 26, and 27. And 
 
 “As good as any,” said Jess. “However, don’t ever imagine that that kind of playing is for you.”
 
-“Of course not,” said the dame. “But I can’t control my brother and he always splits with me.’
+“Of course not,” said the dame. “But I can’t control my brother and he always splits with me.”
 
 And she smiled and walked out.
 

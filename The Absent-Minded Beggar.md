@@ -93,7 +93,7 @@ We will be brief about his one year in college. It was terribly hard to escape a
 
 > "Diddle-diddle dumpling, my son Jack;
 > 
-> One shoe brown and one shoe black.'
+> One shoe brown and one shoe black."
 
 He was always late in paying for his board and lodging because his mind was on something else.
 
@@ -510,7 +510,7 @@ Mr. Beasley was back next morning, which was Friday, and congratulated John on h
 
 "For the common, of course," said Mr. Elliott, "and it's off two and a quarter points."
 
-"But the preferred," said John, "is up eight points, and that is what I bought you.'
+"But the preferred," said John, "is up eight points, and that is what I bought you."
 
 For an instant young Mr. Knowles was in imminent danger of being kissed by a man with a mustache. But he dodged behind the desk and asked Mr. Elliott if he would mind not telling either of the partners of the error. "Tell! No, sir. What I'll do is sell. And you're going to get a hundred dollars for being a novice."
 
@@ -570,7 +570,7 @@ Irene heard herself saying: "But I'm glad you did guess wrong because now we can
 
 Irene noticed the servant still hovering.
 
-"Edward, take Mr. Knowles' bags to the south room.' And when Edward had gone upstairs, "We're going on a party tonight, you and I and Mrs. Parrish and Sam Drake. It won't be a late party and I don't believe it will bore you much."
+"Edward, take Mr. Knowles' bags to the south room." And when Edward had gone upstairs, "We're going on a party tonight, you and I and Mrs. Parrish and Sam Drake. It won't be a late party and I don't believe it will bore you much."
 
 "I can't do that, Miss Comerford. I brought no dinner clothes."
 

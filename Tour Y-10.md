@@ -60,7 +60,7 @@ MONDAY, August 28: Well, diary, here we are nearly at the end of the second day 
 
 So when I got in the dining-car there was one table for two people left; and then there was a table for four, with nobody sitting at it only the two college men; and at first I was going to sit down at the smaller table, but one of the chairs at it was facing backward, and it makes me sick to ride that way, even on the "L"; and I thought, perhaps, it might make Kate sick, too; and the men at the larger table were both riding backward, and the two vacant seats were both facing forward, so I hesitated a minute, and then one of the men got up and smiled, and said: "There is lots of room here." I am afraid I blushed furiously, but there was nothing left to do only for me to sit down at their table; and I had hardly no more than got seated when Mr. Garrett came up to our table.
 
-"I was looking for a chance to introduce you young folks," he said, "but I see you are already acquainted.'
+"I was looking for a chance to introduce you young folks," he said, "but I see you are already acquainted."
 
 No, I am afraid not, Mr. Garrett," I replied, smiling slightly. "But it makes both my girl friend and I sick to ride backward, and as one of these gentlemen was kind enough to invite me to sit here, I accepted, as I expect my girl friend to join me in a few minutes."
 
@@ -210,7 +210,7 @@ Well, Miss Emerson, what is the big secret?"
 
 "You said you had something to tell me," was his reply!
 
-"Oh," was my reply, "that was just a little piece of stradegy on my part. I could see how uncomfortable it was for all of us this morning.'
+"Oh," was my reply, "that was just a little piece of stradegy on my part. I could see how uncomfortable it was for all of us this morning."
 
 "I was perfectly comfortable," he said.
 
@@ -274,7 +274,7 @@ But I never would of done it had I of known the state of Mr. Garrett's feelings 
 
 Poor fellow, he blushed all the more when he saw that his face had betrayed his secret.
 
-"But it is not all right, Mr. Garrett," I said, "and I wish I could do something for you, but I fear it is hopeless.'
+"But it is not all right, Mr. Garrett," I said, "and I wish I could do something for you, but I fear it is hopeless."
 
 "Is there some one else?" he asked, his voice shaking.
 
@@ -414,7 +414,7 @@ Then I saw Kate, and went to her.
 
 "Kate," I said, "I do not believe there can be any explanation for you running off and leaving me in that place alone, but I want to hear what excuse you have got."
 
-"Girlie," she said, "I can never forgive myself, but I was so upset I hardly knew what I was doing.'
+"Girlie," she said, "I can never forgive myself, but I was so upset I hardly knew what I was doing."
 
 "But some one must of noticed my absence," I said.
 
@@ -448,7 +448,7 @@ Kate," I said coldly, "I thought you were my friend. Instead of that, you have s
 
 "Well," she said, "as far as I am concerned, you can have him."
 
-"Kate," I said coldly, "I see now that your friendship for me was merely a pose. But let me tell you that you will pose no longer. From now on you will do me a favor by not speaking to me. Henceforth you and myself are as strangers.'
+"Kate," I said coldly, "I see now that your friendship for me was merely a pose. But let me tell you that you will pose no longer. From now on you will do me a favor by not speaking to me. Henceforth you and myself are as strangers."
 
 "I am sorry you feel that way, girlie," was her reply, "but you must suit yourself."
 

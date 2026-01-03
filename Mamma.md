@@ -134,7 +134,7 @@ In the Travelers’ Aid Guest House, the woman was given a bath, a nightgown, an
 
 “Who are?”
 
-“My husband and Brother and Betty.’
+“My husband and Brother and Betty.”
 
 “Who are Brother and Betty?”
 

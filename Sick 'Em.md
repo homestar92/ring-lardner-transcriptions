@@ -184,7 +184,7 @@ He never said a word. He turned away from me like as if I’d ast him for a hund
 
 “Well,” says Red, “if I had hair as pretty as his’n I’d be proud of it too.”
 
-That shut up Smitty and he left the table. without finishin’ his Java; but he come to Red in the lobby an hour later and ast if he could work that afternoon! It took Red five minutes to come to. He hadn’t had no such request as that from nobody for pretty near three weeks, and Smitty was the last guy on earth he expected it from. You can bet he give his consent.
+That shut up Smitty and he left the table without finishin’ his Java; but he come to Red in the lobby an hour later and ast if he could work that afternoon! It took Red five minutes to come to. He hadn’t had no such request as that from nobody for pretty near three weeks, and Smitty was the last guy on earth he expected it from. You can bet he give his consent.
 
 When our grips come I went to my room to take a nap and a shave; but I didn’t get no nap. My new roomy, Fogarty, followed me in and begin talkin’ right away.
 
@@ -234,7 +234,7 @@ I wasn’t sure yet that success was goin’ to be permanent. Still, it was up t
 
 “Well,” I says, “I don’t see no harm in a few walks so long’s a feller can get ’em over when he has to. It’s pretty hard for a guy with all that smoke to control it right along.”
 
-“Yes,” he says; “but I claim it takes a lucky bird to give eight bases on balls and get away with the ball game. It don’t show no pitchin’ on his part; all it shows is that the other club’d ought to try some easier game than baseball. All they had to do was go up there without their bats and they’d of trimmed us; but they didn’t even make him pitch. It looked to me like as if their manager’d offered a prize to the one that could miss ’em the furthest. They looked like a vaudeville team rehearsin’ a club-swingin’ act. At that, Smitty’s got a big advantage over most pitchers. He’s so dam’ homely that. it scares a feller to look at him.”
+“Yes,” he says; “but I claim it takes a lucky bird to give eight bases on balls and get away with the ball game. It don’t show no pitchin’ on his part; all it shows is that the other club’d ought to try some easier game than baseball. All they had to do was go up there without their bats and they’d of trimmed us; but they didn’t even make him pitch. It looked to me like as if their manager’d offered a prize to the one that could miss ’em the furthest. They looked like a vaudeville team rehearsin’ a club-swingin’ act. At that, Smitty’s got a big advantage over most pitchers. He’s so dam’ homely that it scares a feller to look at him.”
 
 “If that’s a advantage,” I says, “nobody’d never even bunt one safe off o’ you.”
 
@@ -266,7 +266,7 @@ Well, I kept him goin’ till bedtime and all the next forenoon. He was out to t
 
 “Not me,” he says. “I ain’t delicate like some o’ these here pitchers. Work’s my middle name and you’ll find it out before I get through.”
 
-Say, they wasn’t no kick comin’ on the way he done the job! One o’ the St. Louis guys got as far as second base and was so surprised that Bill. caught him off o’ there flatfooted. Three little singles he give ’em and not a man did he walk. Bill told me afterward that it was fast one, fast, one, fast one, and hardly three hooks or spitters all through the game. Bill said them fast ones stung right through his big mitt like he’d been barehanded.
+Say, they wasn’t no kick comin’ on the way he done the job! One o’ the St. Louis guys got as far as second base and was so surprised that Bill caught him off o’ there flatfooted. Three little singles he give ’em and not a man did he walk. Bill told me afterward that it was fast one, fast, one, fast one, and hardly three hooks or spitters all through the game. Bill said them fast ones stung right through his big mitt like he’d been barehanded.
 
 And Smitty, on the bench, acted just like Fogarty’d did the day before. He called them St. Louis hitters everything he could think of. When the big Turk whiffed the hull side in the seventh Smitty was so sore he kicked a hole in the ball bag and throwed away his chew.
 
@@ -284,7 +284,7 @@ We was right up on the Giants’ heels by the first of August. Then Rixey and Al
 
 One day Smitty held the Brooklyn Club to six hits in a double-header and beat ’em both games. Fogarty ast me a hundred times in the next few days when we was goin’ to have another double-header. And a week before it come off he made Red promise to let him tackle it alone. It was agin the Cubs and he beat ’em clean as a whistle; but they got a couple more hits than Brooklyn’d made agin Smitty. So the big Turk was just as discontented as though he hadn’t did nothin’ at all. You ought to of heard Hank rave, though! He couldn’t figure how Red could get so much work out of a guy who’d been on his bench two or three months and hadn’t did nothin’ but sleep.
 
-But you know what they done. What I set out to tell you was how I and Pat kept ’em goin’. We soon found out that they wasn’t only jealous of each other’s looks and their pitchin’. Neither one o’ them would let the other have anything on him at all. If I’d make a remark about what a classy necktie Smitty was wearin’, Fogarty’d go out and buy the loudest one he could find. If Pat mentioned to Smitty that Fogarty. always kept his shoes shined up nice, Smitty’d sneak away to a shine parlor and make the boy work his fool head off fora hour. They just naturally hated each other and acted like a pair o’ grand opery stars or a couple o’ schoolgirls that was both tryin’ to be teacher’s pet.
+But you know what they done. What I set out to tell you was how I and Pat kept ’em goin’. We soon found out that they wasn’t only jealous of each other’s looks and their pitchin’. Neither one o’ them would let the other have anything on him at all. If I’d make a remark about what a classy necktie Smitty was wearin’, Fogarty’d go out and buy the loudest one he could find. If Pat mentioned to Smitty that Fogarty always kept his shoes shined up nice, Smitty’d sneak away to a shine parlor and make the boy work his fool head off fora hour. They just naturally hated each other and acted like a pair o’ grand opery stars or a couple o’ schoolgirls that was both tryin’ to be teacher’s pet.
 
 I and Pat would get together and figure out different things to rile’em up with. Pat was singin’ The River Shannon in the clubhouse one day. Fogarty was standin’ right by me.
 

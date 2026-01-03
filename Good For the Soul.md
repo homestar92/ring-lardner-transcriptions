@@ -522,7 +522,9 @@ They wasn't goin' to be no $2500 from Aunt Julia. Aunt Julia'd fell in love with
 
 "Well," I says, "maybe she'll get over it."
 
-"No, she won't," says Ethel, "and even if she did, I wouldn't take her old money." "Any high-class bank would give you new money for it," I says.
+"No, she won't," says Ethel, "and even if she did, I wouldn't take her old money."
+
+"Any high-class bank would give you new money for it," I says.
 
 "It ain't no time for jokin'," she says. "Everything's all over. We can't get married this year; maybe not for ten years; maybe never."
 

@@ -127,7 +127,13 @@ The starter wouldn't work and the driver had to get out and crank. The first thr
 
 "Where is it at? What street? What pier?"
 
-"I suppose I've got the number of the pier on my ticket, but it's a lot of trouble to get it out. I don't know what street it's on, but you certainly ought to." "What do you want to see Europe for? Ain't America good enough for you?" "Come on; let's go." "What's the use of going if you don't know where?"
+"I suppose I've got the number of the pier on my ticket, but it's a lot of trouble to get it out. I don't know what street it's on, but you certainly ought to."
+
+"What do you want to see Europe for? Ain't America good enough for you?"
+
+"Come on; let's go."
+
+"What's the use of going if you don't know where?"
 
 "Ask somebody where the Cunard pier is."
 
@@ -207,7 +213,9 @@ He wasn't listening and Miss Beasley had to get it herself. But when she sat dow
 
 "John, dear, I want to know all about you. I want to know your plans."
 
-"Well, we don't seem to be overwhelmed with money, so my first plan is to get a job." "That's just what I wanted you to say."
+"Well, we don't seem to be overwhelmed with money, so my first plan is to get a job."
+
+"That's just what I wanted you to say."
 
 "Why?"
 
@@ -444,7 +452,9 @@ Perhaps if it hadn't been for the market letter, John would have argued. As it w
 
 "All right, Miss Davenport. What have we said?"
 
-"'We do not like to advise you to buy stocks that are not likely to go higher or at least not go lower.'" "But we cannot help feeling a feeling of optimism."
+"'We do not like to advise you to buy stocks that are not likely to go higher or at least not go lower.'"
+
+"But we cannot help feeling a feeling of optimism."
 
 "How do you spell that last word?"
 

@@ -69,7 +69,7 @@ had to be brought off the ship in a wheel-chair. Get me a guy
 from some place abroad and I'm all set. I mean any place but
 England; when you mention an English champ, everybody
 thinks of Joe Beckett and takes it as a joke. If somebody would
-spring up in Spain or Greece or somewheres--But as long as
+spring up in Spain or Greece or somewheres⁠—But as long as
 none of those birds are in sight, we better begin figuring on what
 we've got here, and then it'll be a tough job to fix up some preliminary
 matches for them that ain't too silly and yet not too

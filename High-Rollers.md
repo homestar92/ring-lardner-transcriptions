@@ -47,11 +47,11 @@ with little Jack.
 
 "Last time I saw Peggy, she said why didn't we come
 out there this summer and at least rent, but of course
-then I knew it was impossible. Now, though---Well,
+then I knew it was impossible. Now, though⁠—Well,
 I can't imagine anything more ideal."
 
 Walter had been married ten years and his record of
-arguments was, total--3650; won, 0; lost, 3650. So it
+arguments was, total⁠—3650; won, 0; lost, 3650. So it
 was only half-heartedly that he pointed out the objections
 to his wife's plan: That Hampton Dunes was one
 of the "swellest" and most expensive places on Long
@@ -157,7 +157,7 @@ It seemed that Walter was filling in for Mr. Spears, who
 had accompanied his wife to Europe.
 
 It soon became an understood thing that the four
-families--the Parkers, Harts, Bowens and Finches--would
+families⁠—the Parkers, Harts, Bowens and Finches⁠—would
 spend their Friday, Saturday and Sunday evenings
 playing contract, at some house other than the Finches',
 which was too small. The men always played together
@@ -383,13 +383,13 @@ of their playmates' hospitality.
 
 "I suppose we've got to," said Walter.
 "But we certainly can't afford it. We
-haven't saved a dime all summer. If---"
+haven't saved a dime all summer. If⁠—"
 
 "If what?" demanded Marion.
 
 "If Jack and Hart and Parker would
 come across with what they owe me for
-bridge and golf---"
+bridge and golf⁠—"
 
 "How much do they owe you?"
 
@@ -560,7 +560,7 @@ it's true, that makes us so close to even
 that we might as well start all over."
 
 "Even my foot!" objected Hart. “You
-either owe me $240,000---"
+either owe me $240,000⁠—"
 
 "Or else," interrupted Parker, “you owe
 me $200,000. Now which is it?"

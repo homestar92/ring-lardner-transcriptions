@@ -1,7 +1,7 @@
 ## I
 ### It's the Only Life
 
-Chicago, May 3--  
+Chicago, May 3⁠—  
 Brother Charley.  I bet when you here what I & Grace has made up our minds you & Mary will wisht you was doing the same thing or may be you will follow our exampel & do the same thing & I hope you will because its the only way to live when you got childern.
 
 Charley we made up our minds to buy a place some wheres out in the subburbs & build a house not a grate big house of corse but a house where a man can move a round in with out bumping in to the walls all the wile and have enough ground so the childern wont half to be cooped up all the day like in a flat but can run around & get some exxersise.
@@ -15,7 +15,7 @@ I am going to get off tomorrow p m and Annies comeing over to look out for the b
 Kindest to Mary.  
 Fred A. Gross.
 
-Chicago, May 5--  
+Chicago, May 5⁠—  
 Brother Charley.   I dident think I would be writeing you this news so quick but we got our lot all ready & its out to Allison 16 mi. west of the Loop on the c d & x & it dont only take 4O min. for the trains to come in to town & it takes me 35 min. now to go in on the L.  We was going to look over all the subburbs but Allison was the 1st. 1 on the list & Grace got stuck on it right a way & so did I & we went a round with the real estate man & he showed us some swell lots & 1 that you couldent get a way from because it was big & roomy & 3 big trees on it that the real estate man says is maple & a real bargun because its 100 ft. frontidge & 150 ft. deep & only $1500 & we can pay for it when ever we get ready provideing its in side of 2 yrs. & thats easy.
 
 I had $100 a long with me when we went out & when I seen what a bargun we was gettin & the real estate man says we better hurry if we wanted it because some body else was libel to see it & cop it out so I give the real estate man the $100 to bind the bargun & he is going to get the papers fixed up today & then I will give him the other $700 we got saved in the bank & then we can borry the money to build the bungello & pay that back a mo. at a time & finnish up paying for the lot after words.  We figure that in 2 yrs. we will be all cleaned up & have our own home & not be worring a bout no rent onct a mo. & they'll be room for the kids to play a round all day with out no danger of them being ran over by a st. car or some thing.
@@ -25,7 +25,7 @@ I got a date with the real estate man to get the papers fixed up & must hurry do
 Kindest to Mary.  
 Fred A. Gross.
 
-Chicago, May 7--  
+Chicago, May 7⁠—  
 Dear Charley.   Well Charley I guess I was in to much of a hurry & it dont look now like we would start building this summer but will half to wait till later on.  I dident know how they done them things but found out that theys a lot of red tape & you cant do them things in no hurry like I thot.  The real estate man dident have no papers fixed up the day before yest. like he promused but had them fixed up yest. & he give me the warranty deed or what ever it is they call it & I give him my note for $700. for the rest of what we owe on the lot & the notes for 2yrs with 6% int. per annum & all so cost me $25. to get what they call a garantee polisy from the title & trust Co. which garantees that the title is o k & they cant no body take the lot a way from me un less I dont pay up the bal. which of corse I will pay up as soon is posable.
 
 Well after this was fixed up I went a round to the bank where I had my saveings at & went to the real estate dept. & seen the man there and asked him did they make building lones & the man says yes.  Well I says I want to borry $1200 to build a bungello out to Allison & he says do you own a lot & I says yes & he says let me take a look at your papers so I show him my papers & he says yes you own a lot all but paying $700 more on it.  I says yes but I own it because there is the deed & the garantee polisy & when I get threw paying you back what you lone me to build the house I will pay off the bal. on the lot & he says o no you wont because we dont do no busness that way & 1st. you got to pay off what you owe on the lot & then may be we can fix it up a bout a building lone but I wont promus nothing. Well I argude with him but nothing doing & when I come home & told Grace I thot shed cry her eyes out but finely we seen they wasent no use in that so all we can do now is save up & pay off the $700 we still owe on the lot & then we can start building & meen time we can be planing the bungello & we figure that we can save $30 per wk. in sted of $25 if we live pretty clost & can have the lot payed for in less than 6 mos. & that will be in Nov. & we can be all ready to start building & get the foundashun layed before real cold weather & then the carpenters can finnish up dureing the winter & we can be in the house next spring & we will half to renew our lease for 6 mos. but we dont care nothing a bout that because it aint so bad liveing in a flat dureing winter when the kids couldent be out much any way.
@@ -33,7 +33,7 @@ Well after this was fixed up I went a round to the bank where I had my saveings 
 Kindest rgds. to Mary.  
 F. A. Gross.
 
-Chicago, Nov. 2--  
+Chicago, Nov. 2⁠—  
 Brother Charley.   Well Charley we got our lot payed for sooner then we figured & its all payed for now because Graces old man come acrost on her berth day & give her $100 & says it was for her to buy cloths with but she says we would stick it right in to the lot & the old man wouldent never know the dffrence & I says all right thats fine.  But the man that owned the lot before we got it stuck us up for $20 int. & I dident see how they could be int. when we dident yet have the lot no where near a yr. but the real estate man says it was right & what could I do.
 
 But we aint going to build no bungello after all because Grace lerned from her brothers wife Gus Walters that bungellos was all out of date & no good & they wasent no room in them & if you was going to build a house why not build a good 1.  So we been talking to & young archateck & he says we can put up a swell 2 story house for $2000 & he will draw up the plans & see that the house is built o k & all we half to give him is 5% of what the house cost or $100 & he will over look the hole busness & hes a good archateck all right because he graduated out of the univ. & got his office way up on pretty near the top flr. of the Jackson bldg.   Him and Grace has been figureing out plans for the house all yest. & today & I am going down to the bank as soon as they get there plans all fixed up & the contrack let & fix up a bout the lone & they wont be no trouble a bout it now because I got the rec. in full for the lot & dont owe nothing.  The archateck says he will have the plans drawed up in a day or 2 & the contrack let before the end of the wk. & he says it should ought to be easy to get a contrackter cheap now because its the dull season & if the work is huryed a long they can get the foundashun in before real cold weather & the house finnished by the middle of march & our lease is till the 1 of May but may be I can get rid of it the 1 of march by sub leaseing it to some body else.
@@ -44,7 +44,7 @@ Kindest to Mary.
 
 Fred A. Gross.
 
-Chicago, Nov. 15--  
+Chicago, Nov. 15⁠—  
 Dear Charley.   Charley wear going to have some house.  The plans is drawed & the contrack let & there going to begin building tommorrow that is brakeing ground for the foundashun if I can get things fixed up down to the bank this p m.  Ive gave thie archateck $25 as 1st payment for his work & I dont half to give him the other $75 till 30 days after the house is done next march.
 
 I will tell you a bout the house Charley & you can see how swell wear going to be fixed up.  The house is going to have 7 rms. 3 down stares & 4 up stares.  Down stares they will be the parler & the dining rm. & kichen & up stares a rm. for I & Grace & a rm. for the kids & a rm. where you & Mary can sleep when you come to vissit us & a rm. for the hired girl if we ever have 1. Then of corse they will be a bath rm.  The house is 2 storys besides the cellar & the house is going to be wood painted green & a frt. & back porch.   It will be het with hot water from the boiler down cellar & besides we will have a fire place in the parlor. They will be gas & electrick lts. & all moderate conveenyenses.  Its going to be set bk. 50 ft. off the st. & that will give us a big lawn beside a big bk. yd. where we can have chickens & a garden.
@@ -54,7 +54,7 @@ Its all in the contrack & the contracker cant get a way from it because if he do
 Best rgds. to Mary.  
 F. A. Gross.
 
-Chicago, Nov. 16--  
+Chicago, Nov. 16⁠—  
 Brother Charley.   Well Charley I dont see how it is that these banks ever gos broke & blows up & they take a bout as many chances as the phone Co. that makes you put in your nickle before you get a hold of central. & here the papers keeps after us for not halling in all the stick up men they is on the sts. & dont never say nothing a bout halling in these here banks that is the worst stick ups they is.  I went down to the bank yest.   p m & seen the man in the lone dept. & showed him the lot was all payed for & I had the plans all fixed up for the house & he says how much is the house going to cost & I told him $2000 & then he stalled a round for ½ a hour & come back & asked me how much did I want to borry & I says $2000 & he says well we will lone you $2000 but not no more then that & I says who asked you to lone more then that & then he says let me see your contrack with the contrackter & I showed it to him & he says the only way we do busness is to have enough money to pay for evry thing includeing the extras & the archateck & all that & we do the paying down here to the bank & you dont have nothing to do with it but we keep the money and pay it out on the orders of the archateck.  I says all right that's all right with me & I wont half to worry a bout it.  He says you will half to indors the archatecks orders & I says all right.
 
 Then he got a pensil & a peace of paper & says how much do you owe the archateck & I told him & then he says they aint nothing in the contrack a bout electrick light fixtures or finnished hard ware or wall paper so I called up the archateck & he says no they dident never includ them things because they was picked out to sute our tast after the house was build.  So I come back from the phone & told the man we would pick them things out after words & pay for them our self & he says o no you wont because we got to have all the money here to cover all the expences.  I says well then add it up what you think it will be & I will borry that much more but he says no $2000 is all we can lone you.  I says well them things wont come for a long wile & meen time they can be building the house & long before they get it build I will give you the rest of the money but he says no your own moneys got to be payed out 1st. & ourn after words.  So I called up Grace & told her a bout it & she says how much extra will it be & I got the man to figure it up & he says the total would be $305 besides the $2000 & the extra $305 is $75 for the archateck & $70 for hard ware & $50 for wall paper & $50 for electrick lt. fixtures & $30 for insurence & $30 more for the banks comishan which I got to pay the bank for there trouble when Im the 1 thats haveing the trouble.  The insurence is for 5 yrs. & if the house burns the bank gets the insurence & I dont get nothing but I pay for the insurence & then besides all that they will be $25 more that the bank sokes me for geting an other garantee polisy for them self so they will be sure the title is o k & I all ready payed $25 to find out the same thing & Im satisfide but I got to pay for an other 1 for the bank.
@@ -63,7 +63,7 @@ Well Charley I got to dig up $330 some wheres & I dont know where it will be at 
 
 Fred A. Gross.
 
-Chicago, Nov. 20--  
+Chicago, Nov. 20⁠—  
 Brother Charley.   Wear started at last & Grace borryed the extra $330 off of her old man & Ive gave it to the bank & now they got it all tho there suposed to be loneing it to me & I pay the int. & the comishon & all that & dont never even see the money or dont know weather they is any or not.  But what do you think Charley the bank wont even let me pay it back when I get it but I got to wait 2 yrs. & ½ & pay int. all that time before I can pay it all up even if I should pick up a million dollars on the st. tomorrow & I cant pay so much per wk. but I got to pay it this way.  6% int. twict a yr. besides paying back on the prinsipal evry yr. for 5 yrs. unless I want to pay it all up in 2 & ½ yrs. & if I dont it will be $400 evry yr. for 5 yrs. besides the int. & yet the papers keeps after us and pans the life out of us because theys 1 or 2 stick up men a round town.
 
 I had to bring the contrackter to the bank with me & him & the man in the bank went over the contrack to gether & fixed up how he was going to get payed & he gets a little at a time & the sub contrackter hes hired for the diffrent parts of the house gets there money when ever the contrackter tells the archateck they got some comeing & then the archateck signs a order on the bank & I in dors the order but before the archateck signs the order he over looks the work & sees that its o k so I dont half to do no worring a bout that.
@@ -72,7 +72,7 @@ Well theys 1 good thing Charley I wont half to lay a side no $80 per wk. but wil
 
 Fred A. Gross.
 
-Chicago, Nov. 29--  
+Chicago, Nov. 29⁠—  
 Dear Charley.   Well Charley they started work on the house & what do you think they done right off the real. They dug the foundashun the rong way of the lot & now they got to do it all over again but it wont cost me nothing because its there own fault & they dug the foundashun like as if the long way of the house was going to run the way the st. & it dont run that way in the plans & they got to fill in part of what they dug out & do some more diging & it dont matter but it takes time & if they dont hurry up & get the foundashun layed the ground will be froze stiff & they cant get started before winter.  I told Grace to let them go a head & build the house the way they started but her and the archateck give me the laugh & so there going to have it did over.
 
 It snowed a little this a m but the archateck says that dont make no diffrence as long is it dont freez hard & the ground gets froze.  You see the foundashun is concreet & if it should get froze it might maybe crack some time & brake & give a way & the house might may be fall down on our head.
@@ -83,7 +83,7 @@ Kindest rgds. from I & Grace.
 
 F. A. Gross.
 
-Chicago, Dec. 23--  
+Chicago, Dec. 23⁠—  
 Brother Charley.   This is to wish you a mary xmas & Charley I know you will exxcus I & Grace from not sending nothing to you & Mary this yr. but this house building has got me on the jump & I cant spend a nickle on nothing this yr. Grace is sending little May a box of candy that she made her self & next xmas may be we will be better fixed & can send you some thing as usul but you can see where wear up against it this yr. & cant send nothing because things cost a hole lot more then I thot or I wouldent never of started to build.
 
 The latest is the archateck told me we should ought to do some gradeing on the lot a round the house because the weather was so good & then we wouldent have to do no gradeing in the spring but could get busy right a way & fix up the lawn & plant the grass seeds. Well I told Grace a bout it & she says it was in the contrack that the contrackter had to do the gradeing with the dirt that was dug out of the ground where the foundashun is at & I told the archateck a bout that & he says on acct of there diging the foundashun the rong way at the start they wasent no dirt left over because they had to fill in where they dug out and shouldent of dug so I had to go & get a hold of a man to come & do some gradeing a round the house & he stuck me up for $60 but thats all over now & out of the way.
@@ -96,7 +96,7 @@ Best wishes for a mary xmas to you & Mary & little May & kind rgds. & I know you
 
 Fred A. Gross.
 
-Chicago, Jan. 21--  
+Chicago, Jan. 21⁠—  
 Dear Charley.   They got me all most drove crazy & if any body ever says to you build a house bust them in the jaw.  The archateck keeps ringing me up on the phone all the wile a bout 5 times a day & asking do I want this or that & what do I know a bout it & he is getting payed for doing the worring but in sted of him doing it he lays it all off on to me, some times he wants to know do we want a tin or ivory bath tub & its in the contrack for us to have a ivory bath tub but when I tell him that he says I thot you might of wanted tin because ivorys going to cost more money & when I say what do I care what it costs because all I half to pay is what the contrack calls for then he says the price of ivorys went up & we cant put it in for the money I thot we could so I & Grace argu it out & then tell him to go a head & its $25 or $30 more or what ever it is.
 
 Then he keeps wanting me to tell him if we want this or that & how do I know what is it we want when its all in the contrack & he should ought to know with out bothering me.  & besides that the real estate man told me that taxes was pretty near nothing in Allison but I got notise to day that I owe $90 taxes & if thats pretty near nothing Im glad it aint no big amt.
@@ -109,7 +109,7 @@ Rgds. to Mary.
 
 F. A. Gross.
 
-Chicago, Feb. 2--  
+Chicago, Feb. 2⁠—  
 Brother Charley.   Well Charley Im up against it now right.  We was so busy down to the station & a round town that I dident get out to Allison for 2 wks. & I went out there yest. & went to the house & they wasent no body working & I seen 1 of the naybers & they says they hasent been no body working for a wk. tho the weathers been grand & they should ought to be husling on the job to get it finnished before the 1 of march.
 
 I called the archateck up & asked him what was comeing off & he says the contrackter couldent do no more till he got some more lumber & the lumber Co. wouldent let the contrackter have no more because it wouldent trust him for no more money & if I would garantee the money all right. What do you know a bout that Charley?
@@ -133,7 +133,7 @@ I hope the archateck can get a hold of a good carpenter right a way & rush the j
 Kindest to Mary.  
 Fred A. Gross.
 
-Chicago, Feb. 24--  
+Chicago, Feb. 24⁠—  
 Dear Charley.   What do you supose has come off now. the archateck is sick & cant be on the job no more & left the work to his cousin & how do I know weather the cousin knows a house from a box car but what can I do.  I asked the cousin what was the matter with the archateck & he says it was a nervous brake down & he thot he got sick worring a bout my house because evry thing had went rong.  I says he aint did no more worring then me & I dont even get payed for worring.
 
 Well the cousin is worse then the archateck a bout asking questions that I dont know nothing a bout what to anser & if asking questions made the archeteck sick his cousin wont live a wk.
@@ -144,7 +144,7 @@ Your lucky Charley that you aint in no jam like this & if any body ever pulls th
 
 F. A. Gross.
 
-Chicago, Feb. 27--  
+Chicago, Feb. 27⁠—  
 Brother Charley.   Well Charley we finely got the mill people a couple of swedes to bring there stuff a round but before they brung it I & they was down to the bank 4 times argueing & they was scared they wasent going to get there money because they had a contrack with the contrackter that blowed up on me & thot because they dident have no contrack with me I was going to beat them out of there stuff.
 
 The man at the bank kept telling them that the money was right there for them when they got there work delivered but that dident do no good & the swede was down there with me called the bank a lire & me a lire & a crook & I called him some things to only I couldent call him as bad as he is.
@@ -159,14 +159,14 @@ Rgds. to Mary.
 
 Fred A. Gross.
 
-Chicago, March 29--  
+Chicago, March 29⁠—  
 Brother Charley.   Well Charley we been held up again & this time it was the electrick lt. fixtures & Grace picked them out & they cost $100 in sted of the $50 we stuck in the bank to pay for them so the extra $50 comes out of my pocket & besides that the archetecks cousin says the contrack only calls for 2 cotes of paint on the out side of the house where they should ought to be 3 & he can get an other cote put on for $90 which is pretty nice of him.  & besides all that Im paying the carpenter now evry wk. for 5 wks. & all he gets per day is $5 so thats a bout $150 extra but if theys something left in the bank when they get all threw I will get it back or can leave it to apply on int.
 
 The archateck is still sick yet & I havnt saw his cousin the last couple wks. but I guess the carpenters doing things o k & as far as I can see a archateck might as well stay sick all the wile for all the good he is accept drawing pitchers of the new house before its build.
 
 F. A. Gross.
 
-Chicago, April 13--  
+Chicago, April 13⁠—  
 Dear Charley.  The house is pretty near finnished Charley & it looks fine & worth all the trouble & Grace come out with me to see it yest. & is plum nuts over it so evry things o k but my troubles isent over yet & heres the lattest.  The village of Allison has ordered us to put in a new cement sidewalk & we got to have a side walk up in to the yard up to the house as well as a long the st. & its going to cost a even $100.
 
 Well thats pretty bad but that aint nothing.  I asked a man a bout soing grass seeds & fixing up the yard & he says it must got to be graded 1st.  I says what do you mean graded & he says its all ups & downs & the ground a round the house is lower all ready then the ground out by the st.  I says it was in my contrack for the contrackter to grade the lot but he dident do it so I got an other man to grade it for $60.  He says well then you got stung for $60 because they hasent been no gradeing did that I can see.  I argude with him a bout it but he says he wouldent so no grass seeds or have anything to do with it un lest it was graded & he said he would grade it & put black dirt on it so as the grass would grow & all so put in a drive way of cement & gravvle all for $150.
@@ -179,7 +179,7 @@ F.A. Gross
 
 P. S. I put $70 in the bank to pay for the finnished hard ware all ready but some way the archatecks cousin got balled up & give some body some thing they dident have coming & the man at the bank reffused to pay the order for the finnished hard ware & I went down to see why not & he says all the money was drawed out all ready & they wasent nothing left.   I dont under stand it but I quit trying to under stand bout this here house.
 
-Allison, Ill., May 6--  
+Allison, Ill., May 6⁠—  
 Brother Charley.   I bet you wont never believe it but wear in our house & we been here 2 hole days.  The furniturs here & the movers busted it all to peaces but we dont mind a little thing like that.  Grace is tickled to death & as long as shes plesed its all o k but I got so much to do I aint got much time to write.
 
 I called up the archateck today to see would he come out & see if things looked o k to him but he was still sick yet but the cousin come out & we was haveing supper & he set down with us tho we dident have nothing to eat because the gas stove aint come yet & even if it come it wouldent do no good because the gas aint conected.  Well the archatecks cousin says the house looks o k to him accept that theys a few things the matter & should ought to be fixed up.  He says you got a mitey nice place here for $2000 besides what you payed for the lot.  I says where do you get that stuff $2000 besides what we payed for the lot.  We payed $1500 for the lot besides int. & I dont know how much more then $2000 the house is going to cost us but I bet its closter to $3000 & then I & him set down & figured it up.   They aint no chance now for getting the bank payed up before the 5 yrs. is up so 1st theys $2000 & then theys $320 int. on the $2000. Then theys $25 for the garantee polisy that I payed when I got the lot & $25 for an other 1 when I got the money at the bank.  And I payed for the finnished hard ware twict & thats $70 each time or $140.  Then I give the bank $30 for insurence & $30 for comishon & I give them $75 for my bal. on what I owed the archateck & the $25 I give him to start with & $50 for the wall paper.  That money I give them for the archateck & the wall paper was payed out some wheres else so I pay that twict & $60 for gradeing but that gradeing dident take so I payed $150 more for the same job the 2d. time & $50 for 2 extra closets in the house & $300 for the carpenter that done the work when the contrackter quit on me & $100 for cement walk & its all cracked all ready & $46 for moveing & storeing the furnitur & its all busted to peaces & $50 extra for electrick lt. fixtures because Grace seen some she liked & of corse they was the most expensiv & $30 for a extra cote of paint that I dont know weather we needed it or not & I dont know weather it was ever put on & $96 for our bord bill where we stayed at.
@@ -196,7 +196,7 @@ Rgds. to Mary.
 
 Fred A. Gross.
 
-Allison, Ill., June 25--  
+Allison, Ill., June 25⁠—  
 Brother Charley.   Well Charley we been liveing in the house a bout 6 wks. now & the gas stoves been here 4 days & I dont know how they remembered to bring it & we finely managed to get 2 of the windows open & its been frightful hot but we dont dare keep them open very long to a time because the screens isent here yet. We got the stove & the table both in the kitchen & they aint no danger of me going in the kitchen & bothering Grace because if I went in there it would take this here Houdini to get me out.
 
 Well Charley the archateck finely got all o k again and come out to see us & what do you think he pulled on me.  He says my cousin was telling me that your place cost $1600 more than you figured & I says yes it did.  So just as he was going he left me a bill for $80 & he says he was suposed to get 5% of the cost of the house & if they was $1600 extras he should ought to have $80 more. Do you know what I says to him.  I says wait a minut you got it figured rong.  I bought a lawn more today to cut the grass when it comes up & it cost me $8 so I think you should ought to add on 40 cents. Then I shut the door as clost as it will shut & he beat it & stopped out side to take some pitchers of the house & I supose he will try to soke me 5% of what it cost to get them pitchers developped.

@@ -48,7 +48,7 @@ you'll go ahead and name four or five guys that wants his
 game; that is, guys that's got enough chance with him so
 as they'd draw two hundred people at the gate."
 
-"Well," I said, "how about ---" I had to stop and
+"Well," I said, "how about⁠—" I had to stop and
 think.
 
 "Sure!" said Larry. "There you are! Now you'll get
@@ -806,7 +806,7 @@ over, why training for it wouldn't be such a
 grind. Jim would say to himself, 'Well, I
 guess I can lick him all right, but he's big
 and I better be in good shape. Because he
-might---' You know how it was that
+might⁠—' You know how it was that
 time. But this is different. Here's a guy
 that may be the greatest man in the world
 for his size. But look at his size and yet

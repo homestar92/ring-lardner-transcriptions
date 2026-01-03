@@ -1134,7 +1134,7 @@ I said kind of offhand:
 
 "Play easy now. Be sure you hit the
 ball. You remember, when we were in the
-ditch on the eighth ---"
+ditch on the eighth⁠—"
 
 He had a coughing spell and I waited till
 he was through with it. Then I begun
@@ -1142,7 +1142,7 @@ again:
 
 "When you're trying to loft a ball up
 over something you're liable to be nervous
-and miss it entirely. You did it on ---"
+and miss it entirely. You did it on⁠—"
 
 That's as far as I got. He didn't know
 what to say; but he had to say something.
@@ -1153,7 +1153,7 @@ I said:
 
 "I wouldn't change if I were you. It
 was a niblick you tried to get out of the
-ditch with, on the eighth, and ---"
+ditch with, on the eighth, and⁠—"
 
 He interrupted me.
 
@@ -1177,7 +1177,7 @@ ast me.
 "Yes, sir," I said; "and the ball I gave
 you is twenty cents. You'll find that's a
 mighty good ball. It don't even hurt it to
-lay in the water, like when we were ---"
+lay in the water, like when we were⁠—"
 
 He interrupted me again.
 
@@ -1209,14 +1209,14 @@ to where you could get a crack at it."
 So Jake said:
 
 "Why, don't you remember when you
-laid next to the woods ---"
+laid next to the woods⁠—"
 
 Mr. Conklin wasn't the only one with a
 bad cold.
 
 "You're even worse off now," said Jake,
 "than when you were laying against those
-trees on the eighth. And then ---"
+trees on the eighth. And then⁠—"
 
 Mr. Perkins had heard a-plenty. He went
 up to Jake, pretending to look in the bag for

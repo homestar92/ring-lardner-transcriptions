@@ -470,7 +470,7 @@ lookin' for your gloves."
 right in the spendin' mood now. His nieces and nephews
 and Mr. Wilson's peace note has relieved him o' the few
 hundreds he had left after last season. I wouldn't be surprised
-if he'd reconsider cuttin' your contract--maybe give
+if he'd reconsider cuttin' your contract⁠—maybe give
 you a bonus just for the devil of it."
 
 While we was talkin' Mr. Edwards come out from his
@@ -661,7 +661,7 @@ the difference!"
 "They's good money in a garage," says Bill.
 
 "I know it, and a whole lot of it's mine," I says. "They's
-good money in any business like that--smugglin' or counterfeitin'
+good money in any business like that⁠—smugglin' or counterfeitin'
 or snatchin' purses. But it must be hell on a
 man's conscience, even worse'n drawin' $6000 per annum
 for takin' a six months' nap on the old ball field."
@@ -685,7 +685,7 @@ needs us as much as we need him, and that he'll
 stand for the cut if he's got to. Besides, he's
 showed a mighty poor opinion o' me by expectin'
 me to believe all that junk about him goin'
-into business, and so on--stuff that was old
+into business, and so on⁠—stuff that was old
 in the Noah's Ark League. He couldn't earn
 a dime a day in anything outside o' baseball.
 If he had a factory that made shells

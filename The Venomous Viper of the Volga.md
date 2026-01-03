@@ -183,7 +183,7 @@ years old, that he had been born in Pennsylvania,
 that his father's ancestors were
 German and that his mother's people,
 way back, had lived in Russia. Prentiss
-was paying him thirty doll..rs a week, but
+was paying him thirty dollars a week, but
 his engagement was for one week only, as
 the Master found it possible and economical
 to break in a new silent sentry at each

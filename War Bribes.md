@@ -171,7 +171,7 @@ Your Bro.
 F. A. Gross.
 
 Allison. Ill. Nov. 15.  
-BRO. CHARLEY. Jest a short note Charley to tell you that Im threw with this stock markit game and they can take.there war bribes and the rest of there stocks and build a bond fire with them only of coarse they would half to have bonds and not stocks for a bond fire. You see I can still joke yet and make others smile though I dont see nothing to, smile a bout my self.
+BRO. CHARLEY. Jest a short note Charley to tell you that Im threw with this stock markit game and they can take there war bribes and the rest of there stocks and build a bond fire with them only of coarse they would half to have bonds and not stocks for a bond fire. You see I can still joke yet and make others smile though I dont see nothing to, smile a bout my self.
 
 Well Charley the maxwell commons cost me just a bout $200. Instead of them going up they dropped to $67.00 and the broker called me on the phone again and says he would half to see an other $100. So I says if you can see an other $100 on me its time you consulted a octopus.
 

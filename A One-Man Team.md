@@ -329,7 +329,7 @@ And in the dressing-room, when the game was history and his poor beaten boys had
 
 “Well,” said Harris, “it was queer that we scouts couldn’t see anything to their team but Davis. How we overlooked Byron and Moxey and those ends is beyond me.”
 
-“I wont apologize for overlooking them,” said Dana. “When I saw Doane play, all the ends did was.catch Davis’ throws, and all the half-backs did was protect Davis. The information I gave Coach was absolutely correct.”
+“I wont apologize for overlooking them,” said Dana. “When I saw Doane play, all the ends did was catch Davis’ throws, and all the half-backs did was protect Davis. The information I gave Coach was absolutely correct.”
 
 “All right,” said Harris, “and so was mine. When I scouted them, Davis was the only man besides the center and the ends who had his hands on the ball.”
 

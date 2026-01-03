@@ -38,7 +38,7 @@ Mrs. Knowles and Charlotte appeared at half past ten and found him in the living
 
 "Well, you might tell me what went on."
 
-"Oh, there were prayers and singing and the baccalaureate address by Doctor Stetson. He was perfectly wonderful"'"
+"Oh, there were prayers and singing and the baccalaureate address by Doctor Stetson. He was perfectly wonderful"
 
 "What did he say?"
 
@@ -231,11 +231,11 @@ He wasn't listening and Miss Beasley had to get it herself. But when she sat dow
 
 Charlotte had descended the stairs quietly and Beth, seeing her, released John's hand.
 
-"You caught us in the act, Charley," said Beth, trying to be embarrassed. 'But it isn't really serious. Just a reunion of two good pals."' She glanced at her watch. "Oh, I must rush! Daddy will kill me! Good-by, Charley. Good-by, John. You might tell your sister our scheme."
+"You caught us in the act, Charley," said Beth, trying to be embarrassed. "But it isn't really serious. Just a reunion of two good pals." She glanced at her watch. "Oh, I must rush! Daddy will kill me! Good-by, Charley. Good-by, John. You might tell your sister our scheme."
 
 "What's the matter with her?" asked John.
 
-"You know perfectly well," said Charlotte. "But tell me, what's the scheme?"'
+"You know perfectly well," said Charlotte. "But tell me, what's the scheme?"
 
 "She said her father wanted a young man in his office and that she could get me the job."
 

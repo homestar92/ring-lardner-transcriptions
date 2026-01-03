@@ -365,7 +365,7 @@ From New York, I crossed to Jersey by ferry and decided to enter Princeton, as i
 
 Our hockey season began inauspiciously. In the first place, the athletic association had neglected to provide a Puck and the local news-stands had sold out. On the opening night of practice, we played with a copy of Godey’s Lady’s Book, but it proved unwieldy. Moreover, it was an open winter in New Jersey and the lake was not frozen over.
 
-“There is no ice,” I said one evening to Bera Grudge, who had inquired how we were doing. ““We ought to have some ice.”
+“There is no ice,” I said one evening to Bera Grudge, who had inquired how we were doing. “We ought to have some ice.”
 
 “Ring for a bellboy,” was her view of the episode.
 

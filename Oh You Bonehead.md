@@ -18,7 +18,7 @@ he said:
 "'Dickie, I want to shake hands with you. You didn't
 quite put it over, but you gave 'em a good scare.'
 
-"Well, Dickie broke down then and cried worse than any
+"Well, Dickie broke down then and cried worse than any <!-- I think I need to add a single quote here - this would be an editorial change. -->
 of us; but the Coach kept right on smilin'.
 
 "'Don't let it bother you any more,' he said. 'We'll get
@@ -37,7 +37,7 @@ have licked 'em 7 to 3.'
 "'If it hadn't been for you,' said the Coach, 'they'd
 have licked us 20 to 0. Hurry up now, boys; get those
 suits off and quit thinkin' about it. You can do what you
-please to-night and to-morrow, and I'll see you Monday."
+please to-night and to-morrow, and I'll see you Monday.'"
 
 "What do you know about that!" Harris exclaimed.
 

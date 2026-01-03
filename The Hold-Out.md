@@ -540,7 +540,7 @@ was hustlin'," I says.
 "The more ground
 you cover, the more
 you're liable to kick
-'em round. Besides,""
+'em round. Besides,"
 I says, "he was so
 perfect that the
 scorers probably

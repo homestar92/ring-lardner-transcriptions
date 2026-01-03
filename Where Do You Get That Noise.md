@@ -1,6 +1,6 @@
 The trade was pulled wile the Phillies was here first trip. Without knockin' nobody, the two fellas we give was worth about as much as a front foot on Main Street, Belgium. And the fella we got had went better this spring than any time since he broke in. So when the news o' the deal come out I says to Dode, I says:
 
-"What's the matter with PaT⁠—tradin' Hawley? What's he goin' to do with them two he's gettin'-make ticket takers out of 'em? What's the idear?"
+"What's the matter with Pat—tradin' Hawley? What's he goin' to do with them two he's gettin'⁠—make ticket takers out of 'em? What's the idear?"
 
 "It does look like a bad swap for us," says Dode. "Hawley's worth six like them you're givin' us, and he ain't only twenty-seven years old."
 

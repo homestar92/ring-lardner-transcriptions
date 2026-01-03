@@ -90,7 +90,7 @@ Well, I mastered the art o’ drivin’ and still they wasn’t no signs o’ Sp
 
 “I’ll be there at noon,” says I, “and if you ain’t ready I’ll wait for you.”
 
-So on Saturday morning, on the way to work, I drove Mr. Swift Six down lookin’ for a garage to get him all primed up for my first real trip. ra read the ads of this Great East Auto School where they says everything’s half price ’cause the students does the work, only perfect under the supervision of expert teachers. So in I bobs, it bein’ handy.
+So on Saturday morning, on the way to work, I drove Mr. Swift Six down lookin’ for a garage to get him all primed up for my first real trip. I‘d read the ads of this Great East Auto School where they says everything’s half price ’cause the students does the work, only perfect under the supervision of expert teachers. So in I bobs, it bein’ handy.
 
 “Fill it up with gas,” I says, “and see if it needs oil, and that left rear tire looks like it could stand a little air. How soon can you get through with it?”
 

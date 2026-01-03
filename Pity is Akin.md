@@ -489,7 +489,7 @@ English, "that would lead you to believe
 Miss Moore was financially interested in
 the club?"
 
-"She spoke of it as 'her club.'"
+"She spoke of it as 'her club.' "
 
 "Do you belong to any club in Toledo?"
 

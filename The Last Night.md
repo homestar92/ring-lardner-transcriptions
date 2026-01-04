@@ -170,7 +170,7 @@ Before he had got fairly asleep, the taxi stopped in front of the Red Duck.
 
 “I don’t want nothing mild, but I don’t want to miss nothing. So bring it on.”
 
-And it happened that in George’s absence they began to dance, and a girl at the next table thought Mr. Arnold looked so. funny that she had to laugh at him just as the music started. And Mr. Arnold took the laugh as an invitation and went over there.
+And it happened that in George’s absence they began to dance, and a girl at the next table thought Mr. Arnold looked so funny that she had to laugh at him just as the music started. And Mr. Arnold took the laugh as an invitation and went over there.
 
 “Good evening,” he said.
 
@@ -180,7 +180,7 @@ Promptly arose the girl’s escort, a tall well-dressed young man.
 
 Mr. Arnold was embarrassed and said:
 
-“I beg your pardon. I deg your pardon.”
+“I beg your pardon. I *beg* your pardon.”
 
 “All right. Beat it!” said the youth.
 
@@ -310,7 +310,7 @@ Whereupon Walter handed Mr. Arnold his card.
 
 “All bets off. I know!”
 
-“The girl. rose from her chair. “Walter,” she said, “I’m tired. I’m going home.”
+“The girl rose from her chair. “Walter,” she said, “I’m tired. I’m going home.”
 
 “All right, if that’s the way you feel about it. I’ll call you a cab.”
 
@@ -428,7 +428,7 @@ Eddie was taking the third inning from the ticker when Mr. Arnold blew in.
 
 “And why aint you there to-day?”
 
-“Well, I'll tell you. It don’t seem right to go and watch a lot of fellas play ball when they’s a game across on the other side that really means something. And besides. a man can’t get no exercise setting in the bleachers.”
+“Well, I'll tell you. It don’t seem right to go and watch a lot of fellas play ball when they’s a game across on the other side that really means something. And besides, a man can’t get no exercise setting in the bleachers.”
 
 “Who in blazes wants exercise?”
 

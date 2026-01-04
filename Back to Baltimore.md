@@ -154,7 +154,7 @@ goin’ to Philly and he was settin’ acrost the aisle from I and Hub. He was r
 
 “Well, it come time for this final game and we knowed we had it won if Smith was all right. ‘The New Orleans club knowed it too, and they was out to get him. So when he got on in the first innin’ on a base on balls, their first baseman deliberately stepped on his foot and spiked him somethin’ awful. He couldn’t walk on that foot no more, but he wouldn’t quit, and after he’d drawed one of his bases of balls. every so often, he stole all the rest o’ the bases hoppin’ on his good foot.
 
-“It come along the twenty-first innin’ and the score was six to six. He’d scored every one of our six runs by walkin’ to first and then hoppin’ the rest o’ the way. Well, he walked in the twentyfirst and starts hoppin’ to second. ‘The catcher knowed they was no use to throw to second or to third neither, because Smith was so fast, even on foot, that he was bound to beat it. So the catcher just kept a hold o’ the ball. knowin’ Smith wouldn’t never stop till he got clear home. Along come Smith, hoppin’ for the plate, and the catcher run out to meet him, but he hopped clean over the catcher’s head and scored the run that beat ’em and won us the pennant. They was about sixty thousand people out there, and they tried to carry Smith off o’ the field on their shoulders, but he hopped into the club-house before they could catch him. And when he took off his shoe, two toes dropped out!”
+“It come along the twenty-first innin’ and the score was six to six. He’d scored every one of our six runs by walkin’ to first and then hoppin’ the rest o’ the way. Well, he walked in the twenty-first and starts hoppin’ to second. ‘The catcher knowed they was no use to throw to second or to third neither, because Smith was so fast, even on foot, that he was bound to beat it. So the catcher just kept a hold o’ the ball, knowin’ Smith wouldn’t never stop till he got clear home. Along come Smith, hoppin’ for the plate, and the catcher run out to meet him, but he hopped clean over the catcher’s head and scored the run that beat ’em and won us the pennant. They was about sixty thousand people out there, and they tried to carry Smith off o’ the field on their shoulders, but he hopped into the club-house before they could catch him. And when he took off his shoe, two toes dropped out!”
 
 “My!” says the colleger, with his mouth wide open. “I should say that was nerve. And didn’t this here Smith never get into the big league?”
 
@@ -172,7 +172,7 @@ I run into Williams one day and ast him when was the skirt goin’ to sell out, 
 
 It was after the mornin’ game on the Fourth o’ July that she horned in again. She tells me that her brother and bunch of his friends from Yale college is comin’ to the afternoon game, and they want to see their pal perform. I says I’d let him practice and they could watch him if they come out early enough, but she says, no, that wouldn’t do: some o’ them boys was sayin’ that they didn’t b’lieve he could play ball, and she wanted to show ’em that he could.
 
-Well, I thought awhile. and then I made up my mind that if he had to be gave some position, he might as well have mine and I could take a rest. So I tells the umps about the change and then I goes back to the bench and sits in a corner where they wasn’t nobody could see me.
+Well, I thought awhile, and then I made up my mind that if he had to be gave some position, he might as well have mine and I could take a rest. So I tells the umps about the change and then I goes back to the bench and sits in a corner where they wasn’t nobody could see me.
 
 I wisht you could of been there. The papers had a lot o’ stuff about it, but they didn’t tell more’n half. Hub was pitchin’ and we was playin’ Philly. He got the first two of ’em out, and then Cravath hits one down to the colleger on a perfect hop. I was lookin’ for him to throw it wild after he got it, but Pat Moran was coachin’ at first base, and he hollers to him to throw it to second. So what does he do but just like Pat tells him to, and naturally Maranville wasn’t there to cover because they wasn’t no play. So the ball goes out in the outfield, and Cravath got clear round to third base. Then Magee busts ohe, and they got a run. I thought Hub’d be sore, but he wasn't. When he come in to the bench, he was laughin’ his head off, and he says:
 
@@ -212,7 +212,7 @@ After I dressed. I forgot what I was doin’ and walked right out o’ the clubh
 
 “I didn’t take him out o’ no game.” I says. “The umps didn’t like his language.”
 
-Then she ast me what was the matter with his language. and I says I didn’t think the umps could understand it right.
+Then she ast me what was the matter with his language, and I says I didn’t think the umps could understand it right.
 
 “Well,” she says, “if a umpire can’t understand plain English, he should not ought to be no umpire, and I will write to the president o’ the league and have both o’ here men discharged.” Then she says: “Mr. Baker was doin’ splendid and would of did still better if he had of been left in longer. He didn’t catch all them balls that was throwed to him, but that’s because he aint had no practice.” Then she says: “I’m goin’ out of town to-night, but I want you to keep on lettin’ Mr. Baker play every day, and I’ll watch the papers, and if I see where he aint playin’, you'll hear from me.”
 
@@ -220,9 +220,9 @@ Then she ast me what was the matter with his language. and I says I didn’t thi
 
 Well, I couldn’t see no joke in it when I got home that night. The ball players was wise and knowed it wasn’t my fault. But I was a-scared that the bugs and these here reporters would vet after me if I let the boob play every day. And I was a little bit proud o’ the work we'd did and didn’t want to have it all wasted. I figured it all out, the way I was goin’ to get rid of him. I was goin’ to have one o’ the pit hers hit him with the ball in battin’ practice—not hard enough to kill him, but just so’s it would scare him out of baseball. I thought he couldn’t stand the gaff and would quit in a minute.
 
-I gets out there early the next mornin’ for practice and frames it up with Young. a big busher we had that was fast as a streak and hog wild. I sends him out to pitch to us and then tells the colleger to go up there and swing till he learned how to bat. It was prob’ly a dirty trick. but I couldn’t think o’ no other way.
+I gets out there early the next mornin’ for practice and frames it up with Young, a big busher we had that was fast as a streak and hog wild. I sends him out to pitch to us and then tells the colleger to go up there and swing till he learned how to bat. It was prob’ly a dirty trick, but I couldn’t think o’ no other way.
 
-Well. I pulled a boner when I says anything to this here Young. What I should ought to of did was say nothin’, but just stick him in there to pitch natural. and then he’d of hit the bird by accident. But when he was tryin’ to hit him, he couldn’t even come clost. He was tryin’ to be wild, and he pitched more strikes than he ever done before in his life. Gertrude didn’t hit nothin’, and nothin’ hit him. So fin’lly I give up and sent Young to the club-house and started the reg’lar practice.
+Well, I pulled a boner when I says anything to this here Young. What I should ought to of did was say nothin’, but just stick him in there to pitch natural, and then he’d of hit the bird by accident. But when he was tryin’ to hit him, he couldn’t even come clost. He was tryin’ to be wild, and he pitched more strikes than he ever done before in his life. Gertrude didn’t hit nothin’, and nothin’ hit him. So fin’lly I give up and sent Young to the club-house and started the reg’lar practice.
 
 Fallin’ down on that made me meaner’n ever, and I doped out something els I tells the colleger he stood too far from the plate when he swung at a ball. I says: “When you go up to bat in the game, keep one foot on the plate.” figurin’ that the guy that pitched for Philly would try to drive him away and either wound him or scare him to death.
 
@@ -230,9 +230,7 @@ Alexander worked for them, and Baker stood right on top o’ the plate. Dooin ca
 
 ***
 
-We was startin’ West again that night
-
-and I didn’t never expect him to show up for no trip. But there he was, down to the train, with his wagonload o’ scenery.
+We was startin’ West again that night and I didn’t never expect him to show up for no trip. But there he was, down to the train, with his wagonload o’ scenery.
 
 “Well,” I says, “you got your nerve.”
 
@@ -256,7 +254,7 @@ Then he says: “I can’t quit because I can’t afford to lose this here sal�
 
 I says: “What do you mean, you can’t afford? You had plenty o’ clo’es when you joined us,” I says, “and you must of had money o’ your own or you couldn’t of boughten them clo’es.”
 
-Then he says his old man give him a allowance of a hundred a month and he spent all o’ that on and that the old man had told him he. would double this here allowance if the boy showed he could earn five thousand bucks a vear when he got out o’ college. and the old man didn’t care how he earned it. So he'd told Mrs. Hayes the whole story and she’d tooken pity on him and give him the job. I ast him wasn’t they no other way he could “earn” the money, and he says he s’posed they was lots o’ ways, only this here way was easiest.
+Then he says his old man give him a allowance of a hundred a month and he spent all o’ that on his clo’es, and that the old man had told him he would double this here allowance if the boy showed he could earn five thousand bucks a year when he got out o’ college, and the old man didn’t care how he earned it. So he'd told Mrs. Hayes the whole story and she’d tooken pity on him and give him the job. I ast him wasn’t they no other way he could “earn” the money, and he says he s’posed they was lots o’ ways, only this here way was easiest.
 
 I says: “Yes, but you aint earnin’ nothin’ here. You might just as well stick fellas up on the street as draw a sal’ry as a ball player. You're stealin’ it either way.”
 
@@ -274,13 +272,13 @@ He told me, and I couldn’t hardly wait till I got back to the hotel.
 
 ***
 
-I don’t know now just what I wrote, but it was some letter. I told her we was a bunch o’ stews and that when we wasn’t lushin’ beer or playin’ poker. we was going to burlesque shows. I says her son was pickin’ up a awful bunch o’ language and drinkin’ his fool head off. I says he was stuck on a burlesque queen and was spendin’ all his dough on her. And I wound it up by sayin’ that Dixon, the manager, had killed his wife and they wasn’t no tellin’ when he’d cut loose and kill somebody else. I didn’t sign no name, but just put “From a Friend in Need” down at the bottom.
+I don’t know now just what I wrote, but it was some letter. I told her we was a bunch o’ stews and that when we wasn’t lushin’ beer or playin’ poker, we was going to burlesque shows. I says her son was pickin’ up a awful bunch o’ language and drinkin’ his fool head off. I says he was stuck on a burlesque queen and was spendin’ all his dough on her. And I wound it up by sayin’ that Dixon, the manager, had killed his wife and they wasn’t no tellin’ when he’d cut loose and kill somebody else. I didn’t sign no name, but just put “From a Friend in Need” down at the bottom.
 
 It was in your town that he heard from her, and he showed me the letter. She says he was to come home at oncet and that she’d made the old man promise to come through with a extra allowance without makin’ him do no work for it. But if he didn’t cut out the ball plavin’ and beat it wouldn't never get another nickel out o’ none o’ them. She hadn't no reason for writin’ this way, and he was up in the air. I told him we was sorry to lose him, but maybe it was best for him to quit playin’ ball, even if he hadn’t never started. He left us the second night in Chi. Hub was good and sore at me. He says I'd spoiled the season for him.
 
 I felt so good about gettin’ him off’n my hands that I went out there and plaved like Cobb or somebody the rest o’ the trip. Maybe you fellas remember how I hit ag’in’ you them last two days. I done even better’n that in Cincinnati and New York. It was the best trip we'd made in a good many years, and the bugs at home went crazy over us. They was ten thousand out to the first game of our serious at home with St. Louis—on a Thursday, at that.
 
-O’ course I knowed they'd be a argument with the skirt. Our winnin’ streak wouldn’t make her forget to ask me what had became o’ Baker. When she ast me, I sprung the stuff about him gettin’ a letter from his mother. but I didn’t tell her nothin’ about the letter I’d wrote. She didn’t have nothin’, but she looked pretty sore and forgot all about givin’ me the glad hand for what we’d did in the West.
+O’ course I knowed they'd be a argument with the skirt. Our winnin’ streak wouldn’t make her forget to ask me what had became o’ Baker. When she ast me, I sprung the stuff about him gettin’ a letter from his mother, but I didn’t tell her nothin’ about the letter I’d wrote. She didn’t have nothin’, but she looked pretty sore and forgot all about givin’ me the glad hand for what we’d did in the West.
 
 We done pretty well at home ag’in’ St. Louis and Pittsburgh. Then you fellas come along and I guess I don’t need to tell you that we was goin’ good. I was beginnin’ to think we mavbe might keep it up and throw a scare into some o” you birds.
 
@@ -290,7 +288,7 @@ She didn’t never come out to yesterday’s game, but I didn’t suspect nothin
 
 “No,” says Kelly, “she wants you right now.” So I took my unie off and beat it down there in a taxi. The girl in the front office told me to go right on in, and in I went. There was the dame, settin’ at the desk where poor old Hayes used to set. And they was two big coppers with her. Without sayin’ “How d’ya do” or nothin’, she opens right up on me and says:
 
-“These here officers is here to protect me. If you start somethin’, you'll get nothin’ but the worst of it.” Then pulls a letter out o’ the desk and says: “This here letter is from Mr. Baker’s mother. and in it she tells me why she made her boy come home. Somebody has tooken the trouble to tell her some fac’s about this here ball club—my ball club that I was proud of! But I aint proud of it no more. I aint proud o’ no gang o’ hoodlums that don’t do, nothin’ but gamble and drink and run round with actresses and lead young men astray.”
+“These here officers is here to protect me. If you start somethin’, you'll get nothin’ but the worst of it.” Then pulls a letter out o’ the desk and says: “This here letter is from Mr. Baker’s mother, and in it she tells me why she made her boy come home. Somebody has tooken the trouble to tell her some fac’s about this here ball club⁠—my ball club that I was proud of! But I aint proud of it no more. I aint proud o’ no gang o’ hoodlums that don’t do, nothin’ but gamble and drink and run round with actresses and lead young men astray.”
 
 “Is that all?” I says.
 
@@ -298,7 +296,7 @@ She didn’t never come out to yesterday’s game, but I didn’t suspect nothin
 
 “That’s a whole lot o’ bunk,” I says. “I didn’t never have : how could I kill my wife when I didn’t never have none?”
 
-“Don’t lie to me!” she Says. “Even if you didn’t never have no wife. you killed somebody, maybe a innocent girl that Was wronged.”
+“Don’t lie to me!” she Says. “Even if you didn’t never have no wife, you killed somebody, maybe a innocent girl that Was wronged.”
 
 “Cut the comedy,” I says. “They’s nothin’ to that stuff. Somebody's went and gave the old lady a bum steer.”
 
@@ -314,9 +312,9 @@ She didn’t never come out to yesterday’s game, but I didn’t suspect nothin
 
 Then I says: “Is the seamstress comin’ back?”
 
-“The who?” she hollers.
+“The *who*?” she hollers.
 
-“That there colleger,” I says. “If I was you, I’d get him back, because you and him is certainly a grand combination. It’s hard to tell which one o’ you knows the most about baseball. you or that bird. Even if you couldn't use him as no ball player, you could chop up his head and build a new grandstand.”
+“That there colleger,” I says. “If I was you, I’d get him back, because you and him is certainly a grand combination. It’s hard to tell which one o’ you knows the most about baseball, you or that bird. Even if you couldn't use him as no ball player, you could chop up his head and build a new grandstand.”
 
 “He was smart enough to go through Yale college,” she says.
 

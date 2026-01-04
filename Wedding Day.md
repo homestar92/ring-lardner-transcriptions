@@ -222,7 +222,7 @@ They rose and drank to Brownie and then to the groom.
 
 "It would be a tough spot, following you, with the audience completely laughed out."
 
-Jimmy was not to be held off any longer. He got up. took a swallow of wine and began:
+Jimmy was not to be held off any longer. He got up, took a swallow of wine and began:
 
 "Girls and boys, I don't have to tell you that this is the happiest day of my life. You all know what I think of Brownie and how happy I am over she and I finally being married, but to complete our happiness we wanted you good pals with us to share our happiness.
 

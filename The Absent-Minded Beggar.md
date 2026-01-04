@@ -588,13 +588,13 @@ Irene noticed the servant still hovering.
 
 "Oh, hush! Come up now and I'll show you your room. And of course you won't have to dress because you'll be dining all alone."
 
-He followed her up the stairs and was properly introduced to Mrs. Parrish, whom they met in the hall. Explanations followed and the hostess acted as if she were glad he had come. clothes that were not quite so wrinkled, then
+He followed her up the stairs and was properly introduced to Mrs. Parrish, whom they met in the hall. Explanations followed and the hostess acted as if she were glad he had come.
 
-John went to his room, changed into some sat and waited for events. He was not in the least conscience-stricken about Wallie Blair.
+John went to his room, changed into some clothes that were not quite so wrinkled, then sat and waited for events. He was not in the least conscience-stricken about Wallie Blair.
 
 He would go over after dinner and give a special version of what had happened. What really had happened was that he was in love for the first time in his life and it was impossible for him to resist Irene's voice and eyes.
 
-He was summoned downstairs, where he found Mrs. Parrish, Sam Drake and Irene in evening dress. They all had cocktails, Sam drinking five as fast as he could get them down. uttered a word during his exhibition of rapid He had greeted John very coldly and had not guzzling. Mrs. Parrish took him to task:
+He was summoned downstairs, where he found Mrs. Parrish, Sam Drake and Irene in evening dress. They all had cocktails, Sam drinking five as fast as he could get them down. He had greeted John very coldly and had not uttered a word during his exhibition of rapid guzzling. Mrs. Parrish took him to task:
 
 "Sam, you're an old grouch! Get happy and tell us a story."
 

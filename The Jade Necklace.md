@@ -28,7 +28,7 @@ So Harry says: “Well, I don’t know if you’ve heard this one or not, but on
 
 He didn’t get any further with it. L. N. explained that he wasn’t looking for a gag, but a real Irish romance that you could use as a vehicle for a fine-looking Paddy. Harry made a couple of suggestions—I forget what they were, and L. N. couldn’t spell them so he didn’t write them down.
 
-The two big boys kept getting more and more nervous till they had us all jumping sideways and ready. to quit; nothing we did suited them. They’re generally pretty good people to work for, but they were so scared Supreme was going to put Byrne over that they began ranting around like a couple of motorcycle cops.
+The two big boys kept getting more and more nervous till they had us all jumping sideways and ready to quit; nothing we did suited them. They’re generally pretty good people to work for, but they were so scared Supreme was going to put Byrne over that they began ranting around like a couple of motorcycle cops.
 
 Then one day L. N. was sitting at his desk spelling out the picture news in the morning paper and all of a sudden he gave a yell and told me to run and get Wolf. When Wolf came in, Bauer was so excited that his voice shook.
 

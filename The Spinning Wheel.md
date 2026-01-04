@@ -100,7 +100,7 @@ The others said it was a great hunch.
 
 “But you’re flattering me,” says Mrs. Hunt. “I hate to confess it, but I’ll have to play Number Thirty.”
 
-So she put two five-dollar checks on No. 30. in No. 34.
+So she put two five-dollar checks on No. 30. The ball stopped in No. 34.
 
 “Double up on ’em,” says the fella that had had the hunch.
 

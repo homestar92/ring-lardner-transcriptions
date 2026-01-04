@@ -932,7 +932,7 @@ The tights worn by chorus girls in old time burlesque shows came to be regarded 
 
 It was Mayor Walker who called me in to make suggestions. After a day’s thought I concocted the following plan: To make it compulsory for all members of the audience to disrobe utterly before entering the theater.
 
-At first, the Mayor could not see that this would make matters any better, but I quickly convinced him. As soon as the ordinance was passed, attendance at shows fell off so lamentably that most of the productions were obliged to close. It was really surprising, even. to me, to note the number of citizens who refused to undress before presenting their seat checks to the ushers. Most of them complained that the play houses were too drafty.
+At first, the Mayor could not see that this would make matters any better, but I quickly convinced him. As soon as the ordinance was passed, attendance at shows fell off so lamentably that most of the productions were obliged to close. It was really surprising, even to me, to note the number of citizens who refused to undress before presenting their seat checks to the ushers. Most of them complained that the play houses were too drafty.
 
 At any rate, the producing managers’ association soon petitioned the Mayor to have the ordinance wiped off the books and a compromise was readily effected whereby the audiences were permitted to remain clothed again provided the actors did likewise.
 

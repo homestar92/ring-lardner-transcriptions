@@ -27,7 +27,7 @@ Nearly every day, in nearly every paper, there was mention of Roman, and the the
 
 “I believe Art thrives on love, that the appealing emotional quality which, kind friends assure me, is now present in my voice would be increased an hundredfold were I suddenly to find myself submerged in a sea of Passion.
 
-“’Twere futile to go in search of this inspiring rapture. Nor am I sure the impetus to. my art would be worth the pain it might bring me. Yet I will not retreat from love’s advance. When I meet the one girl, the woman I have dreamed of, my arms will be open. If she turns away, so much the worse for me. And, I fancy, so much the better for my career.”
+“’Twere futile to go in search of this inspiring rapture. Nor am I sure the impetus to my art would be worth the pain it might bring me. Yet I will not retreat from love’s advance. When I meet the one girl, the woman I have dreamed of, my arms will be open. If she turns away, so much the worse for me. And, I fancy, so much the better for my career.”
 
 Hilda hoped he was wrong about the advantages of disappointment. Because if she happened to be the woman he had dreamed of, and if his arms happened to be open when they met⁠—well, she certainly would never detour for his Art’s sake.
 

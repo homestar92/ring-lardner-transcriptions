@@ -1,10 +1,10 @@
 Well, boys, I’m goin’ right through to Pittsburgh with you if you don’t mind, and I aint been traded to your bunch nor the Pirates neither. It’ll be in all the papers to-night or to-morrow mornin’, so they aint no use o’ me keepin’ it a secret. I’ve jumped to the Baltimore Feds, and whether Knabe is figurin’ on usin’ me regular or settin’ me on the bench or givin’ me a job washin’ undershirts, 1 don’t know or I don’t givadam. I couldn’t be no worse off than I was up there.
 
-Managin’ a club may be all O.K. if the directors is all bachelors and has all o’ them tooken a oath not to never get married. But when a man’s got a wife, they aint no tellin’ when he’s goin’ to die, and when he dies and she gets a hold o’ the ball club, good night. If they ever is a skirt elected President o’ the United States, I'll move to Paris or Europe or somewheres, if I have to walk.
+Managin’ a club may be all O.K. if the directors is all bachelors and has all o’ them tooken a oath not to never get married. But when a man’s got a wife, they aint no tellin’ when he’s goin’ to die, and when he dies and she gets a hold o’ the ball club, *good night*. If they ever is a skirt elected President o’ the United States, I'll move to Paris or Europe or somewheres, if I have to walk.
 
 As for this here Mrs. Hayes, the dope about her lettin’ the directors run the club was all bunk. She’s been the boss ever since the old bird croaked, or else I'd of stuck there and finished higher with that gang than they finished since Frank Selee had ’em.
 
-Well, sir, I’m canned out of a managin’ job, and I’m through with the big league, I guess, and I’m goin’ back where I started in at—Baltimore. But you don’t need to waste no sympathy on me. I’m gettin’ as much dough as they give me up there, and they wont be no chancet o’ me bein’ drove crazy by a skirt. Them Baltimore people used to like me O.K. when Dunnie had me, and I guess I aint did nothin’ since to make ’em sore. I'll give ’em the best I got, and I'll let Knabe do all the worryin’. I’m off’n that stuff, and if any boob ever offers me another managin’ job, I'll bean him with a crowbar or somethin’.
+Well, sir, I’m canned out of a managin’ job, and I’m through with the big league, I guess, and I’m goin’ back where I started in at⁠—Baltimore. But you don’t need to waste no sympathy on me. I’m gettin’ as much dough as they give me up there, and they wont be no chancet o’ me bein’ drove crazy by a skirt. Them Baltimore people used to like me O.K. when Dunnie had me, and I guess I aint did nothin’ since to make ’em sore. I'll give ’em the best I got, and I'll let Knabe do all the worryin’. I’m off’n that stuff, and if any boob ever offers me another managin’ job, I'll bean him with a crowbar or somethin’.
 
 I bet you'll see in a few days where Mrs. Hayes gets through bein’ a widow, and her next name’s goin’ to be Mrs. William Baker Junior. They aint no danger o’ me forgettin’ that name. The guy that owns it is a ball player, but the only thing alike about he and the Baker Connie Mack’s got is that they both listen with their ears. You fellas didn't never get a look at this bird because he was so good that we didn’t only play him in one game, and that was against the Philly club. If him and her does hook up, he wont need to play no more. With them runnin’ the team together, they'll be enough comedy without him puttin’ on a uniform any more.
 
@@ -32,7 +32,7 @@ Then she ast me was it tough luck or rotten ball playin’, and I says it was so
 
 “We'll try and stren’then your team. I and Mr. Williams, the vice president, has decided we got to spend some dough for new players. I have gave Mr. Sullivan orders to go scoutin’ round the colleges.”
 
-“Lay off’n the colleges,” I says. “We don’t need no more ornaments. What we should ought to have is some ball players. Besides that, you can’t buy no men off’n the colleges. ‘They don’t sell ’em.”
+“Lay off’n the colleges,” I says. “We don’t need no more ornaments. What we should ought to have is some ball players. Besides that, you can’t buy no men off’n the colleges. They don’t sell ’em.”
 
 She says: “I guess we can get a hold of ’em if we slip ’em big sal’ries.” Then she says: “I’d like to make this here club a team of gentlemen, and they’re more gentlemen in the colleges than anywheres else.”
 
@@ -50,7 +50,7 @@ The skirt had been travelin’ a lot and hadn’t gave me no bother to speak of.
 
 “Mr. Dixon,” she says, “this would be a good place for a home run.”
 
-I says: “Yes, this is the right spot. I spose you’d like to see me hit one.”
+I says: “Yes, this is the right spot. I s’pose you’d like to see me hit one.”
 
 “You bet I would,” she says.
 
@@ -92,7 +92,7 @@ I ast her did she mean five thousand for five years, and she says: “No, I mean
 
 Then I says: “That’s as much as I’m gettin’, and this here guy aint even made good vet.”
 
-“He'll make good all right,” she says. “You can tell that from just lookin’ at him, and he comes off’n a good fam'ly.”
+“He'll make good all right,” she says. “You can tell that from just lookin’ at him, and he comes off’n a good fam’ly.”
 
 ***
 
@@ -248,7 +248,7 @@ He ast me the next afternoon why didn’t I let him play, and I says:
 
 “Mrs. Hayes thinks I’m all O.K.,” he says.
 
-“Yes,” I says, “and you could start one o’ these here Carnegie liberries with what she don’t know about baseball.” I says: “Why don’t you quit?”
+“Yes,” I says, “and you could start one o’ these here Carnegie li-berries with what she don’t know about baseball.” I says: “Why don’t you quit?”
 
 Then he says: “I can’t quit because I can’t afford to lose this here sal’ry.”
 
@@ -288,7 +288,7 @@ She didn’t never come out to yesterday’s game, but I didn’t suspect nothin
 
 “No,” says Kelly, “she wants you right now.” So I took my unie off and beat it down there in a taxi. The girl in the front office told me to go right on in, and in I went. There was the dame, settin’ at the desk where poor old Hayes used to set. And they was two big coppers with her. Without sayin’ “How d’ya do” or nothin’, she opens right up on me and says:
 
-“These here officers is here to protect me. If you start somethin’, you'll get nothin’ but the worst of it.” Then pulls a letter out o’ the desk and says: “This here letter is from Mr. Baker’s mother, and in it she tells me why she made her boy come home. Somebody has tooken the trouble to tell her some fac’s about this here ball club⁠—my ball club that I was proud of! But I aint proud of it no more. I aint proud o’ no gang o’ hoodlums that don’t do, nothin’ but gamble and drink and run round with actresses and lead young men astray.”
+“These here officers is here to protect me. If you start somethin’, you'll get nothin’ but the worst of it.” Then pulls a letter out o’ the desk and says: “This here letter is from Mr. Baker’s mother, and in it she tells me why she made her boy come home. Somebody has tooken the trouble to tell her some fac’s about this here ball club⁠—*my* ball club that I was proud of! But I aint proud of it no more. I aint proud o’ no gang o’ hoodlums that don’t do, nothin’ but gamble and drink and run round with actresses and lead young men astray.”
 
 “Is that all?” I says.
 

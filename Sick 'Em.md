@@ -194,7 +194,7 @@ When our grips come I went to my room to take a nap and a shave; but I didn’t 
 
 “How about the female population?” he ast. “Lots o’ good lookers?”
 
-“Well,” I says, “I guess there’s plenty o’ pretty girls; but I’m a married man and IJ ain’t got no time for ’em. If you’re after information on that subject you better ast Smitty.”
+“Well,” I says, “I guess there’s plenty o’ pretty girls; but I’m a married man and I ain’t got no time for ’em. If you’re after information on that subject you better ast Smitty.”
 
 “Smitty!” he says. “What does he know about girls?”
 

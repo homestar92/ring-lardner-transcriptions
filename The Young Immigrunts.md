@@ -310,7 +310,7 @@ Smith replid my father who seams to know everything.
 
 Queer name said my mother sulkily.
 
-Soon we puled up along side a policeman who my father arsked how do we get acrost the river to the New York road and if Albany pays their policemans by the word[**P3 .?] Ill say we were in the presents of a rich man and by the time he got through it was dark and still drooling and my old man didnt know the road and under those conditions I will not repete the conversation that transpired between Albany and Hudson but will end my chapter at the city limits of the last named settlemunt.
+Soon we puled up along side a policeman who my father arsked how do we get acrost the river to the New York road and if Albany pays their policemans by the word Ill say we were in the presents of a rich man and by the time he got through it was dark and still drooling and my old man didnt know the road and under those conditions I will not repete the conversation that transpired between Albany and Hudson but will end my chapter at the city limits of the last named settlemunt.
 
 ## CHAPTER 7
 ### Hudson
@@ -331,7 +331,7 @@ Where do you get it around here arsked my father tenderly.
 
 We have no rooms replid the senile clerk paying no tension to my old mans remark but there is a woman acrost the st that takes loggers.
 
-Not to excess I hope replid my father but soon we went acrost the st and the woman agrede to hord[**P3 bord?] us for the night so myself and mother went to our apartmunts wilst my father and the 12 year old besought the garage. When we finley got reunited and went back to the hotel for supper it was past 8 oclock as a person could of told from the viands. Latter in front of our loggings we again met the young man who had welcomed us to Hudson and called my father to 1 side.
+Not to excess I hope replid my father but soon we went acrost the st and the woman agrede to hord us for the night so myself and mother went to our apartmunts wilst my father and the 12 year old besought the garage. When we finley got reunited and went back to the hotel for supper it was past 8 oclock as a person could of told from the viands. Latter in front of our loggings we again met the young man who had welcomed us to Hudson and called my father to 1 side.
 
 There is a sailer going to spend the night here he said in a horse wisper witch has walked all the way from his home Schenectady and he has got to report on his ship in New York tomorrow afternoon and has got no money so if he dont get a free ride he will be up vs it.
 

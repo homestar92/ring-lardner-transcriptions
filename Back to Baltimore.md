@@ -80,7 +80,7 @@ She says: “His name is Mr. Baker, and he has just went through Yale. He will m
 
 Then I ast her what position did he play, and she says: “He aint made up his mind yet. He has been busy learnin’ his lessons.”
 
-Then I ast her wasn’t he on the Yale team, and she says: “No, but he could of been of been if he had of wanted to. The coach told him so, but he didn’t have no time to play. You could tell the minute you seen him that he was a born ath-a-lete and he’s a gentleman too, and I blieve he will help you in more ways than just one way.”
+Then I ast her wasn’t he on the Yale team, and she says: “No, but he could of been of been if he had of wanted to. The coach told him so, but he didn’t have no time to play. You could tell the minute you seen him that he was a born ath-a-lete and he’s a gentleman too, and I b’lieve he will help you in more ways than just one way.”
 
 “Well,” I says, “they’s only one way he could help us and that is to get in there and play ball. If he can do that, I don’t care if he’s a gentleman or a policeman.”
 
@@ -134,9 +134,9 @@ I stuck him in the outfield in fieldin’ practice, but he looked so rotten that
 
 “You've did enough for one day, so go in and change your clo’es and you can watch the game from the stand. Maybe you'll run acrost that crowd I give you the passes for.”
 
-He was willin’ to quit, all right, and the fun was over fer the day. After the game, I send a long telegram to Williams, the vice president, and tells him what a joke our new player was and that it was throwin’ money away to even pay his board, let alone that Fed’ral League sal’rv he was gettin’. I didn’t get no answer from Williams, but a letter come from the skirt. She give me a call for not sendin’ the telegram to her instead o’ Williams and ast me how could I judge if a man was a ball player when I hadn't only saw him one day.
+He was willin’ to quit, all right, and the fun was over fer the day. After the game, I send a long telegram to Williams, the vice president, and tells him what a joke our new player was and that it was throwin’ money away to even pay his board, let alone that Fed’ral League sal’ry he was gettin’. I didn’t get no answer from Williams, but a letter come from the skirt. She give me a call for not sendin’ the telegram to her instead o’ Williams and ast me how could I judge if a man was a ball player when I hadn't only saw him one day.
 
-Well, I wires to Williams that I was through, because I’d signed to manage a ball club and not to run no burlesque show, but he jumps on a train and comes over to New York to see me. He says they was trvin’ to get her to sell out her stock and that him and the other directors appreciated what I’d did for the club and wanted me to stick.
+Well, I wires to Williams that I was through, because I’d signed to manage a ball club and not to run no burlesque show, but he jumps on a train and comes over to New York to see me. He says they was tryin’ to get her to sell out her stock and that him and the other directors appreciated what I’d did for the club and wanted me to stick.
 
 So I stuck and went along the best I could. I didn’t pay no more attention to “Gertie” except to tell him to beat it to the club-house before the games started. He kept on comin’ out to the park, wherever we was playin’, and puttin’ on his unie, without no cap, and settin’ on the bench till the practice was over. Then he’d go in and put on one of his eight or nine different suits o’ clo’es, and go up in the stand and watch the game from there or else go to the matinée or somewheres.
 
@@ -160,7 +160,7 @@ I remember one night when we was goin’ to Philly and he was settin’ acrost t
 
 ***
 
-After that, Baker and Hub hung round together all the time. He fell for everything Hub told him, no matter how raw. He was givin’ Hub a good time, and it’d ’ve been all right if we could of staved on the road all the while, but I knowed when we got home, the doll’d ast me why wasn’t I playin’ him and then the trouble’d start.
+After that, Baker and Hub hung round together all the time. He fell for everything Hub told him, no matter how raw. He was givin’ Hub a good time, and it’d ’ve been all right if we could of stayed on the road all the while, but I knowed when we got home, the doll’d ast me why wasn’t I playin’ him and then the trouble’d start.
 
 Sure enough, when we come in off o’ the trip, she called me to the office and put it up to me.
 
@@ -222,7 +222,7 @@ Then she ast me what was the matter with his language, and I says I didn’t thi
 
 ***
 
-Well, I couldn’t see no joke in it when I got home that night. The ball players was wise and knowed it wasn’t my fault. But I was a-scared that the bugs and these here reporters would vet after me if I let the boob play every day. And I was a little bit proud o’ the work we'd did and didn’t want to have it all wasted. I figured it all out, the way I was goin’ to get rid of him. I was goin’ to have one o’ the pit hers hit him with the ball in battin’ practice—not hard enough to kill him, but just so’s it would scare him out of baseball. I thought he couldn’t stand the gaff and would quit in a minute.
+Well, I couldn’t see no joke in it when I got home that night. The ball players was wise and knowed it wasn’t my fault. But I was a-scared that the bugs and these here reporters would get after me if I let the boob play every day. And I was a little bit proud o’ the work we'd did and didn’t want to have it all wasted. I figured it all out, the way I was goin’ to get rid of him. I was goin’ to have one o’ the pit hers hit him with the ball in battin’ practice—not hard enough to kill him, but just so’s it would scare him out of baseball. I thought he couldn’t stand the gaff and would quit in a minute.
 
 I gets out there early the next mornin’ for practice and frames it up with Young, a big busher we had that was fast as a streak and hog wild. I sends him out to pitch to us and then tells the colleger to go up there and swing till he learned how to bat. It was prob’ly a dirty trick, but I couldn’t think o’ no other way.
 
@@ -242,7 +242,7 @@ We was startin’ West again that night and I didn’t never expect him to show 
 
 He was still thinkin’ about that one-legged guy in the Southern League.
 
-We opened up in Pittsburgh, and I kept him on the bench. I knewed Mrs. Haves would wire and ask me why wasn’t he playin’, and when she did, I wrote to her sayin’ he was hurt by that there blow on the head. But that alibi wouldn't get by very long, and I figured I’d have to frame somethin’ new.
+We opened up in Pittsburgh, and I kept him on the bench. I knewed Mrs. Hayes would wire and ask me why wasn’t he playin’, and when she did, I wrote to her sayin’ he was hurt by that there blow on the head. But that alibi wouldn't get by very long, and I figured I’d have to frame somethin’ new.
 
 The first night in St. Louis, I thought up somethin’ and got Doc, the trainer, to help me pull it. I buys two tickets to a show and gives ’em to Doc with instructions to ask the colleger to go along. After the show, they was to go to Tony’s for lunch. He was to order two beers, and then I was to drop in and catch Baker with a big stein in front of him. Then I was to swell up and suspend him for drinkin’. Doc done his best, but the bird says beer made him sick and he wouldn't have nothin’ to do with it. So when I come in, he was eatin’ some kind o’ fancy sandwich and lappin’ up a lemonade or somethin’.
 
@@ -280,7 +280,7 @@ I don’t know now just what I wrote, but it was some letter. I told her we was 
 
 It was in your town that he heard from her, and he showed me the letter. She says he was to come home at oncet and that she’d made the old man promise to come through with a extra allowance without makin’ him do no work for it. But if he didn’t cut out the ball playin’ and beat it wouldn't never get another nickel out o’ none o’ them. She hadn't gave no reason for writin’ this way, and he was up in the air. I told him we was sorry to lose him, but maybe it was best for him to quit playin’ ball, even if he hadn’t never started. He left us the second night in Chi. Hub was good and sore at me. He says I'd spoiled the season for him.
 
-I felt so good about gettin’ him off’n my hands that I went out there and plaved like Cobb or somebody the rest o’ the trip. Maybe you fellas remember how I hit ag’in’ you them last two days. I done even better’n that in Cincinnati and New York. It was the best trip we'd made in a good many years, and the bugs at home went crazy over us. They was ten thousand out to the first game of our serious at home with St. Louis—on a Thursday, at that.
+I felt so good about gettin’ him off’n my hands that I went out there and played like Cobb or somebody the rest o’ the trip. Maybe you fellas remember how I hit ag’in’ you them last two days. I done even better’n that in Cincinnati and New York. It was the best trip we'd made in a good many years, and the bugs at home went crazy over us. They was ten thousand out to the first game of our serious at home with St. Louis—on a Thursday, at that.
 
 O’ course I knowed they'd be a argument with the skirt. Our winnin’ streak wouldn’t make her forget to ask me what had became o’ Baker. When she ast me, I sprung the stuff about him gettin’ a letter from his mother, but I didn’t tell her nothin’ about the letter I’d wrote. She didn’t have nothin’, but she looked pretty sore and forgot all about givin’ me the glad hand for what we’d did in the West.
 
@@ -291,6 +291,7 @@ She didn’t never come out to yesterday’s game, but I didn’t suspect nothin
 “A right.” I says. “I’ll beat it down there right after the game.”
 
 “No,” says Kelly, “she wants you right now.”
+
 So I took my unie off and beat it down there in a taxi. The girl in the front office told me to go right on in, and in I went. There was the dame, settin’ at the desk where poor old Hayes used to set. And they was two big coppers with her. Without sayin’ “How d’ya do” or nothin’, she opens right up on me and says:
 
 “These here officers is here to protect me. If you start somethin’, you'll get nothin’ but the worst of it.” Then pulls a letter out o’ the desk and says: “This here letter is from Mr. Baker’s mother, and in it she tells me why she made her boy come home. Somebody has tooken the trouble to tell her some fac’s about this here ball club⁠—*my* ball club that I was proud of! But I aint proud of it no more. I aint proud o’ no gang o’ hoodlums that don’t do, nothin’ but gamble and drink and run round with actresses and lead young men astray.”

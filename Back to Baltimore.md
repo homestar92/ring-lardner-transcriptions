@@ -1,4 +1,4 @@
-Well, boys, I’m goin’ right through to Pittsburgh with you if you don’t mind, and I aint been traded to your bunch nor the Pirates neither. It’ll be in all the papers to-night or to-morrow mornin’, so they aint no use o’ me keepin’ it a secret. I’ve jumped to the Baltimore Feds, and whether Knabe is figurin’ on usin’ me regular or settin’ me on the bench or givin’ me a job washin’ undershirts, 1 don’t know or I don’t givadam. I couldn’t be no worse off than I was up there.
+Well, boys, I’m goin’ right through to Pittsburgh with you if you don’t mind, and I aint been traded to your bunch nor the Pirates neither. It’ll be in all the papers to-night or to-morrow mornin’, so they aint no use o’ me keepin’ it a secret. I’ve jumped to the Baltimore Feds, and whether Knabe is figurin’ on usin’ me regular or settin’ me on the bench or givin’ me a job washin’ undershirts, I don’t know or I don’t givadam. I couldn’t be no worse off than I was up there.
 
 Managin’ a club may be all O.K. if the directors is all bachelors and has all o’ them tooken a oath not to never get married. But when a man’s got a wife, they aint no tellin’ when he’s goin’ to die, and when he dies and she gets a hold o’ the ball club, *good night*. If they ever is a skirt elected President o’ the United States, I'll move to Paris or Europe or somewheres, if I have to walk.
 
@@ -60,7 +60,7 @@ I says: “Yes, this is the right spot. I s’pose you’d like to see me hit on
 
 Well, I goes up there and done my best to obey orders. Nobody never swung no harder’n me, and the way I was wallopin’ at ’em, I’d of knocked one o’ them walls down if I had of connected. But I missed three and we didn’t score.
 
-Do you remember the day you fellas give us that awful beatin’—twelve to nothin’? Cheney worked for you and we didn’t never have a look-in. What do you think she pulled after that game ? She waited for me outside o’ the park and says she wished I’d tell Mr. O’Day not to never let Cheney pitch there no more.
+Do you remember the day you fellas give us that awful beatin’—twelve to nothin’? Cheney worked for you and we didn’t never have a look-in. What do you think she pulled after that game? She waited for me outside o’ the park and says she wished I’d tell Mr. O’Day not to never let Cheney pitch there no more.
 
 I says: “It wouldn’t hurt my feelin’s if he never pitched nowheres.”
 
@@ -108,11 +108,11 @@ I says: “Yes, whatever that is, I’m it.”
 
 Then he ast me couldn’t they start it some other time because he had a engagement. I says I would excuse him, and he says: “Thanks.” Then I says: “Il excuse you all the time if you say the word.” But he says no, that wouldn’t be right, because he felt like as if he should ought to do some work oncet in a while to earn his pay. Then he says he was pleased to of met me and walked away.
 
-I guess he must of kept his date at a soda fountain or wherever it was he had a date at, because he didn’t show up out to the park and I never seen no more of him till the next mornin’. Then he come to see me while I was writin’ a letter and ast me could he have six passes to the game. I says: “You'd better take ten.” and I writes out a pass for ten on one o’ the hotel letter-heads, and I signs Otto Hess’ name to it. He says “Thanks,” and walked away. If I’d of signed President Bryan’s name, he’d of thanked me just the same. And the pass would of been just as good.
+I guess he must of kept his date at a soda fountain or wherever it was he had a date at, because he didn’t show up out to the park and I never seen no more of him till the next mornin’. Then he come to see me while I was writin’ a letter and ast me could he have six passes to the game. I says: “You'd better take ten,” and I writes out a pass for ten on one o’ the hotel letter-heads, and I signs Otto Hess’ name to it. He says “Thanks,” and walked away. If I’d of signed President Bryan’s name, he’d of thanked me just the same. And the pass would of been just as good.
 
 I come out o’ the hotel about one o’clock and starts for the elevated, but the colleger was standin’ on the sidewalk and he hollered at me. He ast me was I goin’ out and I says yes, I thought I would, because I didn’t have no other date. Then he ast me would I ride out with him because he’d ordered a taxi. They wasn’t none o’ my ball players had ever tooken me to the park in a taxi before, but I didn’t have no objection, so I and him piled in, and out we goes together.
 
-When we got through ridin’, I says. “You better let me split with you,” but he says, “They aint no splittin’ to be did. It’s in my contract that I use cabs to and from the grounds,” and he tells the driver to charge it to the club. Well, I butts in and says, “Here! You can’t get by with that stuff. If you’re out to give the club a trimmin’, you better pull it when I aint round.” Then what does he do but pull his contract out of his pocket and show it to me, and there it was, in black and white, that he was to be gave rides on the club to and from the parks where we played. Can you beat that ?
+When we got through ridin’, I says. “You better let me split with you,” but he says, “They aint no splittin’ to be did. It’s in my contract that I use cabs to and from the grounds,” and he tells the driver to charge it to the club. Well, I butts in and says, “Here! You can’t get by with that stuff. If you’re out to give the club a trimmin’, you better pull it when I aint round.” Then what does he do but pull his contract out of his pocket and show it to me, and there it was, in black and white, that he was to be gave rides on the club to and from the parks where we played. Can you beat that?
 
 We come into the grounds and I took him in the club-house and had Doc give him a unie. He made a holler because they wasn’t no feet in the stockin’s and I told him he was supposed to wear socks besides the stockin’s. So he leaves on the reg’lar socks he’d wore with his street clo’es and they was purple!
 
@@ -132,7 +132,7 @@ Well, I sends him up to take his turn in battin’ practice, and he acted like a
 
 I stuck him in the outfield in fieldin’ practice, but he looked so rotten that I took him out o’ there for fear o’ gettin’ him killed. I called him in and says:
 
-“You've did enough for one day. so go in and change your clo’es and you can watch the game from the stand. Maybe you'll run acrost that crowd I give you the passes for.”
+“You've did enough for one day, so go in and change your clo’es and you can watch the game from the stand. Maybe you'll run acrost that crowd I give you the passes for.”
 
 He was willin’ to quit, all right, and the fun was over fer the day. After the game, I send a long telegram to Williams, the vice president, and tells him what a joke our new player was and that it was throwin’ money away to even pay his board, let alone that Fed’ral League sal’rv he was gettin’. I didn’t get no answer from Williams, but a letter come from the skirt. She give me a call for not sendin’ the telegram to her instead o’ Williams and ast me how could I judge if a man was a ball player when I hadn't only saw him one day.
 
@@ -144,17 +144,15 @@ I didn’t hardly ever say nothin’ to him, but I couldn’t make the rest o’
 
 They tried to get him in the poker game, but they wasn’t nothin’ doin’. He says he liked to play bridge w’ist but that was all the cards he knowed. When we was on trains, he spent the time lookin’ at the scenery or readin’ magazines.
 
-I remember one night when we was
-
-goin’ to Philly and he was settin’ acrost the aisle from I and Hub. He was readin’, and pretty soon he looks up from off of his magazine and says:
+I remember one night when we was goin’ to Philly and he was settin’ acrost the aisle from I and Hub. He was readin’, and pretty soon he looks up from off of his magazine and says:
 
 “You guys should ought to read this here story in here. It’s a baseball story and it’s about two teams bein’ tied for the pennant on the last day o’ the seaand one o’ the teams had a star pitcher that was sure to win the decidin’ game if nothin’ didn’t happen to him, so they stuck him in to pitch but in the first innin’ he strained his arm so it hurt him every ball he throwed but he didn’t say nothin’ about it, but kept on pitchin’ and win his game and the pennant. though he was sufferin’ terrible pain all the while. I call that nerve!”
 
 “Nerve!” says Hub. “Say, that wasn’t nothin’ to what I seen come off in the Southern League the last year I was down there. The Nashville club that I was with and the New Orleans club was tied for first place, and we had to play a extra game to settle it. We had a first sacker named Smith that was the greatest I ever see. Up to the first of August he was battin’ .600 and it got so’s the pitchers wouldn’t give him nothin’ more to hit but walked him every time he come up. He offered to bat with one hand if they’d pitch strikes to him, but they wouldn’t take a chancet, and finally the umps’d just give him his base every time he come up without waitin’ for the four balls to be throwed.
 
-“Well, it come time for this final game and we knowed we had it won if Smith was all right. The New Orleans club knowed it too, and they was out to get him. So when he got on in the first innin’ on a base on balls, their first baseman deliberately stepped on his foot and spiked him somethin’ awful. He couldn’t walk on that foot no more, but he wouldn’t quit, and after he’d drawed one of his bases of balls. every so often, he stole all the rest o’ the bases hoppin’ on his good foot.
+“Well, it come time for this final game and we knowed we had it won if Smith was all right. The New Orleans club knowed it too, and they was out to get him. So when he got on in the first innin’ on a base on balls, their first baseman deliberately stepped on his foot and spiked him somethin’ awful. He couldn’t walk on that foot no more, but he wouldn’t quit, and after he’d drawed one of his bases of balls, every so often, he stole all the rest o’ the bases hoppin’ on his good foot.
 
-“It come along the twenty-first innin’ and the score was six to six. He’d scored every one of our six runs by walkin’ to first and then hoppin’ the rest o’ the way. Well, he walked in the twenty-first and starts hoppin’ to second. The catcher knowed they was no use to throw to second or to third neither, because Smith was so fast, even on foot, that he was bound to beat it. So the catcher just kept a hold o’ the ball, knowin’ Smith wouldn’t never stop till he got clear home. Along come Smith, hoppin’ for the plate, and the catcher run out to meet him, but he hopped clean over the catcher’s head and scored the run that beat ’em and won us the pennant. They was about sixty thousand people out there, and they tried to carry Smith off o’ the field on their shoulders, but he hopped into the club-house before they could catch him. And when he took off his shoe, two toes dropped out!”
+“It come along the twenty-first innin’ and the score was six to six. He’d scored every one of our six runs by walkin’ to first and then hoppin’ the rest o’ the way. Well, he walked in the twenty-first and starts hoppin’ to second. The catcher knowed they was no use to throw to second or to third neither, because Smith was so fast, even on one foot, that he was bound to beat it. So the catcher just kept a hold o’ the ball, knowin’ Smith wouldn’t never stop till he got clear home. Along come Smith, hoppin’ for the plate, and the catcher run out to meet him, but he hopped clean over the catcher’s head and scored the run that beat ’em and won us the pennant. They was about sixty thousand people out there, and they tried to carry Smith off o’ the field on their shoulders, but he hopped into the club-house before they could catch him. And when he took off his shoe, two toes dropped out!”
 
 “My!” says the colleger, with his mouth wide open. “I should say that was nerve. And didn’t this here Smith never get into the big league?”
 
@@ -162,7 +160,9 @@ goin’ to Philly and he was settin’ acrost the aisle from I and Hub. He was r
 
 ***
 
-After that, Baker and Hub hung round together all the time. He fell for everything Hub told him, no matter how raw. He was givin’ Hub a good time, and it’d ’ve been all right if we could of staved on the road all the while, but I knowed when we got home, the doll’d ast me why wasn’t I playin’ him and then the trouble’d start. Sure enough, when we come in off o’ the trip, she called me to the office and put it up to me.
+After that, Baker and Hub hung round together all the time. He fell for everything Hub told him, no matter how raw. He was givin’ Hub a good time, and it’d ’ve been all right if we could of staved on the road all the while, but I knowed when we got home, the doll’d ast me why wasn’t I playin’ him and then the trouble’d start.
+
+Sure enough, when we come in off o’ the trip, she called me to the office and put it up to me.
 
 “Well,” I says, “I don’t think he’s got enough experience yet. You just let me handle him and keep him on the bench awhile, and maybe he'll develop into a pretty fair ball player.”
 
@@ -176,7 +176,11 @@ Well, I thought awhile, and then I made up my mind that if he had to be gave som
 
 I wisht you could of been there. The papers had a lot o’ stuff about it, but they didn’t tell more’n half. Hub was pitchin’ and we was playin’ Philly. He got the first two of ’em out, and then Cravath hits one down to the colleger on a perfect hop. I was lookin’ for him to throw it wild after he got it, but Pat Moran was coachin’ at first base, and he hollers to him to throw it to second. So what does he do but just like Pat tells him to, and naturally Maranville wasn’t there to cover because they wasn’t no play. So the ball goes out in the outfield, and Cravath got clear round to third base. Then Magee busts ohe, and they got a run. I thought Hub’d be sore, but he wasn't. When he come in to the bench, he was laughin’ his head off, and he says:
 
-“Don’t never take me out o’ this game. This is one battle I want to see all the way through.” Well. Devore leads off for us, and he walks. The colleger’s up next, and I tells him to bunt. The first two Rixey throwed him was a mile outside, but he bunts at ’em just the same. Then Rixey curves one, and he tries to duck, but he can't get out o’ the way. The ball hit him in the sleeve or somewheres, and Rigler tells him to take his base, but he wouldn't move. “What's the matter?” says Rig. “Why don’t you take your base? Are you hurt?”
+“Don’t never take me out o’ this game. This is one battle I want to see all the way through.”
+
+Well. Devore leads off for us, and he walks. The colleger’s up next, and I tells him to bunt. The first two Rixey throwed him was a mile outside, but he bunts at ’em just the same. Then Rixey curves one, and he tries to duck, but he can't get out o’ the way. The ball hit him in the sleeve or somewheres, and Rigler tells him to take his base, but he wouldn't move.
+
+“What's the matter?” says Rig. “Why don’t you take your base? Are you hurt?”
 
 “No,” says the colleger, “but manager says I was to bunt.”
 
@@ -210,11 +214,11 @@ After I dressed. I forgot what I was doin’ and walked right out o’ the clubh
 
 “What did you take him out o’ the game for?” she says.
 
-“I didn’t take him out o’ no game.” I says. “The umps didn’t like his language.”
+“I didn’t take him out o’ no game,” I says. “The umps didn’t like his language.”
 
 Then she ast me what was the matter with his language, and I says I didn’t think the umps could understand it right.
 
-“Well,” she says, “if a umpire can’t understand plain English, he should not ought to be no umpire, and I will write to the president o’ the league and have both o’ here men discharged.” Then she says: “Mr. Baker was doin’ splendid and would of did still better if he had of been left in longer. He didn’t catch all them balls that was throwed to him, but that’s because he aint had no practice.” Then she says: “I’m goin’ out of town to-night, but I want you to keep on lettin’ Mr. Baker play every day, and I’ll watch the papers, and if I see where he aint playin’, you'll hear from me.”
+“Well,” she says, “if a umpire can’t understand plain English, he should not ought to be no umpire, and I will write to the president o’ the league and have both o’ these here men discharged.” Then she says: “Mr. Baker was doin’ splendid and would of did still better if he had of been left in longer. He didn’t catch all them balls that was throwed to him, but that’s because he aint had no practice.” Then she says: “I’m goin’ out of town to-night, but I want you to keep on lettin’ Mr. Baker play every day, and I’ll watch the papers, and if I see where he aint playin’, you'll hear from me.”
 
 ***
 
@@ -226,7 +230,7 @@ Well, I pulled a boner when I says anything to this here Young. What I should ou
 
 Fallin’ down on that made me meaner’n ever, and I doped out something els I tells the colleger he stood too far from the plate when he swung at a ball. I says: “When you go up to bat in the game, keep one foot on the plate.” figurin’ that the guy that pitched for Philly would try to drive him away and either wound him or scare him to death.
 
-Alexander worked for them, and Baker stood right on top o’ the plate. Dooin called the umps’ attention, and the umps warned him, but he wouldn't move. Fin’lly Alexander shot one up there and he didn’t duck in time. It catched him in front o’ the ear, and he dropped like as if he was shot. I bet I was the most scared guy in the world For a minute I felt like a murderer, and I wasn’t never so glad in my life as when I seen him get up. He staggered round a little, and I had ’em bring him over to the bench. I stuck myself in to run for him, and some o’ the boys took him in the club-house and got him fixed up. He wasn’t hurt bad, though he got a mean lookin’ bump.
+Alexander worked for them, and Baker stood right on top o’ the plate. Dooin called the umps’ attention, and the umps warned him, but he wouldn't move. Fin’lly Alexander shot one up there and he didn’t duck in time. It catched him in front o’ the ear, and he dropped like as if he was shot. I bet I was the most scared guy in the world. For a minute I felt like a murderer, and I wasn’t never so glad in my life as when I seen him get up. He staggered round a little, and I had ’em bring him over to the bench. I stuck myself in to run for him, and some o’ the boys took him in the club-house and got him fixed up. He wasn’t hurt bad, though he got a mean lookin’ bump.
 
 ***
 
@@ -274,19 +278,20 @@ He told me, and I couldn’t hardly wait till I got back to the hotel.
 
 I don’t know now just what I wrote, but it was some letter. I told her we was a bunch o’ stews and that when we wasn’t lushin’ beer or playin’ poker, we was going to burlesque shows. I says her son was pickin’ up a awful bunch o’ language and drinkin’ his fool head off. I says he was stuck on a burlesque queen and was spendin’ all his dough on her. And I wound it up by sayin’ that Dixon, the manager, had killed his wife and they wasn’t no tellin’ when he’d cut loose and kill somebody else. I didn’t sign no name, but just put “From a Friend in Need” down at the bottom.
 
-It was in your town that he heard from her, and he showed me the letter. She says he was to come home at oncet and that she’d made the old man promise to come through with a extra allowance without makin’ him do no work for it. But if he didn’t cut out the ball plavin’ and beat it wouldn't never get another nickel out o’ none o’ them. She hadn't no reason for writin’ this way, and he was up in the air. I told him we was sorry to lose him, but maybe it was best for him to quit playin’ ball, even if he hadn’t never started. He left us the second night in Chi. Hub was good and sore at me. He says I'd spoiled the season for him.
+It was in your town that he heard from her, and he showed me the letter. She says he was to come home at oncet and that she’d made the old man promise to come through with a extra allowance without makin’ him do no work for it. But if he didn’t cut out the ball playin’ and beat it wouldn't never get another nickel out o’ none o’ them. She hadn't gave no reason for writin’ this way, and he was up in the air. I told him we was sorry to lose him, but maybe it was best for him to quit playin’ ball, even if he hadn’t never started. He left us the second night in Chi. Hub was good and sore at me. He says I'd spoiled the season for him.
 
 I felt so good about gettin’ him off’n my hands that I went out there and plaved like Cobb or somebody the rest o’ the trip. Maybe you fellas remember how I hit ag’in’ you them last two days. I done even better’n that in Cincinnati and New York. It was the best trip we'd made in a good many years, and the bugs at home went crazy over us. They was ten thousand out to the first game of our serious at home with St. Louis—on a Thursday, at that.
 
 O’ course I knowed they'd be a argument with the skirt. Our winnin’ streak wouldn’t make her forget to ask me what had became o’ Baker. When she ast me, I sprung the stuff about him gettin’ a letter from his mother, but I didn’t tell her nothin’ about the letter I’d wrote. She didn’t have nothin’, but she looked pretty sore and forgot all about givin’ me the glad hand for what we’d did in the West.
 
-We done pretty well at home ag’in’ St. Louis and Pittsburgh. Then you fellas come along and I guess I don’t need to tell you that we was goin’ good. I was beginnin’ to think we mavbe might keep it up and throw a scare into some o” you birds.
+We done pretty well at home ag’in’ St. Louis and Pittsburgh. Then you fellas come along and I guess I don’t need to tell you that we was goin’ good. I was beginnin’ to think we maybe might keep it up and throw a scare into some o” you birds.
 
 She didn’t never come out to yesterday’s game, but I didn’t suspect nothin’ wrong till Kelly, the secretary, come into the clubhouse after me. He tells me that she wants to see me down to the down-town office.
 
 “A right.” I says. “I’ll beat it down there right after the game.”
 
-“No,” says Kelly, “she wants you right now.” So I took my unie off and beat it down there in a taxi. The girl in the front office told me to go right on in, and in I went. There was the dame, settin’ at the desk where poor old Hayes used to set. And they was two big coppers with her. Without sayin’ “How d’ya do” or nothin’, she opens right up on me and says:
+“No,” says Kelly, “she wants you right now.”
+So I took my unie off and beat it down there in a taxi. The girl in the front office told me to go right on in, and in I went. There was the dame, settin’ at the desk where poor old Hayes used to set. And they was two big coppers with her. Without sayin’ “How d’ya do” or nothin’, she opens right up on me and says:
 
 “These here officers is here to protect me. If you start somethin’, you'll get nothin’ but the worst of it.” Then pulls a letter out o’ the desk and says: “This here letter is from Mr. Baker’s mother, and in it she tells me why she made her boy come home. Somebody has tooken the trouble to tell her some fac’s about this here ball club⁠—*my* ball club that I was proud of! But I aint proud of it no more. I aint proud o’ no gang o’ hoodlums that don’t do, nothin’ but gamble and drink and run round with actresses and lead young men astray.”
 
@@ -294,7 +299,7 @@ She didn’t never come out to yesterday’s game, but I didn’t suspect nothin
 
 “No,” she hollers, “that aint all. Mr. Dixon, you killed your wife!”
 
-“That’s a whole lot o’ bunk,” I says. “I didn’t never have : how could I kill my wife when I didn’t never have none?”
+“That’s a whole lot o’ bunk,” I says. “I didn’t never have no wife, so how could I kill my wife when I didn’t never have none?”
 
 “Don’t lie to me!” she Says. “Even if you didn’t never have no wife, you killed somebody, maybe a innocent girl that Was wronged.”
 
@@ -302,9 +307,9 @@ She didn’t never come out to yesterday’s game, but I didn’t suspect nothin
 
 “What for?” she ast.
 
-“Prob’ly.” I says. “because somebody was tired o’ having that boob on the ball club and figured that was the best way to get rid of him.”
+“Prob’ly,” I says. “because somebody was tired o’ having that boob on the ball club and figured that was the best way to get rid of him.”
 
-“We wont discuss it no fu’ther.” she says. “I called you up to tell you you aint managin’ the club no longer. You can stay here under the terms o’ your contract and play ball if you want to, but maybe you wouldn’t want to work for the new manager.”
+“We wont discuss it no fu’ther,” she says. “I called you up to tell you you aint managin’ the club no longer. You can stay here under the terms o’ your contract and play ball if you want to, but maybe you wouldn’t want to work for the new manager.”
 
 “Who is it?” I says.
 
@@ -330,4 +335,4 @@ I wired and they wasn’t nothin’ to it. He told me to come on and join ’em 
 
 I guess she wont try and get no injunction out agin’ me. But I wisht she would. Id like to tell my story to a judge, provided the judge wasn’t no woman.
 
-You know who’s goin’ to manage that club, don’t you? And you know who’s goin’ to be president of it. Well, sir, II bet you anything you want to bet that they wont even finish in Mass’chusetts.
+You know who’s goin’ to manage that club, don’t you? And you know who’s goin’ to be president of it. Well, sir, I’ll bet you anything you want to bet that they wont even finish in Mass’chusetts.

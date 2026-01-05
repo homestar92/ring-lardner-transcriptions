@@ -274,7 +274,7 @@ The rest o’ the bunch couldn’t help noticin’ the way he acted, and I seen 
 
 That night Pat took Smitty to a bunch o’ nickel shows and entertained him with conversation about Fogarty’s grand performance. The result was that the wop got Red out o’ bed at seven the next mornin’ and ast him whether he could pitch the game. Red stalled him, ’cause he didn’t know then how strong the both o’ them was—him and Fogarty.
 
-Anyway, it rained, so Smitty’d had two days’ rest before we played again, and Red sent him in to wind up the serious. Gavyvy saved St. Louis another whitewashin’ by droppin’ a fly ball with a guy on; but that run was all they got. Fogarty’s game wasn’t a bit better’n this second one o’ Smitty’s, and I kept rubbin’ that into Fogarty all the way back to Philly.
+Anyway, it rained, so Smitty’d had two days’ rest before we played again, and Red sent him in to wind up the serious. Gavvy saved St. Louis another whitewashin’ by droppin’ a fly ball with a guy on; but that run was all they got. Fogarty’s game wasn’t a bit better’n this second one o’ Smitty’s, and I kept rubbin’ that into Fogarty all the way back to Philly.
 
 They ain’t no use goin’ on and tellin’ you about all the rest o’ the games they pitched. They was both beat a few times, but it wasn’t ’cause they didn’t try. Every pitcher with a arm and a glove’d cop more’n two-thirds of his games if he’d work as hard as these babies done. Some o’ the papers come out and said that Red was overworkin’ ’em, but the reporters that wrote that didn’t know what they was talkin’ about. It was all Red could do to keep either o’ them on the bench. If they’d of had their way about it they’d of both been out there in the middle o’ the diamond every day, fightin’ for possession o’ the ball.
 

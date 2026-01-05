@@ -92,4 +92,4 @@ Now then along toward the finish of her story the lady says something which I wi
 
 Well friends it is hard to bear ill will toward a writer that kind of softens her tirade with such a neat little compliment as that and it looks to me like it would be no more than gentlemanly on my part to reply to same in kind. For inst.
 
-"Pretty near any complaint you make about wives, why it is true though they will probably resent it. But I often ask myself the question could I get along without them? And the answer to that is that I got along without none for twenty-five yrs. and never felt better in my life. Believeyou me."
+"Pretty near any complaint you make about wives, why it is true though they will probably resent it. But I often ask myself the question could I get along without them? And the answer to that is that I got along without none for twenty-five yrs. and never felt better in my life. Believe you me."

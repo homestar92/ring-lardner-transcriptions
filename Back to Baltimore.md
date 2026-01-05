@@ -10,7 +10,7 @@ I bet you'll see in a few days where Mrs. Hayes gets through bein’ a widow, an
 
 ***
 
-You knowed Old Man Hayes, o’ course. He was a good old scout, but he pulled a lot o’ boners, one o’ which was him marrvin’ this doll. She’s a handsome devil all right; I'll slip her that much. But he should ought to of knew that he didn’t cop her because she was a-stuck on him. She had it doped that he was about all in, and it wouldn’t be long till the dough was all hern. His heart was bad, and they was two or three other things the matter with him, and havin’ her round didn’t make him no healthier. At that, he’d of croaked sooner or later without no female help.
+You knowed Old Man Hayes, o’ course. He was a good old scout, but he pulled a lot o’ boners, one o’ which was him marryin’ this doll. She’s a handsome devil all right; I'll slip her that much. But he should ought to of knew that he didn’t cop her because she was a-stuck on him. She had it doped that he was about all in, and it wouldn’t be long till the dough was all hern. His heart was bad, and they was two or three other things the matter with him, and havin’ her round didn’t make him no healthier. At that, he’d of croaked sooner or later without no female help.
 
 He was sure nuts over his ball club, and it hurt him every time we lose a game. You can see where he was hurt pretty often last year. At that, Bill Fox was gettin’ by all right with the managin’ job, when you figure the bunch he had. But finishin’ seventh didn’t make no hit with the old man, even if we thought we done pretty well to stay in the league and not get arrested. Anyway, Bill got canned and the job was gave to me. If I hadn’t ’ve needed the money pretty bad, I wouldn’t never ’ve tooken it.
 

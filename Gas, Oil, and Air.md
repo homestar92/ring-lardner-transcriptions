@@ -6,6 +6,8 @@ Well, I’ve found a lucrative profession that you can go into without payin’ 
 
 All you got to do is give your conscience a sleepin’ potion and borrow a pair of overalls.
 
+***
+
 The reason I got a car lives out in Hyde Park, but she’s thinkin’ about leavin’ there. Her name’s Alice. I ain’t alone in considerin’ her the greatest girl that ever lived; at least, they’s been others.
 
 One o’ them was George Boles. His old man’s a plumber, so George never had to worry. His father even give him a chummy roadster last Christmas.
@@ -51,6 +53,8 @@ The peeve lasted till Tuesday mornin’. Then I got over it and phoned again.
 “With Mr. Boles?” says I.
 
 “Well, yes, if you must know,” she says.
+
+***
 
 One o’ the salesmen down to the office told me that the best car he knowed of that cost less than $1,000 was the Swift Six.
 
@@ -282,6 +286,8 @@ When she come back, he says:
 
 And I left him to chew on that.
 
+***
+
 Alice pretty near fainted, when I sprung my surprise. “Why, Charley Graham!” she says. “Where did you get it?”
 
 “I forget now,” says I. “Kresge’s or Woolworth’s.”
@@ -301,6 +307,8 @@ At five p. m., we’d got as far as Lake Forest, havin’ drove forty miles in a
 “My! It’s pretty out here,” says Alice. “I wisht I could stay here a while.”
 
 She got her wish.
+
+***
 
 The Swift Six liked Lake Forest, too. Between five and dark, I done nothin’ but crank and cuss, crank and cuss. When the daylight was gone, I’d lost some o’ my independence, and I stopped a guy that was goin’ past.
 
@@ -355,6 +363,8 @@ The old lady didn’t take it very hard.
 “What with?” I ast her.
 
 “Whatever you can get for your car,” she says.
+
+***
 
 I was lucky in findin’ the whole school force in that evenin’. “Listen,” I says, to the one ra seen first, “when I brought this ship in Saturday, what did I say I wanted done?”
 

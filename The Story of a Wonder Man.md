@@ -959,7 +959,7 @@ To say nothing of one of the Marx Brothers, who had recently bought a house, and
 
 It was doubtless as a result of this environment that the thing happened to me. I got up one morning and after my customary plunge down the staircase, I took my finger exercises, consisting of pointing first one finger and then the other at my wife. She made the remark that it would be a nice day to go out in the bay and fish for hake.[^54]
 
-Getting into my rowboat, I put ona No. 2 bait, a combination of a cockroach and the kind of salad they serve you in hospitals. I thought perhaps a hake would eat it, as nobody else would. I had hardly made my first cast when⁠—[^55]
+Getting into my rowboat, I put on a No. 2 bait, a combination of a cockroach and the kind of salad they serve you in hospitals. I thought perhaps a hake would eat it, as nobody else would. I had hardly made my first cast when⁠—[^55]
 
 ## Footnotes
 

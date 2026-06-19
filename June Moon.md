@@ -2527,6 +2527,7 @@ The scene is a room at Goebel's music publishing
 house. A piano, a few chairs, some shelves,
 and you have it. Three or four weeks have gone
 by since Act I.
+
 MAXIE is at the piano just amusing himself
 when the curtain rises. He is playing "La
 Boheme" and cutting loose a trifle. There enters,
@@ -2541,11 +2542,11 @@ looking over songs at the music shelves, on which
 the hits of these and other days are piled high.
 
 GOLDIE  
-(busy with her songs)
+(busy with her songs)  
 "There Never Was a Girl Like Mother."
 
 MAXIE  
-Maybe it's all for the best. . . . How's the
+Maybe it's all for the best.... How's the
 boss? Did he have a good trip?
 
 GOLDIE  
@@ -2583,6 +2584,7 @@ It's got a chance.
 It's a tune that's easy to remember,
 but if you should forget it it wouldn't
 make any difference.
+
 (FRED plunges in.)
 
 FRED  
@@ -2595,7 +2597,7 @@ FRED
 Don't you even know what time he's coming?
 
 GOLDIE  
-Can't tell. His first day back in town-he's
+Can't tell. His first day back in town—he's
 probably got a lot of things to do. (She goes—
 and pretty disrespectfully, too.)
 
@@ -2689,7 +2691,7 @@ I know. That's why I don't carry a gun.
 
 FRED  
 She's a great sport, all right. She'd make a
-wonderful wife-she's such a good pal. I think
+wonderful wife—she's such a good pal. I think
 a man's wife ought to be their pal as well as their
 sweetheart.
 
@@ -2697,7 +2699,7 @@ MAXIE
 You ought to patent that.
 
 FRED  
-Say-how much money do you think a fella
+Say—how much money do you think a fella
 ought to be making before he could get married?
 In New York, I mean?
 
@@ -2781,7 +2783,7 @@ She's kind of hard to meet, isn't she?
 FRED  
 No. She's one of the friendliest women I ever
 seen. When the girls told her who I was she said
-it was a big night in her life-she said she'd always
+it was a big night in her life—she said she'd always
 wanted to meet a lyric writer. I wonder
 what my friends in Schenectady would say if they
 knew I sat around and talked to Texas Guinan!
@@ -2835,7 +2837,8 @@ FRED
 It depends on the song.
 
 WINDOW CLEANER  
-Say a big hit like "Nearer My God To Thee'?
+Say a big hit like "Nearer My God To Thee"?
+
 (Just before MAXIE can brain him, PAUL comes
 on.)
 
@@ -2855,6 +2858,7 @@ cashed? At the American Express Company?
 
 MAXIE  
 Or the 59th Street Bridge.
+
 (BENNY Fox bounds on. He's a song-writer of
 the dangerous type.)
 
@@ -2865,7 +2869,7 @@ FRED
 He ain't back yet.
 
 BENNY  
-(buttonholing MAXIE)
+(buttonholing MAXIE)  
 I've got it this time! "Hello, Tokio!" How's
 that for a title? They wanted a novelty number!
 I guess I've give it to them!
@@ -2880,7 +2884,7 @@ FRED
 We think so, anyway.
 
 BENNY  
-(paying no attention to them)
+(paying no attention to them)  
 In the verse I've got a fella here in New York
 that sees a pitcher of a Japanese princess and he's
 nuts over her, but he can't afford a trip to Japan
@@ -2888,15 +2892,17 @@ just on a chance. So he calls her up-get it?
 "Hello, Tokio!" Get this! Here's the refrain!
 After he calls her up! (He plays and sings it, the
 chorus being as follows):
-"Hello, hello, Tokio!
-Girlie, you'll excuse it, please,
-If I no spik Japanese.
-This little call will leave me broke-o,
-But I simply had to say, 'I love you so.'
-Believe me, dearie, it's no joke-o;
-I'd gladly fly through fire and smoke-o'
-To share with you the marriage yok-o,
-Fairest flower of Tokio-oki-okio!"
+
+> "Hello, hello, Tokio!  
+> Girlie, you'll excuse it, please,  
+> If I no spik Japanese.  
+> This little call will leave me broke-o,  
+> But I simply had to say, 'I love you so.'  
+> Believe me, dearie, it's no joke-o;  
+> I'd gladly fly through fire and smoke-o'  
+> To share with you the marriage yok-o,  
+> Fairest flower of Tokio-oki-okio!"
+> 
 (But that isn't all. PAUL and FRED start 
 expectantly toward the piano as the finish approaches,
 but BENNY double-crosses them by
@@ -2912,7 +2918,7 @@ BENNY glares at him, and he turns back to
 his window-washing.)
 
 BENNY  
-(to MAXIE, when it's all over)
+(to MAXIE, when it's all over)  
 Well, what do you think?
 
 MAXIE  
@@ -2925,19 +2931,21 @@ PAUL
 It's a pretty good number.
 
 BENNY  
-It's a great number! Here's another onejust
+It's a great number! Here's another one—just
 come to me last night!
+
 (He starts to play a refrain—a melody so familiar
 that MAXIE calmly pushes him off the
 bench and finishes it himself.)
 
 BENNY  
-(a bit discouraged)
+(a bit discouraged)  
 Oh, you're too wise! (He goes.)
 
 MAXIE  
-(starting to play)
+(starting to play)  
 All right, boys!
+
 (The WINDOW CLEANER decides that he doesn't
 want to hear this one. He opens the window, and
 a good gale of wind blows most of the papers off
@@ -2959,21 +2967,23 @@ CLEANER climbs out the window, and presently
 disappears from view. MAXIE and the boys
 plunge into "June Moon," with FRED leading the
 singing.)
-"Summer winds are sighing in the trees, my dear;
-I am sure I know what makes them sigh:
-They are sad on moonlight nights like these, my
-dear;
-They are lonely for you, same as I.
-Sweetheart, how can you resist their plea,
-And the moon you used to share with me?
-June Moon, shining above,
-Will my true love come soon?
-June Moon, I am so blue;
-I know that you long for her, too.
-Sweet night-bird, winging aloft,
-Singing a soft love tune,
-Tell her to come to me here,
-To me and her dear June Moon."
+
+> "Summer winds are sighing in the trees, my dear;  
+> I am sure I know what makes them sigh:  
+> They are sad on moonlight nights like these, my dear;  
+> They are lonely for you, same as I.  
+> Sweetheart, how can you resist their plea,  
+> And the moon you used to share with me?
+
+>> June Moon, shining above,  
+>> Will my true love come soon?  
+>> June Moon, I am so blue;  
+>> I know that you long for her, too.  
+>> Sweet night-bird, winging aloft,  
+>> Singing a soft love tune,  
+>> Tell her to come to me here,  
+>> To me and her dear June Moon."  
+
 (As the song finishes, EDNA, the girl of the prologue,
 quietly enters. MAXIE is the first to see
 her.)
@@ -2982,9 +2992,10 @@ MAXIE
 You got an audience.
 
 FRED  
-(none too pleased)
+(none too pleased)  
 Hello there, girlie!
-EDNA (ill at ease)
+
+EDNA (ill at ease)  
 Hello.
 
 FRED  
@@ -3008,8 +3019,10 @@ Moon."
 
 EDNA  
 You've finished it, haven't you? It's beautiful.
-PAUL (eagerly)
+
+PAUL (eagerly)  
 Did you like the melody?
+
 (GOLDIE enters; she has work to do at the
 music shelves.)
 
@@ -3025,15 +3038,15 @@ I love it.
 
 MAXIE  
 We'll send you some good stuff. Goldie! Get
-Miss Baker's address before she leaves-we'll send
+Miss Baker's address before she leaves—we'll send
 her some music.
 
 GOLDIE  
-(visions of more work)
+(visions of more work)  
 Oh, yeah? (She goes.)
 
 EDNA  
-(an embarrassed pause)
+(an embarrassed pause)  
 I don't want to interrupt. Maybe I'd better be
 going.
 
@@ -3048,10 +3061,11 @@ We'll be in Benny's room. Good-by, Miss
 Baker.
 
 EDNA  
-Good-by, Mr.
+Good-by, Mr.—
 
 MAXIE  
 Schwartz. Maxie Schwartz. It's a Greek name.
+
 (PAUL and MAXIE go. FRED and EDNA are
 alone.)
 
@@ -3071,7 +3085,7 @@ EDNA
 Nobody's looking.
 
 FRED  
-Oh! (He kisses her a kiss that would easily
+Oh! (He kisses her—a kiss that would easily
 get by the censors.)
 
 EDNA  
@@ -3089,8 +3103,8 @@ going to call you as soon as I wasn't busy.
 
 EDNA  
 I thought maybe you were sick or something.
-I tried to call you up two mornings-I mean, at
-your hotel and they said you couldn't be waked
+I tried to call you up two mornings—I mean, at
+your hotel—and they said you couldn't be waked
 up before one o'clock, I think it was.
 
 FRED  
@@ -3115,7 +3129,7 @@ to do with it any more.
 
 FRED  
 Yes, you have. When it's published I'll make
-them put your name on the cover-"Dictated to
+them put your name on the cover—"Dictated to
 Miss Edna Baker."
 
 EDNA  
@@ -3132,7 +3146,7 @@ and went over on the Palisades all day, and then
 in the evening we went to the amusement park
 and went on all the rides! We didn't get home till
 pretty near twelve o'clock! And then we were
-going again the next Sunday, only-we didn't.
+going again the next Sunday, only—we didn't.
 
 FRED  
 But that's because I've been working. I told
@@ -3142,9 +3156,9 @@ EDNA
 You don't have to work days and nights both.
 
 FRED  
-(trying to wriggle out)
+(trying to wriggle out)  
 I have to work when Paul feels like it. Music
-writers don't keep no hours-they work when
+writers don't keep no hours—they work when
 they're inspired. And it ain't just writing the
 songs that takes time. You have to go around
 places, and keep in contract with the other boys,
@@ -3155,10 +3169,10 @@ EDNA
 What kind of places do you have to go to?
 
 FRED  
-You know-places where they have music.
+You know—places where they have music.
 
 EDNA  
-You mean-night clubs?
+You mean—night clubs?
 
 FRED  
 Some of them.
@@ -3174,12 +3188,13 @@ Who else?
 
 FRED  
 Paul's wife. Lucille, her name is.
+
 (BENNY starts to come on; stops as he sees
 them.)
 
 BENNY  
 (So graciously, as though the interruption
-had been the other way around)
+had been the other way around)  
 That's all right. (Withdraws.)
 
 EDNA  
@@ -3187,7 +3202,7 @@ Doesn't anybody else go along, to sort of even
 up the party?
 
 FRED  
-(a second's hesitation; then he blurts it out)
+(a second's hesitation; then he blurts it out)  
 Nobody you know! I hardly know her myself.
 She just comes along because she's Lucille's sister
 and lives there.
@@ -3206,10 +3221,10 @@ FRED
 Huh?
 
 EDNA  
-Didn't you ever tell her about-me?
+Didn't you ever tell her about—me?
 
 FRED  
-Well, you see, we just-it's only business, and
+Well, you see, we just—it's only business, and
 there hasn't nothing like that come up.
 
 EDNA  
@@ -3219,7 +3234,7 @@ FRED
 I don't know. She—
 
 EDNA  
-(hard at work)
+(hard at work)  
 A girl like she has probably got lots of beautiful
 clothes. She probably makes little me look
 like nothing.
@@ -3230,10 +3245,10 @@ difference to me if she had all the clothes in the
 world. Or if she was bare, either.
 
 EDNA  
-Is she very pretty?
+Is she—very pretty?
 
 FRED  
-Yah, she-I hardly ever noticed if she was
+Yah, she—I hardly ever noticed if she was
 pretty or not.
 
 EDNA  
@@ -3259,7 +3274,7 @@ EDNA
 Is she blonde or brunette?
 
 FRED  
-Both-I mean she's red-headed. That is, I
+Both—I mean she's red-headed. That is, I
 never paid much attention.
 
 EDNA  
@@ -3276,23 +3291,23 @@ A little bit, I guess. I guess she must be. She's
 been on the stage.
 
 EDNA  
-(putting across a little mild horror)
+(putting across a little mild horror)  
 Honestly, Fred?
 
 FRED  
-Yah, but don't think I mean, that don't mean
+Yah, but don't think—I mean, that don't mean
 anything.
 
 EDNA  
 Oh, Fred, you want to be careful! Because
 you take a woman like she, that's close to forty
-or more
+or more—
 
 FRED  
 She ain't forty.
 
 EDNA  
-(conceding two years)
+(conceding two years)  
 Well, thirty-eight. And she sees a young boy
 who almost any woman would be proud to win
 your affection, and there isn't anything she might
@@ -3302,13 +3317,13 @@ FRED
 There won't no woman untangle me.
 
 EDNA  
-You can't tell, Fred-the most terrible things
+You can't tell, Fred—the most terrible things
 can happen. There was a near friend of mine, a
 man, and he was acquainted with a count, an international
 count, and he came here to New York
 and one night they went on a wild party and he
 fell in love with a beautiful chorus girl from the
-Metropolitan Opera Company-I forgot the name
+Metropolitan Opera Company—I forgot the name
 of the opera. And he bought her pearls and diamonds,
 and in less than a week's time he found
 out they was both married. That's just what
@@ -3327,7 +3342,7 @@ he was married.
 
 EDNA  
 Fred, doesn't it cost an awful lot of money
-when you go around to all these places-or do
+when you go around to all these places—or do
 they take you?
 
 FRED  
@@ -3341,7 +3356,7 @@ I see.
 
 FRED  
 Only the first thing I'm going to do—I mean,
-when I get my advance royalties-I'm going to
+when I get my advance royalties—I'm going to
 pay you back that little loan.
 
 EDNA  
@@ -3383,14 +3398,14 @@ I'm terrible sorry, Eddie. Gosh, I wish there
 was something I could do about it.
 
 EDNA  
-(snapping him up)
+(snapping him up)  
 There is, Fred, if you felt like doing it.
 
 FRED  
 What?
 
 EDNA  
-Are you going to be busy-after they hear the
+Are you going to be busy—after they hear the
 song?
 
 FRED  
@@ -3426,7 +3441,7 @@ Yah, I guess so.
 
 EDNA  
 Oh, Fred, I'm so glad! You do care a little,
-then? I mean, you do care whether you see me?
+then? I mean, you do care whether you—see me?
 
 FRED  
 Of course I do. Sure. Certainly.
@@ -3438,7 +3453,7 @@ now. I don't care about losing my position any
 more.
 
 FRED  
-Yah, but (MR. HART finally arrives. A big
+Yah, but— (MR. HART finally arrives. A big
 man, and important-looking. He crosses the room
 enroute to his own office.) Oh, Mr. Hart! Mr.
 Hart!
@@ -3480,7 +3495,8 @@ come and tell you.
 
 EDNA  
 All right, dear.
-PAUL (coming in)
+
+PAUL (coming in)  
 Did Hart get back?
 
 FRED  
@@ -3508,29 +3524,30 @@ PAUL
 Maxie'll bring him.
 
 FRED  
-(trying his voice)
-"June Moon" (Suddenly
-(Suddenly sees EDNA again.)
+(trying his voice)  
+"June Moon"—(Suddenly sees EDNA again.)
 All right, Eddie, we're going to sing it now.
 
 EDNA  
 All right, dear. I can wait happy now. (She
 goes.)
+
 (The WINDOW CLEANER climbs through the
 window again.)
 
 FRED  
 Hey! You can't work here now!
-What?
 
 WINDOW CLEANER  
+What?
+
 (MAXIE comes back, bringing HART.)
 
 MAXIE  
 Here we are!
 
 HART  
-All right-let's have it. What's the name of
+All right—let's have it. What's the name of
 this song? (BENNY bounds on, following HART.)
 
 BENNY  
@@ -3543,17 +3560,19 @@ BENNY
 For "Tokio!"
 
 MAXIE  
-Listen, Joe these boys have been waiting since
+Listen, Joe—these boys have been waiting since
 two o'clock.
 
 HART  
 All right, all right. Let's have it. What's the
 name of it?
-"June Moon."
-Great idea!
 
 FRED  
-BENNY (bitingly)
+"June Moon."
+
+BENNY (bitingly)  
+Great idea!
+
 (GOLDIE enters.)
 
 GOLDIE  
@@ -3589,7 +3608,7 @@ BENNY
 Yes, sir.
 
 HART  
-(very much the big man)
+(very much the big man)  
 Do you boys want a sure-fire idea?
 
 PAUL  
@@ -3602,17 +3621,17 @@ FRED
 Yes, sir.
 
 WINDOW CLEANER  
+(just one of the boys)  
 Yeah!
-(just one of the boys)
 
 HART  
-Write a war song. Just have it ready-in case.
+Write a war song. Just have it ready—in case.
 
 FRED  
 Is there going to be a war?
 
 HART  
-(taking them all in)
+(taking them all in)  
 I won't say yes and I won't say no. But in
 this little swing around the West I had a chance
 to sort of feel out the common people. (Grows
@@ -3628,7 +3647,7 @@ don't like it a bit. (A long, low whistle from
 BENNY.) Wouldn't surprise me at all if something
 happened and happened soon. And when it
 does, the first fellow in the field is going to clean
-up. You boys want to watch the papers-be
+up. You boys want to watch the papers—be
 ready for an emergency. Not only war, but these
 aeroplane flights all over the place—television—
 all the big inventions. (A man named BRAINARD
@@ -3687,6 +3706,7 @@ They won't be here to-morrow.
 HART  
 Listen to me; I don't know who you are or
 where you're from—
+
 (GOLDIE enters.)
 
 GOLDIE  
@@ -3716,7 +3736,8 @@ George Gershwin. (He also hurries out.)
 BRAINARD  
 Yeah! (BRAINARD, after a second's hesitation,
 also goes, hurrying a little. BENNY is next to go.)
-PAUL (to FRED)
+
+PAUL (to FRED)  
 Did you ever see him?
 
 FRED  
@@ -3724,6 +3745,7 @@ No.
 
 PAUL  
 He stole my rhapsody. (He and FRED go.)
+
 (MAXIE runs a careless scale; gets up from the
 piano.)
 
@@ -3733,7 +3755,8 @@ Aren't you going out to see him?
 MAXIE  
 Make him come to me. (Goes off the other
 way.)
-(EILEEN and LUCILLE come on-EILEEN leads
+
+(EILEEN and LUCILLE come on—EILEEN leads
 the way and seems thoroughly at home.)
 
 EILEEN  
@@ -3744,9 +3767,11 @@ Hello, Goldie.
 
 GOLDIE  
 Good afternoon, Mrs. Sears.
-EILEEN (to GOLDIE)
+
+EILEEN (to GOLDIE)  
 I see you've moved the piano.
-GOLDIE (with vast impertinence)
+
+GOLDIE (with vast impertinence)  
 Not me! (She goes; the women are alone.)
 
 LUCILLE  
@@ -3782,7 +3807,7 @@ He certainly sent you a beautiful view of the
 Detroit Athletic Club. (EILEEN glares at her.)
 And that new water-works in Cleveland. A man
 that didn't care about you would have sent a picture
-of the old water-works. He's kind of a Latin
+of the *old* water-works. He's kind of a Latin
 type. Hot-blooded.
 
 EILEEN  
@@ -3797,6 +3822,7 @@ that.
 
 EILEEN  
 He's taking it for granted. That's even better.
+
 (Any prospective reply is cut short by the return
 of BENNY.)
 
@@ -3819,7 +3845,7 @@ LUCILLE
 It's too late now.
 
 BENNY  
-No-he's still there.
+No—he's still there.
 
 LUCILLE  
 Yah, but I'm not.
@@ -3827,7 +3853,7 @@ Yah, but I'm not.
 BENNY  
 I was telling him about my new number—
 "Hello, Tokio!" He said it was a great idea.
-But I forgot you ain't heard it. (He dashes
+But I forgot—you ain't heard it. (He dashes
 for the piano.)
 
 LUCILLE  
@@ -3848,7 +3874,8 @@ Yah. Why?
 LUCILLE  
 I just wondered if things were the same over
 there.
-BENNY (thinking hard)
+
+BENNY (thinking hard)  
 Of course in a musical show he and she have got
 to get together. (Gets a sudden idea; a snap of
 the fingers.) I got it—he flies there! That's what
@@ -3865,11 +3892,13 @@ What a part for Lindbergh, if he could sing!
 LUCILLE  
 We'd better be moving. We're kind of exposed
 here.
+
 (PAUL and FRED return.)
 
 FRED  
 Hello, there! Gee, I'm glad to see you!
-PAUL (not so glad)
+
+PAUL (not so glad)  
 Oh, hello!
 
 EILEEN  
@@ -3892,13 +3921,15 @@ Yah. I'm a born rabbit's foot.
 
 PAUL  
 We don't need luck, with this number.
-FRED (to EILEEN)
+
+FRED (to EILEEN)  
 If they take it we'll have some celebration to-night!
 Won't we!
 
 EILEEN  
-We can decide that later. I don't know-I
+We can decide that later. I don't know—I
 may not want to go out to-night.
+
 (MR. HART comes back. Apparently Gershwin
 didn't stay long.)
 
@@ -3910,22 +3941,24 @@ Oh, Mr. Hart!
 
 HART  
 (a little flustered; he had not counted on
-running into EILEEN this way)
+running into EILEEN this way)  
 Well! I didn't know we had visitors. Hello,
 Lucille.
-Hello.
 
 LUCILLE  
+Hello.
+
 (HART turns slowly to EILEEN.)
 
 FRED  
-(coming to the rescue)
+(coming to the rescue)  
 This is Miss Fletcher, Mr. Hart. Miss Fletcher's
 Paul's sister-in-law.
 
 HART  
 Yes. I've already met Miss Fletcher.
-FRED (still helping)
+
+FRED (still helping)  
 Mr. Hart's been off on a trip.
 
 EILEEN  
@@ -3936,7 +3969,8 @@ He's been in all the big cities. Chicago, and
 Cincinnati, and Cleveland—
 
 LUCILLE  
-I understand Cleveland's got a new waterworks.
+I understand Cleveland's got a new water-works.
+
 (HART looks at her, dumbly.)
 
 FRED  
@@ -3945,10 +3979,12 @@ mean "June Moon"?
 
 HART  
 In a minute. I've a little work to do.
-EILEEN (quickly)
+
+EILEEN (quickly)  
 Fred's been trying very hard to learn the business.
+
+HART (arrested)  
 Yes?
-HART (arrested)
 
 EILEEN  
 I guess we've been pretty nearly every place,
@@ -3959,7 +3995,7 @@ You bet! Miss Fletcher's taken me every place.
 I think I know now what people want, all right.
 
 HART  
-(looking at FRED with new interest)
+(looking at FRED with new interest)  
 Oh! So you are a friend of Miss Fletcher's?
 
 FRED  
@@ -3970,7 +4006,7 @@ EILEEN
 Yah!
 
 HART  
-(has a thought)
+(has a thought)  
 Suppose you boys come into my office and we'll
 run this song over.
 
@@ -3999,9 +4035,12 @@ But where's Maxie? We got to have Maxie.
 HART  
 I'll send for him. Now then, who wrote this
 song?
-FRED and PAUL
+
+FRED and PAUL  
 (together, as they go through the door)
+
 I did!
+
 (The women are once more alone.)
 
 EILEEN  
@@ -4019,6 +4058,7 @@ anything about a date to-night.
 
 EILEEN  
 How could he, with Stevens here?
+
 (MAXIE crosses the stage, enroute to HART's
 office.)
 
@@ -4058,7 +4098,8 @@ EILEEN
 He's not a bad kid. I kind of like him. And he
 might make a lot of money in this game. Plenty
 of others have done it.
-LUCILLE (slowly)
+
+LUCILLE (slowly)  
 I wonder if that damned song is any good. All
 of Paul's stuff sounds just alike to me.
 
@@ -4093,7 +4134,7 @@ EILEEN
 You are? What?
 
 LUCILLE  
-(shakes her head)
+(shakes her head)  
 That's all right.
 
 EILEEN  
@@ -4107,12 +4148,13 @@ Well, what's going to happen?
 
 LUCILLE  
 I don't know. Nothing.
-EILEEN (pleading)
+
+EILEEN (pleading)  
 Will you tell me?
 
 LUCILLE  
-(makes up her mind)
-Remember-Ed Knowlton?
+(makes up her mind)  
+Remember—Ed Knowlton?
 
 EILEEN  
 Yes. What about him?
@@ -4132,7 +4174,7 @@ What's it all about? What's he doing here?
 
 LUCILLE  
 He's left Chicago for good. They're living on
-East Fifty-seventh-he and his wife and the two
+East Fifty-seventh—he and his wife and the two
 kids.
 
 EILEEN  
@@ -4157,7 +4199,7 @@ EILEEN
 Can he get rid of her?
 
 LUCILLE  
-(shakes her head)
+(shakes her head)  
 No, it's her uncle or something owns the business.
 But he saw I wasn't happy, and—well, we
 had a couple of drinks and talked. He kept saying
@@ -4184,6 +4226,7 @@ music!
 
 EILEEN  
 Listen, if you don't do this—
+
 (FRED runs on, all excitement.)
 
 FRED  
@@ -4200,13 +4243,14 @@ EILEEN
 That's wonderful.
 
 LUCILLE  
-(wildly unenthusiastic)
+(wildly unenthusiastic)  
 It's quite thrilling.
 
 FRED  
 They're making me out a check for two hundred
 and fifty dollars! That's just what they
 call an advance royalties!
+
 (PAUL returns.)
 
 PAUL  
@@ -4221,15 +4265,18 @@ Yes!
 PAUL  
 You should have heard what Hart said about
 the melody.
-FRED (to EILEEN)
+
+FRED (to EILEEN)  
 Aren't you glad about the song? Aren't you
 excited?
 
 EILEEN  
-(her mind beyond the door)
+(her mind beyond the door)  
 I should say so.
+
 (HART comes in.)
-HART (expansively)
+
+HART (expansively)  
 Well, what do you think of this young man?
 Making good in his first attempt!
 
@@ -4250,7 +4297,7 @@ HART
 Goldie'll bring it to you.
 
 MAXIE  
-(crossing to his own office)
+(crossing to his own office)  
 Well, thought you people would be on your
 way by this time.
 
@@ -4265,6 +4312,7 @@ Mr. Hart! We were all planning on going some
 place to-night, to celebrate the success of the
 song. We'd love to have you come along with us,
 if you can.
+
 (A moment of embarrassment. EILEEN just
 waits.)
 
@@ -4279,13 +4327,14 @@ FRED
 Oh, that's too bad.
 
 EILEEN  
-(with more meaning)
+(with more meaning)  
 Yes, it is.
 
 HART  
 I'm sure you'll have a wonderful time. Can't
 tell you how much I'd like to be along. But of
 course, business comes first.
+
 (A very beautiful young lady enters. Her name
 is MISS RIXEY.)
 
@@ -4293,49 +4342,51 @@ MISS RIXEY
 Hello, Joe. Am I late?
 
 HART  
-(after clearing his throat)
+(after clearing his throat)  
 Miss Rixey, isn't it?
-What?
 
 MISS RIXEY  
-(puzzled at this reception)
+(puzzled at this reception)  
+What?
 
 HART  
 Ah—they told me you were coming.
 
 MISS RIXEY  
-(coming right to him)
+(coming right to him)  
 You knew damn well I was coming!
 
 HART  
-(still trying to cover up)
+(still trying to cover up)  
 Did you bring those orchestrations?
 
 MISS RIXEY  
 (holding up a bundle which obviously contains
-two bottles of liquor)
+two bottles of liquor)  
 You mean this?
 
 HART  
 (sunk by this time; grabs her by arm and
-rushes her into his office)
+rushes her into his office)  
 Ah—just step into my office and we'll talk
 business.
 
 MISS RIXEY  
 Listen, Joe, that driver of yours is so damn
 dumb—
-HART (loudly)
+
+HART (loudly)  
 Yes, we publish that! Right this way!
 
 LUCILLE  
-(airily, when they are gone)
+(airily, when they are gone)  
 Well, well, well!
 
 FRED  
 It's too bad he can't go, but the four of us can
 have a good time.
-EILEEN (recklessly)
+
+EILEEN (recklessly)  
 Have a good time! You bet we can! We're going
 to have the best time any crowd ever had!
 Aren't we, Freddy boy? (Throws her arms
@@ -4343,6 +4394,7 @@ around him and kisses him.)
 
 FRED  
 We sure are, girlie!
+
 (GOLDIE comes on.)
 
 GOLDIE  
@@ -4403,12 +4455,13 @@ PAUL
 Don't forget we got to cash the check.
 
 EILEEN  
-(waving the check)
+(waving the check)  
 I should say not! We're not going to forget
 that, are we, Freddie boy?
 
 FRED  
 You bet we aren't!
+
 (They are gone; GOLDIE alone is left. She
 picks out some songs from the shelves. EDNA, the
 girl he left behind him, peeps in, then enters.)
@@ -4418,19 +4471,19 @@ Do you know if they've heard Mr. Stevens's
 song yet? I mean "June Moon"?
 
 GOLDIE  
-(pretty hard-boiled)
+(pretty hard-boiled)  
 Yah. They did.
 
 EDNA  
-(starting brightly forward)
+(starting brightly forward)  
 Was it all right? Did they like it?
 
 GOLDIE  
-(surveying her)
+(surveying her)  
 They took it.
 
 EDNA  
-(in pleased excitement)
+(in pleased excitement)  
 Really! Where are they? Still in there?
 
 GOLDIE  
@@ -4443,13 +4496,14 @@ GOLDIE
 They went out just a couple of minutes ago.
 
 EDNA  
-Mr. Stevens, too?
+Mr.—Stevens, too?
 
 GOLDIE  
 Yah. With Mr. Sears and the two girls.
 
 EDNA  
-Oh! ... Thank you very much.
+Oh!... Thank you very much.
+
 (GOLDIE takes a moment to look her up and
 down, then goes. EDNA stands stock still for a
 moment, stunned. The door opens and the WINDOW
@@ -4457,6 +4511,7 @@ CLEANER returns, sponge still in hand. He
 looks at EDNA a bit curiously; the scrutiny is
 more than she can stand. All she can do is rush
 out.)
+
 (The room belongs to the WINDOW CLEANER,
 and maybe he doesn't realize it. He scampers
 over to the piano and hits a few tentative notes.

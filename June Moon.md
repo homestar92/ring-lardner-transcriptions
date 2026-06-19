@@ -1549,28 +1549,30 @@ she didn't like it so much.)
 > "Montana moonlight,  
 > As bright as noon light,  
 > Oh, may it soon light  
->>My way to you!  
+>     My way to you!  
 > I know you're lonely,  
 > My one and only,  
 > For I am lonely,  
->> Yes, lonely, too."  
+>     Yes, lonely, too."  
 
 (At this point LUCILLE simply goes back to her
 sewing. PAUL's tone grows sharper as he sings,
 and she resigns herself to further listening.)
-"My heart is yearning
-For kisses burning,
-For lips as sweet as a rose in June.
-I'm always dreaming
-Of your eyes gleaming,
-Beneath the beaming
-Montana Moon!"
+
+> "My heart is yearning. 
+> For kisses burning,  
+> For lips as sweet as a rose in June.  
+> I'm always dreaming. 
+> Of your eyes gleaming,  
+> Beneath the beaming. 
+>     Montana Moon!"
+
 (MAXIE plunges into a second chorus as PAUL
 presses LUCILLE for an opinion.) Don't it sound
 great? The way Maxie plays it?
 
 LUCILLE  
-(delivering the verdict)
+(delivering the verdict)  
 I don't think Berlin will kill himself.
 
 PAUL  
@@ -1600,7 +1602,8 @@ him, telling him he's all through!
 MAXIE  
 Now, now! You're going to write plenty of
 hits.
-PAUL (sits)
+
+PAUL (sits)  
 Well, it makes a fellow lose confidence in himself.
 
 LUCILLE  
@@ -1612,7 +1615,7 @@ You go about it in a funny way.
 
 MAXIE  
 She doesn't mean anything. Of course she
-wants to help you. But this number-I wouldn't
+wants to help you. But this number—I wouldn't
 count on it too much if I were you.
 
 LUCILLE  
@@ -1622,7 +1625,7 @@ PAUL
 Why not?
 
 MAXIE  
-I just wouldn't-that's all. You can't tell
+I just wouldn't—that's all. You can't tell
 which way they're going to jump these days.
 
 PAUL  
@@ -1630,15 +1633,16 @@ They'll snap this one up. Unless they're crazy.
 
 LUCILLE  
 Keep still a minute. (To MAXIE) What's happened?
-MAXIE (reluctant)
+
+MAXIE (reluctant)  
 Nothing definite. Only they were talking about
-it-Hart and Goebel.
+it—Hart and Goebel.
 
 PAUL  
 When were they?
 
 EILEEN  
-(has heard just enough)
+(has heard just enough)  
 What did you say?
 
 MAXIE  
@@ -1670,7 +1674,7 @@ MAXIE
 I don't know. Five o'clock.
 
 EILEEN  
-Goebel and- -Hart both?
+Goebel and—Hart both?
 
 MAXIE  
 Yah. Why? (EILEEN takes a moment to digest
@@ -1686,15 +1690,16 @@ That don't matter. What did they say about
 the song?
 
 MAXIE  
-But I don't understand-
+But I don't understand—
 
 PAUL  
-Listen-what did they do? Turn it down?
+Listen—what did they do? Turn it down?
 
 MAXIE  
 (he has to say it)
 Right now they don't want it.
-PAUL (hotly)
+
+PAUL (hotly)  
 When did they hear it? After I left?
 
 MAXIE  
@@ -1705,7 +1710,8 @@ PAUL
 It's the lyric kills it! The melody's sure fire!
 Even if it don't sell over the counter it'd get a
 good mechanical break.
-MAXIE (brightly)
+
+MAXIE (brightly)  
 Maybe you could sell it outside.
 
 PAUL  
@@ -1718,7 +1724,7 @@ You mustn't let it worry you. The next one'll
 be great, and you'll forget all about this.
 
 PAUL  
-What else did they say when they heard it?
+What else did they say—when they heard it?
 Anything about me?
 
 MAXIE  
@@ -1734,21 +1740,22 @@ MAXIE
 Who?
 
 PAUL  
-Stevens-that lyric writer.
+Stevens—that lyric writer.
 
 MAXIE  
 Maybe he's just what you need. Maybe he'll
 make all the difference in the world.
 
 PAUL  
-His stuff's pretty good-what I've seen of it.
+His stuff's pretty good—what I've seen of it.
 (Disappears into the vestibule.)
-MAXIE (cheerily)
+
+MAXIE (cheerily)  
 There you are! Everything'll be fine! You
 see! (He is playing the piano again.)
 
 PAUL  
-(in the hallway)
+(in the hallway)  
 Hello, Stevens! Glad to see you!
 
 FRED  
@@ -1756,7 +1763,7 @@ Hello, Mr. Sears!
 
 PAUL  
 Put your hat and coat on the chair. Come
-right in! This is Maxie-Mr. Schwartz. Shake
+right in! This is Maxie—Mr. Schwartz. Shake
 hands with Mr. Stevens.
 
 FRED  
@@ -1764,25 +1771,28 @@ Glad to meet you, Mr. Schwartz.
 
 MAXIE  
 (playing with one hand and shaking hands
-with the other)
+with the other)  
 Hello, Stevens.
+
 (LUCILLE strolls back, eyeing the new arrival.)
 
 PAUL  
 And this is my wife. Dear, this is Mr. Stevens.
-How are you?
 
 LUCILLE  
-FRED (right there with an answer)
+How are you?
+
+FRED (right there with an answer)  
 I'm all right.
 
 LUCILLE  
 Paul tells me you're a song-writer yourself.
-FRED (modestly)
+
+FRED (modestly)  
 Just the words.
 
 LUCILLE  
-Well, that's all Paul needs-that and the
+Well, that's all Paul needs—that and the
 music.
 
 FRED  
@@ -1800,7 +1810,8 @@ Maybe Stevens and I will turn out another
 FRED  
 I'm anxious to get started, all right. Since I
 got to town, all I've done so far is spend money.
-LUCILLE (expansively)
+
+LUCILLE (expansively)  
 Well, you're quite a stranger!
 
 PAUL  
@@ -1814,7 +1825,7 @@ talked to her because I knew she must be somebody's
 mother.
 
 MAXIE  
-(who has never stopped playing)
+(who has never stopped playing)  
 A fresh slant.
 
 FRED  
@@ -1823,7 +1834,7 @@ sons. I feel sorry for old women that has to earn
 their living.
 
 LUCILLE  
-What do the boys do-rent her the stand?
+What do the boys do—rent her the stand?
 
 FRED  
 No, most of them are in a hospital and two of
@@ -1849,36 +1860,39 @@ FRED
 I seen the Goddest of Liberty, too—I mean the
 statue. It cost a million dollars and weighs 225
 ton.
-MAXIE (gently)
+
+MAXIE (gently)  
 She ought to cut out sweets. (He indulges in
 a fancy run.)
 
 FRED  
-(a gesture in the direction of MAXIE)
-He can play the piano! . . . And I seen some
+(a gesture in the direction of MAXIE)  
+He can play the piano!... And I seen some
 of the big ocean liner steamboats. I seen the
-President Harding just coming in from London or
+*President Harding* just coming in from London or
 Europe or somewheres, and the other day I seen
 the Majestic tied up to the dock. She's pretty
-near twicet as long as the President Harding and
-weighs 56,000 ton. The President Harding only
+near twicet as long as the *President Harding* and
+weighs 56,000 ton. The *President Harding* only
 weighs 14,000 ton.
+
+LUCILLE  
 Imagine!
 
-LUCILLE  
-FRED (to LUCILLE)
+FRED (to LUCILLE)  
 Have you been through the Holland Tunnel?
-No, I haven't.
 
 LUCILLE  
-FRED (to PAUL)
+No, I haven't.
+
+FRED (to PAUL)  
 Have you been through the Holland Tunnel?
 
 PAUL  
 No.
 
 FRED  
-(not for a minute giving up)
+(not for a minute giving up)  
 Have you been through the Holland Tunnel,
 Mr. Schwartz?
 
@@ -1899,11 +1913,12 @@ traffic lights. Green for "Come ahead!" and red
 for "Stop!" Maybe a comical song with a girl
 signaling her sweetheart with different colored
 lights in the window; a green light when it's all
-right for him to call-
+right for him to call—
 
 LUCILLE  
 And a red one when her husband's home.
-FRED (shocked)
+
+FRED (shocked)  
 No, I was thinking about her father. I wouldn't
 write about those kind of women- -I got no sympathy for them.
 
@@ -1912,9 +1927,9 @@ I guess you're right.
 
 FRED  
 I was thinking of another idea on the way up
-here. Maybe a song about the melting pots-all
+here. Maybe a song about the melting pots—all
 the immigrants from overseas who've come to the
-Land of Liberty. Take the Jews-do you know
+Land of Liberty. Take the Jews—do you know
 there's nearly two million Jews in New York City
 alone?
 
@@ -1925,10 +1940,10 @@ FRED
 And then there's the Hall of Fame, up to
 Washington Heights. They got everybody up
 there. Washington, Lincoln, Longfellow. They
-got two dozen-what do you call 'em-busts?
+got two dozen—what do you call 'em—busts?
 
 LUCILLE  
-(sweetly, to PAUL)
+(sweetly, to PAUL)  
 That's the place for you, dear.
 
 FRED  
@@ -1939,12 +1954,12 @@ LUCILLE
 Well, that fits in.
 
 MAXIE  
-(it's too much for him)
+(it's too much for him)  
 I've got to be going along.
 
 PAUL  
 Wait! I want Stevens to show you one of his
-lyrics-have you got that one with you? About
+lyrics—have you got that one with you? About
 the game?
 
 MAXIE  
@@ -1959,8 +1974,7 @@ I'll have to explain first, so you'll understand.
 The idea came to me at a football game between
 Syracuse and Colgate. They beat them, and they
 felt pretty bad, so the idea come to me for this
-I call it "Life Is a Game."
-little song.
+little song. I call it "Life Is a Game."
 
 MAXIE  
 A novelty!
@@ -1972,13 +1986,13 @@ PAUL
 Yeah.
 
 FRED  
-"I don't know why some people cry
-When things appear to go wrong;
-I always say 'Laugh and be gay!'
-Things cannot always go wrong!
-No use to pine, no use to whine,
-Things will come right if you just give them
-time."
+> "I don't know why some people cry  
+> When things appear to go wrong;  
+> I always say 'Laugh and be gay!'  
+> Things cannot always go wrong!  
+> No use to pine, no use to whine,  
+> Things will come right if you just give them time."
+
 That's the verse.
 
 LUCILLE  
@@ -1986,7 +2000,8 @@ Uh-huh!
 
 FRED  
 Then here's the refrain:
-"Life is a game; we are but players-"
+
+>> "Life is a game; we are but players—"
 
 MAXIE  
 Hey, bring it here! Maybe we can put some
@@ -2001,20 +2016,23 @@ I'll see if I know any.
 MAXIE  
 (sings as well as he can to MAXIE'S
 improvisation)
-"Life is a game; we are but players
-Playing the best we know how.
-If you are beat, don't let it wrangle;
-No one can win all the time.
-Sometimes the odds seem dead against you;
-What has to be, has to be,
-But smile just the same, for life is a game,
-And God is a fine referee.”
+
+> "Life is a game; we are but players  
+> Playing the best we know how.  
+> If you are beat, don't let it wrangle;  
+> No one can win all the time.  
+> Sometimes the odds seem dead against you;  
+> What has to be, has to be,  
+> But smile just the same, for life is a game,  
+> And God is a fine referee.”
+
 (MAXIE picks up the last line and sings it again,
 tacking on a rousing musical finale to fit. It is
 really the finish of "All Those Endearing Young
 Charms," but so far as FRED is concerned it has
 been composed especially for his lyric. He is
 beaming with pleasure.)
+
 I haven't got the second verse yet.
 
 MAXIE  
@@ -2025,8 +2043,8 @@ I like a song with love interest.
 
 FRED  
 Well, I got an idea and a title for another one
--I mean, of course I got lots of ideas, but this
-one, I told it to a party and she (he catches
+—I mean, of course I got lots of ideas, but this
+one, I told it to a party and she—(he catches
 himself, embarrassed)—I mean, this party seemed
 to think it was pretty good.
 
@@ -2041,7 +2059,7 @@ PAUL
 What's the title?
 
 FRED  
-"June Moon." That's the title "June Moon."
+"June Moon." That's the title—"June Moon."
 
 MAXIE  
 A war song.
@@ -2062,14 +2080,17 @@ PAUL
 I don't know-another moon song.
 
 MAXIE  
-(dashing to the piano)
-"June Moon"-I've got it!
+(dashing to the piano)  
+"June Moon"—I've got it!
+
 (He ad-libs a melody; FRED chimes in with
 some extemporized words.)
-FRED (singing)
+
+FRED (singing)  
 June Moon, how I wish you so-and-so, how I
 miss my so-and-so, spoon! (He comes out strong
 on the "spoon"—that's right, anyhow.)
+
 (Meanwhile the phone has rung again, and under
 cover of the music LUCILLE has answered it.)
 
@@ -2079,15 +2100,16 @@ Hello.... No, this is Lucille. Just a minute.
 
 PAUL  
 (who has managed, despite the confusion, to
-make mental note of MAXIE's melody)
+make mental note of MAXIE's melody)  
 Well, I might be able to dig up something for
 that.
 
 FRED  
-(plunging expansively into explanation)
+(plunging expansively into explanation)  
 I got the idea coming in on the train. I happened
-to look out of the window-
-He stops abruptly as EILEEN comes back on.
+to look out of the window—
+
+(He stops abruptly as EILEEN comes back on.
 She has put on a dress, but, in view of the news
 that MAXIE had brought, not the evening dress.
 She looks smart, however, and FRED is impressed,
@@ -2095,46 +2117,44 @@ to say the least. Paying no attention to any one,
 she heads straight for the telephone.)
 
 EILEEN  
-•
-Hello! . . . Oh, no, not at all. (To say that
+Hello!... Oh, no, not at all. (To say that
 the lady is sarcastic is putting it mildly.) What
-train? . . You're sure of that, are you?
+train?... You're sure of that, are you?
 Nothing, only I thought you might be mistaken.
 Everybody makes mistakes, you know. (It's a
 good chance for MAXIE to escape, and he leaps up.
 While EILEEN is still talking he manages to get
-out "Good-by, everybody! I'm due at the
-Orchard! Glad to have met you, Stevens," etc.
-PAUL follows him out with: "Now look! Don't
+out— *"Good-by, everybody! I'm due at the Orchard! Glad to have met you, Stevens,"*
+etc. PAUL follows him out with: "Now look! Don't
 say anything to Fagan, because I don't want him
-to know until-" The voices die out. FRED,
+to know until—" The voices die out. FRED,
 a bit embarrassed, is left alone with the two girls,
 while EILEEN continues her phone talk.) Yes, I
 can imagine. It must have been terribly tiresome
-in Philadelphia all day. . . . What? . . . Oh,
-really? (Her tone indicates that this is the body
+in Philadelphia all day.... What?... Oh, really?
+(Her tone indicates that this is the body
 blow.) I thought you were leaving to-morrow.
-...What time to-night? My, it must be
-important! . . . Then-I won't have a chance to
-say good-by before you go. . . . Oh, no, don't
-trouble yourself—it's quite all right. . . . Yes,
-I'm sure you are...No, I don't mind a bit.
+...What time to-night?... My, it must be
+important!... Then—I won't have a chance to
+say good-by before you go.... Oh, no, don't
+trouble yourself—it's quite all right.... Yes,
+I'm sure you are... No, I don't mind a bit.
 I'm just sorry you have to spend the night on a
-train, that's all. . . . Oh, perfectly! . . . Have
+train, that's all.... Oh, perfectly!... Have
 a pleasant trip. (But she doesn't mean "pleasant
 trip." She hangs up; a look flashes between her
 and LUCILLE.)
 
 LUCILLE  
-(coming back to the present)
+(coming back to the present)  
 Mr. Stevens, this is my sister, Miss Fletcher.
-Eileen-Mr. Stevens. (She gives a broad wave of
+Eileen—Mr. Stevens. (She gives a broad wave of
 the hand, as if to say, "And if you want him, he's
 yours.")
-Hello.
 
 EILEEN  
-(her mind on the telephone)
+(her mind on the telephone)  
+Hello.
 
 FRED  
 I'm glad to meet you, Miss Fletcher.
@@ -2150,12 +2170,13 @@ Oh, yes. Have you been in New York long?
 
 FRED  
 Just a couple of weeks. I'm from Schenectady.
-EILEEN (a lot she cares)
+
+EILEEN (a lot she cares)  
 Schenectady, eh?
 
 LUCILLE  
 (with the air of a person who is washing
-that up)
+that up)  
 Schenectady.
 
 FRED  
@@ -2166,7 +2187,7 @@ EILEEN
 I suppose they've closed down?
 
 FRED  
-(who knows better than that)
+(who knows better than that)  
 No. I had a post-card to-day from a fella that
 works there.
 
@@ -2214,12 +2235,13 @@ Huh?
 LUCILLE  
 Mr. Stevens would love those. (To EILEEN.)
 Wouldn't he?
+
+EILEEN (slowly coming to)  
 Yah.
-EILEEN (slowly coming to)
 
 LUCILLE  
 I'll tell you what! Why don't we make up a
-party-the four of us-and show Mr. Stevens the
+party—the four of us-and show Mr. Stevens the
 town!
 
 FRED  
@@ -2230,8 +2252,8 @@ What do you say, Eileen? How about it?
 
 EILEEN  
 (thinking hard; her eyes go involuntarily to
-the telephone)
-Why-sure! I don't know why not! Sure!
+the telephone)  
+Why—sure! I don't know why not! Sure!
 
 FRED  
 Well, wait! It'd be great to go, all right, only
@@ -2242,12 +2264,13 @@ Oh, but you could put that off!
 
 EILEEN  
 Of course you could!
-LUCILLE (as PAUL re-enters)
+
+LUCILLE (as PAUL re-enters)  
 Paul had another engagement, too. He broke
 it on your account, didn't you, dear?
 
 PAUL  
-(to whom this is news)
+(to whom this is news)  
 What?
 
 LUCILLE  
@@ -2256,7 +2279,7 @@ to go out some place, but Mr. Stevens doesn't
 want to.
 
 FRED  
-It ain't that I don't want to, but-
+It ain't that I don't want to, but—
 
 LUCILLE  
 You know, you really ought to. Paul was just
@@ -2279,8 +2302,9 @@ EILEEN
 But you could do something about that. You
 could go if
 you really wanted to. (So close to him
-that he is groggy.) Don't you want to?
-FRED (hesitating)
+that he is groggy.) Don't you—want to?
+
+FRED (hesitating)  
 Well, I ain't dressed to go out. I mean, to
 some swell place.
 
@@ -2297,7 +2321,7 @@ on. (A movement.)
 
 PAUL  
 Well, wait a minute! It's just that I didnt
-happen to bring much money with me-
+happen to bring much money with me—
 
 LUCILLE  
 Oh, that's all right. Mr. Stevens can be the
@@ -2309,13 +2333,14 @@ As long as you're going to be partners!
 
 LUCILLE  
 Come on! Let's hurry!
+
 (The GIRLS rush off.)
 
 PAUL  
 Is that all right with you?
 
 FRED  
-(looking after the pair)
+(looking after the pair)  
 Say, she's quite a girl, isn't she?
 
 PAUL  
@@ -2332,7 +2357,7 @@ She's a regular New York girlie.
 
 PAUL  
 Maybe it wouldn't be a bad notion for you to
-knock around a few nights-I mean, before we
+knock around a few nights—I mean, before we
 start working. Might give you some ideas.
 
 FRED  
@@ -2363,11 +2388,12 @@ No. Just about average.
 
 FRED  
 Hello.... I want to speak to Miss Edna
-Baker, please. . . . Yes. (To PAUL.) I mean,
+Baker, please.... Yes. (To PAUL.) I mean,
 what do you think it would be likely to come to
 for the four of us? More than ten dollars?
-PAUL (vaguely)
-No-not unless we go on to some other place.
+
+PAUL (vaguely)  
+No—not unless we go on to some other place.
 You've got more with you, haven't you?
 
 FRED  
@@ -2377,28 +2403,27 @@ PAUL
 One of the other clubs.
 
 FRED  
-But I don't-hello. . . . Hello. . . . Eddie?
-....I want to tell you something.
+But I don't-hello.... Hello.... Eddie?... I want to tell you something.
 
 PAUL  
 I'll go and wash up. (Departs.)
 
 FRED  
-Well, I'm up there now, but that isn't- Sure.
-...Yeah, it looks all right. . . . No, I'm still
-here. There was a piano player here from Goe-
-bel's. He liked my stuff and made up a tune to
-some of it. . . . Yeah. . . . He said it was all
-right. But that isn't . . . what I called up to
-say was I can't get around there till late...
+Well, I'm up there now, but that isn't—Sure....
+Yeah, it looks all right.... No, I'm still
+here. There was a piano player here from Goebel's.
+He liked my stuff and made up a tune to
+some of it.... Yeah.... He said it was all
+right. But that isn't... what I called up to
+say was I can't get around there till late....
 No, it'll be later than that. There's no telling
-what time it'll be. . . . We got to study some
-songs....Paul Sears and his wife....No,
+what time it'll be.... We got to study some
+songs.... Paul Sears and his wife.... No,
 no, don't think that. It's a business proposition.
 They're taking me to a place where we'll get some
 ideas.... Just the three of us.... But you
 know I'd rather be with you. (EILEEN comes back,
-coat over arm.) But I can't....I can't....
+coat over arm.) But I can't.... I can't....
 They're taking me. I'll tell you all about it in the
 morning.... That's all I can say now.... I
 can't.... In the morning.... Good night.
@@ -2408,7 +2433,7 @@ EILEEN
 You seem to be having your troubles.
 
 FRED  
-No, that wasn't anything. Just a friend of
+No, that wasn't anything. Just a—friend of
 mine.
 
 EILEEN  
@@ -2422,7 +2447,8 @@ EILEEN
 I understand.
 
 FRED  
-She's just a-a girl from a little town.
+She's just a—a girl from a little town.
+
 (LUCILLE comes back, full of life. Pulling on
 gloves, etc.)
 
@@ -2430,6 +2456,7 @@ LUCILLE
 Listen-it's kind of early for the Orchard anyhow.
 So why don't we take in the second show at
 the Capitol?
+
 (PAUL is on again.)
 
 PAUL  
@@ -2453,7 +2480,7 @@ But say, the Cotton Club don't get hot till
 three!
 
 FRED  
-(who has never heard of that hour)
+(who has never heard of that hour)  
 What time?
 
 EILEEN  
@@ -2488,6 +2515,7 @@ The St. Regis Roof.
 
 FRED  
 I get dizzy if I climb a ladder!
+
 (The voices of the others pick up in a confused
 jumble as
 

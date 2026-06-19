@@ -4532,11 +4532,11 @@ THE CURTAIN FALLS
 
 ## Act III
 
-The scene is still at Goebel's-the time about
+The scene is still at Goebel's—the time about
 a month later. GOLDIE comes on and goes to the
 music racks. While she is searching for songs,
 BENNY enters. Except that BENNY never just
-enters he shoots on.
+enters—he shoots on.
 
 BENNY  
 Where's Hart?
@@ -4575,7 +4575,8 @@ You ain't heard it all because I didn't know it
 myself till last night. Harry Ruby told me at the
 Friars. It seems that the night I played it there,
 there was a fella named Stein hanging around.
-GOLDIE (incredulous)
+
+GOLDIE (incredulous)  
 At the Friars?
 
 BENNY  
@@ -4627,13 +4628,16 @@ It was on at five different stations last night.
 BENNY  
 The oldest idea in the world! And I write a
 great novelty number and it's stole off me!
+
 (PAUL arrives.)
-PAUL (to GOLDIE)
+
+PAUL (to GOLDIE)  
 Have you seen Stevens?
-Want to hear a great song?
 
 BENNY  
-PAUL (still to GOLDIE)
+Want to hear a great song?
+
+PAUL (still to GOLDIE)  
 Have you?
 
 GOLDIE  
@@ -4646,12 +4650,13 @@ enters.) Hello, Boss! You're just in time!
 
 HART  
 (a wave of the hand that takes care of
-BENNY for the moment)
+BENNY for the moment)  
 Where's Stevens? Is he in yet?
 
 PAUL  
 I'm waiting for him myself.
-HART (to GOLDIE)
+
+HART (to GOLDIE)  
 Call his hotel. See if he's there.
 
 GOLDIE  
@@ -4660,11 +4665,12 @@ He was out.
 
 HART  
 See if they know where to get a hold of him.
+
 (GOLDIE goes. She loves her work, this girl.)
 How are you coming with the new numbers?
 
 PAUL  
-(uncomfortably)
+(uncomfortably)  
 Pretty good, only Fred don't seem to want to
 work lately. He was going to meet me here at
 eleven.
@@ -4683,7 +4689,7 @@ PAUL
 Yes, sir. (He goes out.)
 
 BENNY  
-(stopping HART before he can escape)
+(stopping HART before he can escape)  
 Listen, Mr. Hart! It won't take me two minutes
 to show you this number. It's sure to hit
 you.
@@ -4715,9 +4721,8 @@ MAXIE
 And still grinding them out?
 
 HART  
-It's probably one of those things, but you know
--you never can tell. Anything can happen,
-after "June Moon."
+It's probably one of those things, but *you* know—you
+never can tell. Anything can happen, after "June Moon."
 
 MAXIE  
 As long as you've brought that up, would you
@@ -4729,10 +4734,12 @@ What is it?
 MAXIE  
 Did you have any idea that was going to be a
 hit? Honestly, now?
-HART (hesitantly)
+
+HART (hesitantly)  
 Well, I'll tell
 you, Maxie—
-MAXIE (starts to leave)
+
+MAXIE (starts to leave)  
 That's all I wanted to know.
 
 HART  
@@ -4743,7 +4750,7 @@ MAXIE
 He'll get home safe. (He goes.)
 
 BENNY  
-(still trying)
+(still trying)  
 Listen, Mr. Hart, won't you hear this?
 
 HART  
@@ -4762,14 +4769,17 @@ number.
 BENNY  
 I ain't knocking his lousy number, but get this,
 Mr. Hart! (He jumps to the piano.)
-"Should a father's carnal sins
-Blight the life of babykins?
-All I ask is give our child a—"
+
+> "Should a father's carnal sins  
+> Blight the life of babykins?  
+> All I ask is give our child a—"
+
 (His hands descend on the keyboard in an annoyed
 discord as FRED and EILEEN enter.)
 
 HART  
 Well! Here's the groom at last!
+
 (BENNY goes, banging the door behind him.)
 
 EILEEN  
@@ -4786,7 +4796,7 @@ FRED
 Much obliged.
 
 HART  
-But don't forget your work. When do
+But don't forget your work. When do you sail?
 
 EILEEN  
 Saturday.
@@ -4795,9 +4805,7 @@ FRED
 We sail Saturday.
 
 HART  
-you
-sail?
-(having his bit of fun)
+(having his bit of fun)  
 I certainly envy you. I wish I could go along.
 
 FRED  
@@ -4806,7 +4814,8 @@ There's no chance, I suppose?
 HART  
 Not at this time of year. (Visibly enjoying the
 situation.) If you could postpone it a month—
-FRED (brightening)
+
+FRED (brightening)  
 Yah, that might be a good idea!
 
 EILEEN  
@@ -4836,8 +4845,9 @@ Yes?
 EILEEN  
 Fred wants to speak to you about something
 else.
+
+FRED (quickly)  
 No, I don't.
-FRED (quickly)
 
 EILEEN  
 
@@ -4858,7 +4868,8 @@ leaves.)
 EILEEN  
 Why didn't you ask him when you had a
 chance?
-FRED (weakly)
+
+FRED (weakly)  
 They've advanced me so much already.
 
 EILEEN  
@@ -4866,7 +4877,7 @@ But sweetheart, you promised me. You said
 you'd ask him to-day.
 
 FRED  
-I will after while. I got to find Paul now-I
+I will after while. I got to find Paul now—I
 got to go to work.
 
 EILEEN  
@@ -4902,9 +4913,8 @@ dollars advance on each of them.
 
 FRED  
 But that's too much! I've borrowed thirty-five
-hundred dollars off them already on "June Moon"
-—maybe more than my royalties will amount to
-altogether.
+hundred dollars off them already on "June Moon"—maybe
+more than my royalties will amount to altogether.
 
 EILEEN  
 Don't be ridiculous! That number will still be
@@ -4937,7 +4947,7 @@ pretty near full.
 
 EILEEN  
 But we don't have to see anybody. A bride and
-groom don't generally go around much-they're
+groom don't generally go around much—they're
 supposed to be so awfully in love.
 
 FRED  
@@ -4961,7 +4971,7 @@ rooms will be under water.
 
 EILEEN  
 Let's not think about such things. Just think
-of the pleasant side. London and Paris-I'm glad
+of the pleasant side. London and Paris—I'm glad
 we're going to Paris first, so I can get some
 clothes.
 
@@ -4970,13 +4980,14 @@ Clothes? What have you been buying?
 
 EILEEN  
 They're all right for the ship, dear, but not the
-Riviera. Don't you want to be proud of me the
+Riviera. Don't you want to be proud of me—the
 way I look?
 
 FRED  
 But if you're going to stay in your cabin all
 the time you won't need nothing but a Mother
 Hubbard.
+
 (MAXIE comes back; EILEEN automatically
 starts to go.)
 
@@ -4989,15 +5000,17 @@ Pretty near. The boat sails Saturday.
 MAXIE  
 I don't know what you want to go to Europe
 for.
+
+EILEEN (bristling)  
 Why not?
-EILEEN (bristling)
 
 MAXIE  
 Because he's never been there. A song-writer
 never goes anywhere for the first time—they're
-always going back to places. Back to Indiana—
-back, back to Baltimore.
-EILEEN (annoyed)
+always going back to places. Back to Indiana—back,
+back to Baltimore.
+
+EILEEN (annoyed)  
 Fred, are you going to talk to Mr. Hart?
 
 FRED  
@@ -5016,16 +5029,17 @@ I hear it's quite a place.
 
 FRED  
 Yes, I guess so. I was kind of excited about it
-at first, but now I don't know-I don't want to
-go so bad. I'm kind of tired, I guess-the way
+at first, but now I don't know—I don't want to
+go so bad. I'm kind of tired, I guess—the way
 we been going it lately. I'm kind of behind on my
 sleep.
-MAXIE (appraisingly)
+
+MAXIE (appraisingly)  
 But you've been having a lot of fun. All those
 night clubs.
 
 FRED  
-I did at first-dancing and everything-but
+I did at first—dancing and everything—but
 now my feet's so sore I have to take a bath every
 day. You might as well take a whole bath as just
 your feet. And they ache so I can't sleep in them.
@@ -5038,7 +5052,7 @@ much. Eileen wants a taxi if she's only going in
 the other room.
 
 MAXIE  
-This trip to Europe that's going to be kind
+This trip to Europe—that's going to be kind
 of expensive, too, ain't it?
 
 FRED  
@@ -5056,7 +5070,7 @@ got to have so many clothes. Sometimes I think
 it would be better if I hadn't got engaged.
 
 MAXIE  
-(feeling his way)
+(feeling his way)  
 I read of a case once, in Michigan, where a
 man was engaged to a girl and didn't marry her.
 
@@ -5068,14 +5082,16 @@ No. But my memory's pretty good. For instance,
 I remember a mighty nice little girl that
 was here to see you one time. I even remember
 her name—Miss Baker.
-FRED (nervously)
+
+FRED (nervously)  
 Maxie, you haven't seen her or anything, have
 you?
 
 MAXIE  
-(the picture of innocence)
+(the picture of innocence)  
 Me? No. Why?
-FRED (uneasily)
+
+FRED (uneasily)  
 I guess I shouldn't be thinking of her at a time
 like this—
 
@@ -5084,6 +5100,7 @@ Are you?
 
 FRED  
 I don't know. Sometimes I—
+
 (GOLDIE enters, bound for those same old music
 shelves. It is a welcome interruption so far as
 FRED is concerned.)
@@ -5093,12 +5110,14 @@ I got to find Paul. I got to do some work. (He
 withdraws.)
 
 MAXIE  
-(looking after him)
+(looking after him)  
 Just one of the Happiness boys—he and Pagliacco.
-GOLDIE (with her songs)
+
+GOLDIE (with her songs)  
 Mother song and mother song—why don't they
 ever write about their uncle?
-MAXIE (thoughtfully)
+
+MAXIE (thoughtfully)  
 Suppose I told you I was thinking of doing
 something about him?
 
@@ -5125,13 +5144,15 @@ She's the one he ought to be marrying, instead
 of this whatever-she-is.
 
 GOLDIE  
-(with monumental indifference)
+(with monumental indifference)  
 My God, what's the difference who marries a
 lyric writer? (She goes.)
+
 (MAXIE stands a moment, deep in thought. He
-drifts to the piano-aimlessly, instinctively.
+drifts to the piano—aimlessly, instinctively.
 Drops onto the bench; his fingers slide over the
 keys. But he is not thinking about his music.)
+
 (And then LUCILLE enters. A new LUCILLE,
 patently. She wears a gorgeous red dress, topped
 off with a coat of the same material, trimmed in
@@ -5141,7 +5162,7 @@ dressed woman can have. She comes into the room
 slowly, confidently.)
 
 MAXIE  
-(as he looks her over)
+(as he looks her over)  
 Hello.
 
 LUCILLE  
@@ -5167,6 +5188,7 @@ Not especially.
 
 MAXIE  
 You look like a bride yourself.
+
 (LUCILLE gives a visible start; the situation is
 saved by the entrance of EILEEN.)
 
@@ -5178,7 +5200,7 @@ Well, I've got to get busy, if you'll excuse me.
 (He goes.)
 
 EILEEN  
-(observing the dress)
+(observing the dress)  
 Oh, say, it's a peach!
 
 LUCILLE  
@@ -5193,7 +5215,7 @@ I think so. I'm to phone his office later on. (She
 is not at ease.)
 
 EILEEN  
-(a look at her watch)
+(a look at her watch)  
 What do you say we have lunch?
 
 LUCILLE  
@@ -5228,7 +5250,7 @@ Thanks!
 EILEEN  
 You know what I mean. All he thinks about's
 his tunes. We've got a chance to be happy, you
-and I-for a while, anyhow. Let's take it!
+and I—for a while, anyhow. Let's take it!
 
 LUCILLE  
 You're a funny one to figure out.
@@ -5238,15 +5260,16 @@ Why?
 
 LUCILLE  
 Taking up with Stevens this way. You always
-lectured me about Paul-his being a song-writer.
+lectured me about Paul—his being a song-writer.
 And now you're going to go and do the same thing.
 
 EILEEN  
 Stevens is different. He's a nice kid. Of course,
-he's not exactly what you'd call-bright.
+he's not exactly what you'd call—bright.
 
 LUCILLE  
 Bright? He's not even born yet.
+
 (PAUL enters.)
 
 PAUL  
@@ -5259,11 +5282,11 @@ PAUL
 What's that—a new dress?
 
 LUCILLE  
+(a silly question)  
 This?
-(a silly question)
 
 EILEEN  
-(sensing a storm)
+(sensing a storm)  
 I'll meet you outside, Lucille.
 
 LUCILLE  
@@ -5271,11 +5294,12 @@ Wait a minute—I'll go with you.
 
 PAUL  
 No, I want to talk to you.
+
+LUCILLE (scared)  
 What?
-LUCILLE (scared)
 
 PAUL  
-(a look at EILEEN)
+(a look at EILEEN)  
 Stay in here a minute.
 
 LUCILLE  
@@ -5289,7 +5313,7 @@ LUCILLE
 What's the matter?
 
 PAUL  
-(on the dress again)
+(on the dress again)  
 That is new, isn't it?
 
 LUCILLE  
@@ -5319,8 +5343,9 @@ What?
 
 PAUL  
 About her and Fred.
+
+LUCILLE (in vast relief)  
 Oh!
-LUCILLE (in vast relief)
 
 PAUL  
 She's got him so he can't hardly work at all.
@@ -5339,7 +5364,7 @@ LUCILLE
 You can write other numbers while he's gone.
 
 PAUL  
-But that ain't the point. I mean-do you
+But that ain't the point. I mean—do you
 think we ought to do it?
 
 LUCILLE  
@@ -5347,20 +5372,20 @@ Do what?
 
 PAUL  
 Do you think they ought to go ahead and get
-married? He's a hell of a nice guy-I've kind of
+married? He's a hell of a nice guy—I've kind of
 got to like him.
 
 LUCILLE  
 What of it? Eileen's a nice girl.
 
 PAUL  
-But you know what I mean. Isn't it kind of
+But—you know what I mean. Isn't it kind of
 a dirty trick—I mean, after the way Eileen—
 (LUCILLE gives him a sharp look.) Well, Hart
 and everything?
 
 LUCILLE  
-(in a low tone)
+(in a low tone)  
 You ought to have more sense.
 
 PAUL  
@@ -5386,32 +5411,34 @@ She shouldn't have spent it at all. You should
 have had more sense than to let her.
 
 LUCILLE  
-(flaring a little)
+(flaring a little)  
 How could I stop her? I wasn't there!
 
 PAUL  
 Yes, you were! You were with her all afternoon.
 
 LUCILLE  
-(quickly covering herself)
+(quickly covering herself)  
 Oh, yes. I thought you meant the day before.
 
 PAUL  
 It was Sunday, the day before.
 
 LUCILLE  
-Yah-I just mixed up, that's all.
+Yah—I just mixed up, that's all.
 
 PAUL  
 Anyhow, something ought to be done about it.
 She's got him in debt enough.
-LUCILLE (nervously)
+
+LUCILLE (nervously)  
 I'll talk to her about it.
 (Starts out.) Don't
 Don't say anything
 you say anything to her.
 about—I mean, what she spent yesterday afternoon.
 I'll go and talk to her. (She gets away.)
+
 (PAUL stands in thought for a moment; then
 he starts to go. BENNY catches him in the act.)
 
@@ -5425,7 +5452,8 @@ BENNY
 Can you hear that number now?
 
 PAUL  
-Aw-I got to work, Benny. (Goes.)
+Aw—I got to work, Benny. (Goes.)
+
 (GOLDIE immediately enters.)
 
 BENNY  
@@ -5439,20 +5467,21 @@ Where is he?
 
 GOLDIE  
 He's out getting a permanent. (And she goes.)
+
 (BENNY almost gives up; is about to leave. But
 then there arrives the beautiful young woman
 known as MISS RIXEY. She heads for HART'S
 door.)
 
 BENNY  
-(without much hope)
+(without much hope)  
 Say, do you want to hear a new song?
 
 MISS RIXEY  
 Sure!
 
 BENNY  
-(bowled over by this answer)
+(bowled over by this answer)  
 What?
 
 MISS RIXEY  
@@ -5460,21 +5489,24 @@ I said sure.
 
 BENNY  
 (darts to the piano and starts)
-"Should a father's carnal sins
-Blight the life of babykins?
-All I ask is give our child—"
+
+> "Should a father's carnal sins  
+> Blight the life of babykins?  
+>     All I ask is give our child—"
+
 (But MISS RIXEY has not waited. Something
 about the rhythm has caught her ear, and she has
 simply gone into her dance. It has expressed itself
 in the form of a neat Off-to-Buffalo, right
 through the door and into HART's office. And perhaps
 further.)
+
 (BENNY sits looking after her, stunned. As he
-does so EDNA enters a bit uncertainly, as is her
+does so EDNA enters—a bit uncertainly, as is her
 wont, but she enters.)
 
 BENNY  
-(willing to take anything)
+(willing to take anything)  
 Hello, kid.
 
 EDNA  
@@ -5494,21 +5526,23 @@ like Berlin, only more pathetic. Now I got a new
 one. It's about a couple that have a baby without
 benefit to a clergyman, and you can dance to
 it. (He plays it.)
-"Should a father's carnal sins
-Blight the life of babykins?
-All I ask is give our child a name—I mean a
-last name.
-I don't ask to share your life,
-Live with you as man and wife;
-All I ask is give our child a name—
-Not just a first name."
+
+> "Should a father's carnal sins
+> Blight the life of babykins?
+> All I ask is give our child a name—I mean a last name.
+> I don't ask to share your life,
+> Live with you as man and wife;
+> All I ask is give our child a name—
+> Not just a first name."
+
 (MAXIE comes on.) Hello, Maxie. I'll start over
 so you can get this.
-"Should a father's carnal sins—
+
+> "Should a father's carnal sins—
 
 MAXIE  
-(looking at EDNA)
-Wait a minute! Isn't this-Miss Baker?
+(looking at EDNA)  
+Wait a minute! Isn't this—Miss Baker?
 
 EDNA  
 And you're Mr. Schwartz.
@@ -5518,7 +5552,8 @@ Correct!
 
 BENNY  
 Come on, Maxie! Get a load of this!
-"Should a father's carnal sins—"
+
+> "Should a father's carnal sins—"
 
 MAXIE  
 Go back to your cell! We want to talk!
@@ -5527,7 +5562,7 @@ BENNY
 But she wants to hear this number!
 
 MAXIE  
-(gets an idea)
+(gets an idea)  
 Listen! You don't know who she is.
 
 BENNY  
@@ -5551,7 +5586,7 @@ Why—no. I—I thought it was very friendly.
 
 MAXIE  
 Of course it isn't really any of my business exactly,
-but nobody else was doing anything, so
+but—nobody else was doing anything, so
 I thought I would. Probably you can guess who
 it's about.
 

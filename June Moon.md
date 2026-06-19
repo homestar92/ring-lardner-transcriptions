@@ -32,38 +32,6 @@ Hebrew than English and Celtic.
 
 
 ## PROLOGUE
-
-
-## FOREWORD  
-In the year 1898 there were 201 fatal street
-accidents in the city of New York. Of these,
-eighty-eight were caused by horse vehicles and
-113 by street-cars. In the latter total are included people who died of old age while waiting
-for cars that were not labelled “Car Barn Only.”
-The following year brought the automobile to
-America’s metropolis and the statistics attribute
-one fatality to its arrival, as against 103 deaths
-by horse vehicles and 167 by street-cars. It was
-not until 1913 that the automobile forged to the
-front as a lethal weapon, never again to be
-headed. After 1918 the horses and street-cars
-virtually gave up trying, and the figures for last
-year show that the thing has ceased to be a contest and become a joke—1,075 deaths by autos,
-64 by street-cars and 14 by horse vehicles.
-It is estimated that if the horse vehicles and
-street-cars had kept on fighting and maintained
-their early leadership over automobiles, by the
-year 1970 the entire population of New York
-City would have been wiped out and no harm
-done.
-The World Almanac, from which this information was gleaned, gives us only one ray of hope.
-In New York’s biggest borough, Brooklyn, there
-were a thousand fewer births and thirteen hundred more death in 1928 than in 1927. It may
-also comfort some folks to know that only fifty
-thousand more New Yorkers speak Yiddish and
-Hebrew than English and Celtic. 
-
-## PROLOGUE  
 The scene is a section of a parlor car speeding toward New York, and not so very far from
 it when the curtain rises. We see only two chairs
 clearly; the ends of the car dissolve in shadows.
@@ -72,6 +40,7 @@ filled with baggage. There is a bag or two overhead;
 on the floor are quantities of Sunday newspapers, along with plenty of rotogravure sections,
 curling carelessly against the bottoms of the
 chairs. It is night, and the shades are down.
+
 In the two vital chairs sit a boy and a girl.
 The name of the boy, as we presently find out, is
 FRED STEVENS. The girl is EDNA BAKER. She sits
@@ -95,13 +64,13 @@ to an imaginary spot on her dress. She chips at
 it with a fingernail.
 
 FRED  
-(diffidently extending his newspaper)
-Would you-care to look at the paper?
+(diffidently extending his newspaper)  
+Would you—care to look at the paper?
 
 EDNA  
 (ever so properly, in the manner of a young
 woman who never has been spoken to on a
-train before)
+train before)  
 Oh, thank you very much. I don't think so,
 thank you. (By turning away from him again
 she indicates that she is not encouraging a continuation of the interview.)
@@ -113,7 +82,7 @@ EDNA
 No, thank you. (She gives him a small smile.)
 
 FRED  
-(trying desperately to keep things going)
+(trying desperately to keep things going)  
 We're due in New York at ten-three.
 
 EDNA  
@@ -136,7 +105,6 @@ That's where I work. I mean, where I did
 work. At the G. E.
 
 EDNA  
-
 G. E.?  
 
 FRED  
@@ -144,7 +112,7 @@ General Electric. They call it the G. E. That's
 where their plant is, Schenectady.
 
 EDNA  
-(feeling that it's all right to help along)
+(feeling that it's all right to help along)  
 I've got a girl friend from Schenectady.
 
 FRED  
@@ -160,7 +128,7 @@ I used to know a Mildred Crowell, but her
 name wasn't Grace.
 
 EDNA  
-(refusing to give in)
+(refusing to give in)  
 This was Grace. I haven't seen her for years,
 and I never did know her very well.
 
@@ -229,7 +197,7 @@ I like a man to have a middle name. Girls
 don't usually have them. I'm just plain Edna.
 
 FRED  
-(pretty daring, for him)
+(pretty daring, for him)  
 I wouldn't say "plain."
 
 EDNA  
@@ -302,7 +270,7 @@ I love to have a man love their mother.
 
 FRED  
 I wished mine was still here. Like Carl Williams
-said in his speech last night-if she was
+said in his speech last night—if she was
 still here, maybe she would be a little proud of me.
 
 EDNA  
@@ -321,8 +289,9 @@ them all down to visit me on Broadway and
 show them the sights.
 
 EDNA  
-(a bit too eagerly)
+(a bit too eagerly)  
 Is that what you are? A song-writer?
+
 FRED (nods)
 Not the music part; just the words. Lyrics,
 they're called.
@@ -332,7 +301,7 @@ It must be wonderful to have a gift like that.
 
 FRED  
 That's what Benny Davis called it—a gift. I
-guess you've heard of him-he's turned out a hundred
+guess you've heard of him—he's turned out a hundred
 smash hits.
 
 EDNA  
@@ -360,11 +329,11 @@ where they have the Mecca for song-writers. And
 he give me a letter of introduction to Paul Sears,
 the composer. He wrote "Paprika." You remember
 "Paprika"? (He sings a strain of it.) "Paprika,
-Paprika, the spice of my life"
-I think so.
+Paprika, the spice of my life—"
 
 EDNA  
-(with quick concurrence)
+(with quick concurrence)  
+I think so.
 
 FRED  
 When you write a song like "Paprika" you
@@ -384,7 +353,8 @@ leave her alone.
 
 EDNA  
 Is she in Schenectady?
-FRED (nods)
+
+FRED (nods)  
 She got married a week ago Saturday. A fella
 I been working with in the shipping department—
 Bob Gifford.
@@ -402,7 +372,7 @@ EDNA
 She'll love them!
 
 FRED  
-She always done everything for me I mean,
+She always done everything for me—I mean,
 cooked my meals and sewed things for me. Look!
 (Dives for his bag and starts opening it.) She
 made me a half a dozen shirts before I left. Different
@@ -446,7 +416,7 @@ find out different.
 EDNA  
 A girl alone in New York can't be too careful,
 especially a girl in my position. You take at Dr.
-Quinn's, where I work-he's one of the best dentists
+Quinn's, where I work—he's one of the best dentists
 there is, and he has lots of men patients that
 would be only too glad to start a little flirtation.
 Why even Doctor himself was fresh, the first day
@@ -472,7 +442,7 @@ I got plenty of excuses for being there. I got
 a cavity as big as the Grand Canyon.
 
 EDNA  
-(laughing a little harder than is necessary)
+(laughing a little harder than is necessary)  
 You must forgive me laughing. Caroline used
 to tell me I had the keenest sense of humor of any
 person she ever met.
@@ -536,7 +506,7 @@ FRED
 Girls ought to lay off it entirely.
 
 EDNA  
-(quickly covering her slip)
+(quickly covering her slip)  
 I never touch it.
 
 FRED  
@@ -559,13 +529,13 @@ as I am now. I believe a husband appreciates
 a wife dressing up for him.
 
 FRED  
-(ever the practical soul)
+(ever the practical soul)  
 If it ain't too expensive.
 
 EDNA  
 The man I marry won't have any complaints.
 I make practically all my own clothes. Caroline
--she's the girl I used to live with-she used to
+—she's the girl I used to live with—she used to
 say I always looked like I had just stepped out of
 a bandbox, even if we were only sitting in our
 room. We hardly ever went out evenings; personally
@@ -585,7 +555,7 @@ FRED
 The Hotel Somerset. They got rooms with a
 bathroom right in the room, so you don't have to
 go out of the room. And it's close to the music
-publishing houses and the Friars' Club-any place
+publishing houses and the Friars' Club—any place
 I want to go, I can walk. Except to Paul Sears'
 place. He probably lives in some swell apartment,
 or maybe a country place in Great Neck or
@@ -603,7 +573,7 @@ away from home in the evening since he was married.
 He's got a wife and baby now.
 
 EDNA  
-(so impulsively)
+(so impulsively)  
 Oh, I'm dying to have a baby! (She catches
 herself.) Heavens! I didn't mean to say that. I
 love them so.
@@ -636,7 +606,7 @@ Oh, Mr. Stevens, if only all men felt the same
 way!
 
 FRED  
-(a look at his watch)
+(a look at his watch)  
 My, it's nine twenty-six already.
 
 EDNA  
@@ -644,9 +614,10 @@ It's been a shorter trip than usual, for some
 reason.
 
 FRED  
-(trying to peer out the window)
+(trying to peer out the window)  
 I wonder where we're at now?
-EDNA (also peering)
+
+EDNA (also peering)  
 Pretty near Yonkers, I guess.
 
 FRED  
@@ -663,7 +634,7 @@ EDNA
 Yes, I love it.
 
 FRED  
-June-moon.
+June—moon.
 
 EDNA  
 What?
@@ -716,7 +687,7 @@ No, I won't. Are you going right home when
 we get in?
 
 EDNA  
-Why-I intended to. (She sits up, expectantly.)
+Why—I intended to. (She sits up, expectantly.)
 
 FRED  
 I thought I'd go and get something to eat some
@@ -745,7 +716,7 @@ us and we had hot roast beef sandwiches, and
 peas, and coffee, and it only came to a dollar-twenty.
 
 FRED  
-(with vast relief)
+(with vast relief)  
 All right. I guess we can each afford sixty
 cents.
 
@@ -759,12 +730,14 @@ in the neighborhood of One Hundred and Sixteenth
 Street, and once it was pretty good. It's
 a bit run down now, and since people began moving
 to the East Side the neighborhood has become
-somewhat declassee-not more so, however, than
+somewhat declassee—not more so, however, than
 PAUL SEARS, the tenant of this particular apartment.
+
 We see the living-room, if you can call it living.
 There is a piano, because PAUL SEARS is a
 composer. The rest of the furniture is what you
 might imagine, or worse.
+
 PAUL, a commonplace-looking man in his middle
 thirties, is at the piano when the curtain
 rises. He is in his shirt sleeves and is alternately
@@ -775,6 +748,7 @@ piano player. He is laboriously going
 over the same phrase again and again. And if
 you had never even heard it once, it would be too
 often.
+
 LUCILLE, his wife, comes on from the rear
 rooms of the apartment. A spare but still attractive
 woman, on whom three years of marriage
@@ -785,8 +759,7 @@ into a chair and starts to read. PAUL continues
 torturing the piano.
 
 LUCILLE  
-(addressing herself more than PAUL, as she
-scans her paper)
+(addressing herself more than PAUL, as she scans her paper)  
 What do you know about that! Myra Vale's
 engaged!
 
@@ -805,7 +778,8 @@ Dillingham.
 LUCILLE  
 Yes, you did! She was in "Nanette" with Eileen
 and me before you ever saw her.
-PAUL (belligerently)
+
+PAUL (belligerently)  
 Who says so?
 
 LUCILLE  
@@ -819,16 +793,17 @@ LUCILLE
 I can vouch for that.
 
 PAUL  
-(jumping up from the piano)
+(jumping up from the piano)  
 This is the last time I'll work with Fagan! I
 rewrite two whole bars of the melody for him, and
 when I ask him to change one word of his lyric,
 he squawks. He's got it "as a rose in June," and
-I want him to make it "as roses in June." Listen-here's
+I want him to make it "as roses in June." Listen—here's
 his way (he plays and sings): "As a
 rose in June." And here's the way I want it: "As
 roses in June." All the difference in the world.
-LUCILLE (wearily)
+
+LUCILLE (wearily)  
 It sounds just the same to me.
 
 PAUL  
@@ -875,18 +850,20 @@ That's the first I've heard about it.
 PAUL  
 You wait till this number gets over. We'll go
 everywhere then.
+
+LUCILLE (tiredly)  
 Oh, sure!
-LUCILLE (tiredly)
 
 PAUL  
 You haven't heard it played yet. It'll be another
 "Paprika." Did I tell you what Dave
 Stamper said about it?
+
+LUCILLE (quickly)  
 Yes!
-LUCILLE (quickly)
 
 PAUL  
-(just as though she'd said "No")
+(just as though she'd said "No")  
 He said it was another "Paprika." You wait
 till you hear it played. Dave Stamper says it's
 sure fire. (Back to his "playing" again.)
@@ -909,11 +886,12 @@ PAUL
 It ruins a composer to play the piano too good.
 They depend on fancy harmony and tempo, instead
 of pretty melodies.
+
+LUCILLE (giving up)  
 All right.
-LUCILLE (giving up)
 
 PAUL  
-(his eye drawn to the newspaper)
+(his eye drawn to the newspaper)  
 Did you read that thing from that Boston
 paper about "Pretty Polly"? They say Gershwin
 hasn't given them one tune. (He's pretty pleased
@@ -929,7 +907,7 @@ getting his start. I brought him and Georgie
 White together.
 
 LUCILLE  
-(simply not listening)
+(simply not listening)  
 Why can't you see this man in the daytime instead of asking him up here?
 
 PAUL  
@@ -963,7 +941,7 @@ Old man Goebel remembers it, and so does Hart.
 They made enough money out of it.
 
 LUCILLE  
-(the eternal wife)
+(the eternal wife)  
 Everybody makes money but you.
 
 PAUL  
@@ -971,7 +949,7 @@ Yes, they do! There's plenty fellas around the
 club that's just as flat as I am.
 
 LUCILLE  
-(ever so brightly)
+(ever so brightly)  
 That makes everything all right.
 
 PAUL  
@@ -1010,7 +988,7 @@ He'll wriggle off the hook some way. If you
 ask me he's getting tired of her already.
 
 LUCILLE  
-(with sudden interest)
+(with sudden interest)  
 What makes you think so?
 
 PAUL  
@@ -1022,7 +1000,7 @@ She don't cost you much, and she's company
 for me.
 
 PAUL  
-What's the matter with her getting a job somewheres?
+What's the matter with her getting a job somewheres?  
 (The telephone rings.)
 
 LUCILLE  
@@ -1030,8 +1008,8 @@ Yeah. You ought to be able to place her, with
 your influence.
 
 PAUL  
-(at the telephone)
-Hello. . . . Oh, hello, Maxie!  
+(at the telephone)  
+Hello.... Oh, hello, Maxie!
 (There enters, from the rear rooms, EILEEN.
 She has been drawn by the ring of the telephone,
 and comes on eagerly, expectantly. She is a
@@ -1046,44 +1024,45 @@ her; relaxes. From her mouth comes a cloud of
 cigarette smoke. PAUL, of course, has kept right
 on with his phone conversation.)
 ·
-Sure going to be here all evening. . . . All
-right. Fine! (He hangs up; turns to LUCILLE.)
+Sure—going to be here all evening.... All
+right.... Fine! (He hangs up; turns to LUCILLE.)
 Maxie's coming over. Wait till you hear
 him play it—(a gesture toward his music)—then
 you'll see!
 
 EILEEN  
-(drifting over to LUCILLE)
+(drifting over to LUCILLE)  
 What time is it?
 
 PAUL  
-(going right on)
+(going right on)  
 It's going to be another "Paprika."
 
 LUCILLE  
 (reaching for the dress that EILEEN has
-brought along)
+brought along)  
 Want me to do that?
 
 EILEEN  
 I'll go crazy, waiting around here!
 
 PAUL  
-(you can't stop him)
+(you can't stop him)  
 If I team up with this new fella you'll hear some
 hits.
 
 LUCILLE  
-(handing over the paper to EILEEN)
+(handing over the paper to EILEEN)  
 Did you see this? Myra Vale's announced her
 engagement.
 
 EILEEN  
 Who to, for God's sake?
-Nobody we know.
 
 LUCILLE  
-EILEEN (reading)
+Nobody we know.
+
+EILEEN (reading)  
 No. And nobody that knows her, you can bet
 on that.
 
@@ -1096,7 +1075,7 @@ Oh, sure. He introduced Rogers to Peet, didn't
 he?
 
 LUCILLE  
-(indicating the dress)
+(indicating the dress)  
 This isn't going to last much longer.
 
 EILEEN  
@@ -1119,11 +1098,11 @@ PAUL
 You wait till this number gets over.
 
 LUCILLE  
-(quite pleasantly)
+(quite pleasantly)  
 By that time I'll only want a shawl.
 
 PAUL  
-(finally flaring up)
+(finally flaring up)  
 There's nothing helps a man like being married
 to a woman that always encourages you and
 looks on the bright side. I'm going to write an
@@ -1147,7 +1126,7 @@ If I was in your place, I'd keep pretty still in
 this house. That is, unless I was paying board.
 
 EILEEN  
-(it's a good battle, by this time)
+(it's a good battle, by this time)  
 Don't you dare say I'm dependent on you, because I'm not!
 
 PAUL  
@@ -1174,10 +1153,11 @@ Harms with it.
 EILEEN  
 Harms wouldn't let you in their elevator!
 
-PAUL  
+PAUL    
 (as he goes proudly into the next room)
 I was in it this afternoon!
-EILEEN (a long, long sigh)
+
+EILEEN (a long, long sigh)  
 Is Hart going to phone or isn't he? It gets me
 crazy, this waiting.
 
@@ -1190,7 +1170,7 @@ They're not married to a piano tuner with
 ten thumbs.
 
 EILEEN  
-(hoping against hope)
+(hoping against hope)  
 Maybe he didn't get back from Philadelphia.
 He might still be over there.
 
@@ -1245,7 +1225,7 @@ laugh.) Remember the way I used to figure when
 Paul first came along? I thought marrying a
 song-writer meant going to all the first nights,
 meeting everybody that was worthwhile, going
-down to Palm Beach⸺
+down to Palm Beach—
 
 EILEEN  
 You would, too, if Paul was any good.
@@ -1253,11 +1233,12 @@ You would, too, if Paul was any good.
 LUCILLE  
 I wonder what it'd be like if we'd stayed in
 Stroudsburg. I'd probably be married to Will
-Broderick, and we'd have a car⸺
+Broderick, and we'd have a car—
 
 EILEEN  
 To drive over to Scranton in.
-LUCILLE (a sigh)  
+
+LUCILLE (a sigh)    
 I suppose I ought to get consolation out of one
 thing. I never expect a phone call or a mash
 note or an invitation or even a half pound box of
@@ -1301,7 +1282,7 @@ when I'm lying to him, every time.
 EILEEN  
 Him! He isn't even listening to you! You
 could have callers right in this room and he
-wouldn't hear them come in-not with all those
+wouldn't hear them come in—not with all those
 God-given melodies ringing in his ears.
 
 LUCILLE  
@@ -1316,7 +1297,7 @@ him, you're crazy!
 LUCILLE  
 And if I did, do you know what would happen?
 He'd write ten smash hits in a week. That's my
-luck. . . . God! It would be wonderful to have
+luck.... God! It would be wonderful to have
 some clothes and hold up my head again!
 
 EILEEN  
@@ -1346,28 +1327,29 @@ He must be thinking of it. He doesn't ever go
 out with anybody else.
 
 LUCILLE  
-(trying to recall what EILEEN had said)
+(trying to recall what EILEEN had said)  
 How long's he going to be gone this time—three weeks?
 
 EILEEN  
-Yeah-about. He's got to go to Chicago, and-a lot of places.
+Yeah—about. He's got to go to Chicago, and—a lot of places.
 
 LUCILLE  
 What are you going to do with yourself all
-that time just sit around?
+that time—just sit around?
 
 EILEEN  
-Maybe he'll treat us to some shows-I'll ask
+Maybe he'll treat us to some shows—I'll ask
 him to-night. Maybe he'll get us seats for some
 shows.
 
 LUCILLE  
 Do they still have seats at shows?
-EILEEN (restless again)
+ 
+EILEEN (restless again)  
 Only I wish that thing would ring!
 
 LUCILLE  
-Why don't you go out with Bert or somebody,
+Why *don't* you go out with Bert or somebody,
 while he's gone? It might be a good thing for
 him.
 
@@ -1385,8 +1367,8 @@ Who?
 
 LUCILLE  
 (disappearing into the hallway, talking
-as she goes)
-You know, that's coming to see Paul. From
+as she goes)  
+*You* know, that's coming to see Paul. From
 Albany or some place.
 
 EILEEN  
@@ -1395,10 +1377,12 @@ Oh!
 LUCILLE  
 Of course he couldn't meet him in the daytime.
 He has to bring him up here in the middle of the
-night (Having opened the outside door.) Oh,
+night— (Having opened the outside door.) Oh,
 it's you!
+
+MAXIE (outside)  
 Hello, there!
-MAXIE (outside)
+
 (PAUL comes back into the room.)
 
 PAUL  
@@ -1424,24 +1408,25 @@ You didn't come right up from the office, did
 you?
 
 MAXIE  
-(indicates his dinner coat)
+(indicates his dinner coat)  
 Do I look it? I'm playing down at the Orchard
 this week. Pounding the piano for a lot of morons.
 I envy you people that can spend an evening at home.
-LUCILLE (with emphasis)
+
+LUCILLE (with emphasis)  
 Yes. It's a great treat.
 
 PAUL  
 I want the girls to hear the "Montana" number,
 the way it sounds when it's really played.
+
 (EILEEN starts to go.)
 
 MAXIE  
-
 O. K.  
 
 PAUL  
-(stopping EILEEN)
+(stopping EILEEN)  
 Hey! He's going to play the "Montana"
 number.
 
@@ -1455,6 +1440,7 @@ Go ahead, Maxie. She don't know anything.
 MAXIE  
 Think of me slaving down at the Orchard
 while you people enjoy all the comforts of home.
+
 (An impatient movement from LUCILLE.)
 
 PAUL  
@@ -1463,23 +1449,24 @@ Go ahead with "Montana.”
 MAXIE  
 It certainly was a tough day for me when
 Edison invented the piano. Fixing up other people's
-tunes-there's a life work for you.
-Go on.
+tunes—there's a life work for you.
 
 PAUL  
-ΜΑΧΙΕ
-(his fingers rambling over the keys)
+Go on.
+
+ΜΑΧΙΕ  
+(his fingers rambling over the keys)  
 You know, I might have been a song-writer myself
 but I got stuck on my own stuff. I wrote
-tunes nobody ever heard before they wouldn't
+tunes nobody ever heard before—they wouldn't
 stand for it.
 
 PAUL  
-(prompting with a gesture)
+(prompting with a gesture)  
 "Montana."
 
 MAXIE  
-(about to start, but resumes talking instead)
+(about to start, but resumes talking instead)  
 That was a great idea of Fagan's, writing a
 lyric about Montana. I've often wondered why
 lyric writers stayed out of the Northwest.
@@ -1491,19 +1478,19 @@ MAXIE
 Naw! Shamokin, Pennsylvania. If song-writers
 always wrote about their home state, what a big
 Jewish population Tennessee must have. (He
-starts playing a popular tune-the telephone
+starts playing a popular tune—the telephone
 rings. PAUL takes it up.)
 ·
 ·
 
 PAUL  
-Hello. This is him. . . . Oh, hello! .
-Where are you at now? . . . Well, you better
-hop in a taxi-it's quite a ways yet. (EILEEN
-makes another expectant appearance in the doorway-departs
+Hello. This is him.... Oh, hello!...
+Where are you at now?... Well, you better
+hop in a taxi—it's quite a ways yet. (EILEEN
+makes another expectant appearance in the doorway—departs
 in disappointment as she learns
 that it still isn't her call.) 448 Riverside Drive.
-Tell him just above 116th Street. . . . That's it.
+Tell him just above 116th Street.... That's it.
 (He hangs up; addresses MAXIE, who continues to
 drum.) That's Stevens, the lyric writer I was
 telling you about. From Schenectady.
@@ -1523,14 +1510,15 @@ Telephone book, I guess.
 
 LUCILLE  
 And then he called up for the address? (She
-shakes her head-it's too much for her.) I want
+shakes her head—it's too much for her.) I want
 to meet him.
-PAUL (to MAXIE)
+
+PAUL (to MAXIE)  
 You'll like this fella. He's young yet. He's got
 a fresh slant.
 
 MAXIE  
-What does he do-write about counties instead
+What does he do—write about counties instead
 of states?
 
 PAUL  
@@ -1547,22 +1535,26 @@ Are you going to play it? (MAXIE plunges
 into the preliminary chords; PAUL comes to life
 and sets himself to sing. Raises a warning finger
 in the direction of LUCILLE.) Now listen!
-"Golden West that seems so far away,
-Golden girl for whom I'm always pining,
-Don't you know I love you night and day,
-But chiefly when the full bright moon is shining!”
+
+> "Golden West that seems so far away,  
+> Golden girl for whom I'm always pining,  
+> Don't you know I love you night and day,  
+> But chiefly when the full bright moon is shining!”  
+
 (He takes new breath for the chorus. LUCILLE,
 meanwhile, is listening intently, but hardly enthusiastically.
 In fact, you might almost think
 she didn't like it so much.)
-"Montana moonlight,
-As bright as noon light,
-Oh, may it soon light
-My way to you!
-I know you're lonely,
-My one and only,
-For I am lonely,
-Yes, lonely, too."
+
+> "Montana moonlight,  
+> As bright as noon light,  
+> Oh, may it soon light  
+>>My way to you!  
+> I know you're lonely,  
+> My one and only,  
+> For I am lonely,  
+>> Yes, lonely, too."  
+
 (At this point LUCILLE simply goes back to her
 sewing. PAUL's tone grows sharper as he sings,
 and she resigns herself to further listening.)

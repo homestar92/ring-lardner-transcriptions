@@ -2500,3 +2500,1958 @@ I get dizzy if I climb a ladder!
 jumble as
 
 THE CURTAIN FALLS  
+
+## Act II
+
+The scene is a room at Goebel's music publishing
+house. A piano, a few chairs, some shelves,
+and you have it. Three or four weeks have gone
+by since Act I.
+MAXIE is at the piano just amusing himself
+when the curtain rises. He is playing "La
+Boheme" and cutting loose a trifle. There enters,
+from one of the adjacent offices, a young woman
+(an employee) known as GOLDIE. She may have
+got her name because of the color of her hair or
+from the fact that she is really a Miss Goldberg.
+That point is never brought up in this play, but
+may some day be the subject of a musical comedy.
+Anyway, she comes on and busies herself
+looking over songs at the music shelves, on which
+the hits of these and other days are piled high.
+
+GOLDIE  
+(busy with her songs)
+"There Never Was a Girl Like Mother."
+
+MAXIE  
+Maybe it's all for the best. . . . How's the
+boss? Did he have a good trip?
+
+GOLDIE  
+He says not. He says in the Middle West
+they're still wild over "The Rosary."
+
+MAXIE  
+That looks like a hit.
+
+GOLDIE  
+Did Benny find you? He was looking for you.
+
+MAXIE  
+Not yet.
+
+GOLDIE  
+He's got a new song.
+
+MAXIE  
+That's good. I was afraid he was written out.
+
+GOLDIE  
+You'd better hide if you don't want to hear it.
+
+MAXIE  
+No use—he always gets his man. Besides, I've
+got to stick around and play Paul's new one,
+"June Moon."
+
+GOLDIE  
+Is it any good?
+
+MAXIE  
+It's got a chance.
+It's a tune that's easy to remember,
+but if you should forget it it wouldn't
+make any difference.
+(FRED plunges in.)
+
+FRED  
+Ain't Mr. Hart back yet?
+
+GOLDIE  
+Not yet.
+
+FRED  
+Don't you even know what time he's coming?
+
+GOLDIE  
+Can't tell. His first day back in town-he's
+probably got a lot of things to do. (She goes—
+and pretty disrespectfully, too.)
+
+FRED  
+It's half past four. He said he was coming
+back at two o'clock.
+
+MAXIE  
+You get used to waiting in this game. I've
+been in it twenty-two years and nothing's happened yet.
+
+FRED  
+Paul's coming right in. We want to play the
+song once before Mr. Hart hears it. I made a
+change.
+
+MAXIE  
+Whereabouts.
+
+FRED  
+In the refrain. We had it "Sweet night-bird,
+hovering above," now it's "winging aloft." You
+see, "aloft" means the same like "above.”
+
+MAXIE  
+Only higher.
+
+FRED  
+I wish I'd known Mr. Hart was going to be
+late. I could have slept some more. I had to get
+up at twelve.
+
+MAXIE  
+That must be tough after working for the
+General Electric, where a man's hours are practically his own.
+
+FRED  
+No. I had to be on the job at eight, every
+morning. But I went to bed about ten, except
+Saturday nights, when I seen a picture or something.
+I didn't know what life was, in Schenectady.
+
+MAXIE  
+I bet it's an open book to you now.
+
+FRED  
+Imagine—only going out one night a week and
+then just to a moving picture show! Down here
+it's like as if every night was a special night—
+there's always new places to go to. Miss Fletcher
+—she's always locating new ones! We was in
+three last night! Wound up at half past seven
+this morning, in the Bucket of Blood! There's a
+lively place! We was the last ones there. Paul
+and Lucille, they went home at seven, but I and
+Miss Fletcher stayed and she made the proprietor
+sell me six bottles of his gin. It's real gin; what
+they call pro-war. You got to have good gin.
+It's one of the things they put into what they call
+a Bronx cocktail.
+
+MAXIE  
+Is that so?
+
+FRED  
+Didn't you ever have one?
+
+MAXIE  
+I don't drink. After I listen to songs all day
+I don't want liquor. I just go home and take a
+general anesthetic.
+
+FRED  
+I like Bronxes best. They're nothing but gin
+and orange juice. I don't know why they call it
+a Bronx.
+
+MAXIE  
+It's great orange country, up there.
+
+FRED  
+Anyway, I got a bargain—six bottles for sixty
+bucks. I give Miss Fletcher three bottles for a
+present, because if it hadn't been for her I
+wouldn't have got them. She made the man do
+it. When you're around with her you just can't
+resist doing things.
+
+MAXIE  
+I know. That's why I don't carry a gun.
+
+FRED  
+She's a great sport, all right. She'd make a
+wonderful wife-she's such a good pal. I think
+a man's wife ought to be their pal as well as their
+sweetheart.
+
+MAXIE  
+You ought to patent that.
+
+FRED  
+Say-how much money do you think a fella
+ought to be making before he could get married?
+In New York, I mean?
+
+MAXIE  
+It depends on the girl.
+
+FRED  
+Buddy De Sylva makes pretty near half a million
+dollars a year out of just writing lyrics. I
+guess a man could support a wife on that!
+
+MAXIE  
+If she was satisfied to ride a bicycle.
+
+FRED  
+Well, suppose "June Moon" is a big smash?
+What's the most we could make out of it?
+
+MAXIE  
+It's hard to say. Take a song like "Swanee
+River" and it's still going big.
+
+FRED  
+Yeah, but that's because it was in a big production
+like "Show Boat."
+
+MAXIE  
+How's that?
+
+FRED  
+And with that girl to sing it, that sits on the
+piano.
+
+MAXIE  
+You're thinking of Ruby Keeler in "The Wild
+Duck."
+
+FRED  
+Well, whoever it was. (Turns away; suddenly
+remembers.) Oh, say! I was over to the tailor's
+to-day. I'm getting a new suit. Miss Fletcher
+took me.
+
+MAXIE  
+That so?
+
+FRED  
+It's a blue search, with a hair-bone strip. He
+took my measures all over. Like I was a fighter.
+I'm thirty-eight inches around my chest, and
+thirty-three around my stomach, and—I forget
+my thigh. Anyway, he's got it all wrote down.
+
+MAXIE  
+I must get a copy.
+
+FRED  
+If they like "June Moon" I'm going to have an
+evening dinner coat made, with a Tuxedo. I been
+wearing an old suit of Paul's, but it's too big.
+Miss Fletcher says it would hold two like me.
+
+MAXIE  
+There couldn't be two.
+
+FRED  
+She was just joking.
+
+MAXIE  
+I see.
+
+FRED  
+They've given me a wonderful time, all right.
+They've introduced me to all the big stars! Gil
+Boag, and Earl Carroll, and Texas Guinan! I
+met Texas Guinan!
+
+MAXIE  
+She's kind of hard to meet, isn't she?
+
+FRED  
+No. She's one of the friendliest women I ever
+seen. When the girls told her who I was she said
+it was a big night in her life-she said she'd always
+wanted to meet a lyric writer. I wonder
+what my friends in Schenectady would say if they
+knew I sat around and talked to Texas Guinan!
+I didn't know nothing when I lived there. Even
+the first few weeks I was in New York, I was kind
+of a sap.
+
+MAXIE  
+That sounds incredible.
+
+FRED  
+I went sightseeing to places like the Aquarium,
+and Grant's Tomb, and the Central Park animal
+zoo, and thought I was having a great time. A
+little friend of mine, she took me around places
+she'd been to and I thought I was seeing New
+York because I didn't know no better. She was
+from a small town, too—she didn't know no better
+either. Only now I've learned.
+
+MAXIE  
+What's become of her? Did she go home?
+
+FRED  
+No, she lives here. She works for a dentist.
+I must call her up some time and see how she's
+getting along. (A WINDOW CLEANER enters. He
+looks a great deal like a window cleaner.) What
+are you going to do?
+
+WINDOW CLEANER  
+Wash the windows.
+
+FRED  
+But we're going to try a song here. Can't you
+go somewheres else first?
+
+WINDOW CLEANER  
+First! I'm pretty near through for the day.
+Besides, they're singing songs all over the building.
+That don't bother me.
+
+FRED  
+But we're going to sing a new one for Mr.
+Hart.
+
+WINDOW CLEANER  
+How much does a man get for writing songs?
+
+FRED  
+It depends on the song.
+
+WINDOW CLEANER  
+Say a big hit like "Nearer My God To Thee'?
+(Just before MAXIE can brain him, PAUL comes
+on.)
+
+PAUL  
+Are you ready?
+
+FRED  
+Yah. (To MAXIE.) Let's do the song now.
+
+MAXIE  
+Plenty of time.
+
+FRED  
+I wish Hart would come, so I can get my advance
+royalty check. Say, where will I get it
+cashed? At the American Express Company?
+
+MAXIE  
+Or the 59th Street Bridge.
+(BENNY Fox bounds on. He's a song-writer of
+the dangerous type.)
+
+BENNY  
+Where's Hart?
+
+FRED  
+He ain't back yet.
+
+BENNY  
+(buttonholing MAXIE)
+I've got it this time! "Hello, Tokio!" How's
+that for a title? They wanted a novelty number!
+I guess I've give it to them!
+
+FRED  
+I and Paul have got a hit!
+
+PAUL  
+Yeah!
+
+FRED  
+We think so, anyway.
+
+BENNY  
+(paying no attention to them)
+In the verse I've got a fella here in New York
+that sees a pitcher of a Japanese princess and he's
+nuts over her, but he can't afford a trip to Japan
+just on a chance. So he calls her up-get it?
+"Hello, Tokio!" Get this! Here's the refrain!
+After he calls her up! (He plays and sings it, the
+chorus being as follows):
+"Hello, hello, Tokio!
+Girlie, you'll excuse it, please,
+If I no spik Japanese.
+This little call will leave me broke-o,
+But I simply had to say, 'I love you so.'
+Believe me, dearie, it's no joke-o;
+I'd gladly fly through fire and smoke-o'
+To share with you the marriage yok-o,
+Fairest flower of Tokio-oki-okio!"
+(But that isn't all. PAUL and FRED start 
+expectantly toward the piano as the finish approaches,
+but BENNY double-crosses them by
+plunging quickly into a second chorus. This
+time the WINDOW CLEANER, who has been entranced
+by the whole thing, starts to beat time
+with his sponge. He holds the sponge directly over
+BENNY's head, and the resulting drips do not help
+the second chorus any. By way of good measure,
+he then chimes in on the finish, winding up with
+one "Okio" left over after BENNY is through playing.
+BENNY glares at him, and he turns back to
+his window-washing.)
+
+BENNY  
+(to MAXIE, when it's all over)
+Well, what do you think?
+
+MAXIE  
+It would sound better in Japanese.
+
+BENNY  
+How about it, Paul?
+
+PAUL  
+It's a pretty good number.
+
+BENNY  
+It's a great number! Here's another onejust
+come to me last night!
+(He starts to play a refrain—a melody so familiar
+that MAXIE calmly pushes him off the
+bench and finishes it himself.)
+
+BENNY  
+(a bit discouraged)
+Oh, you're too wise! (He goes.)
+
+MAXIE  
+(starting to play)
+All right, boys!
+(The WINDOW CLEANER decides that he doesn't
+want to hear this one. He opens the window, and
+a good gale of wind blows most of the papers off
+the piano.)
+
+PAUL  
+Hey!
+
+FRED  
+What are you trying to do?
+
+WINDOW CLEANER  
+I'm sorry. I didn't realize it was blowing so
+hard. I'm glad I ain't out in a boat.
+
+MAXIE  
+I wish you'd been on the Hesperus. (The WINDOW
+CLEANER climbs out the window, and presently
+disappears from view. MAXIE and the boys
+plunge into "June Moon," with FRED leading the
+singing.)
+"Summer winds are sighing in the trees, my dear;
+I am sure I know what makes them sigh:
+They are sad on moonlight nights like these, my
+dear;
+They are lonely for you, same as I.
+Sweetheart, how can you resist their plea,
+And the moon you used to share with me?
+June Moon, shining above,
+Will my true love come soon?
+June Moon, I am so blue;
+I know that you long for her, too.
+Sweet night-bird, winging aloft,
+Singing a soft love tune,
+Tell her to come to me here,
+To me and her dear June Moon."
+(As the song finishes, EDNA, the girl of the prologue,
+quietly enters. MAXIE is the first to see
+her.)
+
+MAXIE  
+You got an audience.
+
+FRED  
+(none too pleased)
+Hello there, girlie!
+EDNA (ill at ease)
+Hello.
+
+FRED  
+I wasn't expecting to see you. Ah—this is—
+you met Mr. Sears. This is Miss Baker, everybody.
+And this is Mr. Schwartz.
+
+MAXIE  
+How do you do, Miss Baker?
+
+EDNA  
+Hello. They told me to come in, but I'm afraid
+you're busy.
+
+MAXIE  
+Not a bit.
+
+FRED  
+We were just polishing off our number. "June
+Moon."
+
+EDNA  
+You've finished it, haven't you? It's beautiful.
+PAUL (eagerly)
+Did you like the melody?
+(GOLDIE enters; she has work to do at the
+music shelves.)
+
+EDNA  
+I loved it. And I love Fred's words. I think
+everybody will.
+
+MAXIE  
+Are you fond of music?
+
+EDNA  
+I love it.
+
+MAXIE  
+We'll send you some good stuff. Goldie! Get
+Miss Baker's address before she leaves-we'll send
+her some music.
+
+GOLDIE  
+(visions of more work)
+Oh, yeah? (She goes.)
+
+EDNA  
+(an embarrassed pause)
+I don't want to interrupt. Maybe I'd better be
+going.
+
+MAXIE  
+No, no! We'll go. You stay right here!
+
+FRED  
+But look, if Mr. Hart comes in—
+
+MAXIE  
+We'll be in Benny's room. Good-by, Miss
+Baker.
+
+EDNA  
+Good-by, Mr.
+
+MAXIE  
+Schwartz. Maxie Schwartz. It's a Greek name.
+(PAUL and MAXIE go. FRED and EDNA are
+alone.)
+
+EDNA  
+Hello.
+
+FRED  
+I'm fine. Are you?
+
+EDNA  
+We're all alone, Fred.
+
+FRED  
+Huh?
+
+EDNA  
+Nobody's looking.
+
+FRED  
+Oh! (He kisses her a kiss that would easily
+get by the censors.)
+
+EDNA  
+My, it seems nice again!
+
+FRED  
+You bet!
+
+EDNA  
+Fred, what's been the matter?
+
+FRED  
+Nothing. I just been busy, that's all. I was
+going to call you as soon as I wasn't busy.
+
+EDNA  
+I thought maybe you were sick or something.
+I tried to call you up two mornings-I mean, at
+your hotel and they said you couldn't be waked
+up before one o'clock, I think it was.
+
+FRED  
+That's only because I been up late the night
+before, working. We got the song all finished.
+
+EDNA  
+It's beautiful! I had no idea it would turn out
+so beautiful! It's beautiful!
+
+FRED  
+We're going to sing it for Mr. Hart as soon
+as he gets here.
+
+EDNA  
+It's a beautiful song. Up to now I felt it was
+sort of ours together. I mean, the way it started
+when we were on the train, and then you telling
+me how it was getting along every day, and now
+all of a sudden it's finished and I haven't got anything
+to do with it any more.
+
+FRED  
+Yes, you have. When it's published I'll make
+them put your name on the cover-"Dictated to
+Miss Edna Baker."
+
+EDNA  
+Oh, Fred, I'd love that! But I'd love something
+else better.
+
+FRED  
+What's that?
+
+EDNA  
+It's been two Sundays since we went anywhere
+together. Remember the day we took our lunch,
+and went over on the Palisades all day, and then
+in the evening we went to the amusement park
+and went on all the rides! We didn't get home till
+pretty near twelve o'clock! And then we were
+going again the next Sunday, only-we didn't.
+
+FRED  
+But that's because I've been working. I told
+you.
+
+EDNA  
+You don't have to work days and nights both.
+
+FRED  
+(trying to wriggle out)
+I have to work when Paul feels like it. Music
+writers don't keep no hours-they work when
+they're inspired. And it ain't just writing the
+songs that takes time. You have to go around
+places, and keep in contract with the other boys,
+so you get new notions. You got to keep getting
+new notions in this game.
+
+EDNA  
+What kind of places do you have to go to?
+
+FRED  
+You know-places where they have music.
+
+EDNA  
+You mean-night clubs?
+
+FRED  
+Some of them.
+
+EDNA  
+Just you and Mr. Sears?
+
+FRED  
+Well, generally we all go together.
+
+EDNA  
+Who else?
+
+FRED  
+Paul's wife. Lucille, her name is.
+(BENNY starts to come on; stops as he sees
+them.)
+
+BENNY  
+(So graciously, as though the interruption
+had been the other way around)
+That's all right. (Withdraws.)
+
+EDNA  
+Doesn't anybody else go along, to sort of even
+up the party?
+
+FRED  
+(a second's hesitation; then he blurts it out)
+Nobody you know! I hardly know her myself.
+She just comes along because she's Lucille's sister
+and lives there.
+
+EDNA  
+Oh!
+
+FRED  
+You can't leave her home by herself. She's
+timid.
+
+EDNA  
+Does she know about—me, Fred?
+
+FRED  
+Huh?
+
+EDNA  
+Didn't you ever tell her about-me?
+
+FRED  
+Well, you see, we just-it's only business, and
+there hasn't nothing like that come up.
+
+EDNA  
+What's she like, Fred?
+
+FRED  
+I don't know. She—
+
+EDNA  
+(hard at work)
+A girl like she has probably got lots of beautiful
+clothes. She probably makes little me look
+like nothing.
+
+FRED  
+That part don't matter. It wouldn't make no
+difference to me if she had all the clothes in the
+world. Or if she was bare, either.
+
+EDNA  
+Is she very pretty?
+
+FRED  
+Yah, she-I hardly ever noticed if she was
+pretty or not.
+
+EDNA  
+What's her name?
+
+FRED  
+Miss Fletcher.
+
+EDNA  
+I mean her first name.
+
+FRED  
+I think they call her Eileen.
+
+EDNA  
+That's a beautiful name. It's a lot nicer than
+mine, don't you think?
+
+FRED  
+It's just a different name.
+
+EDNA  
+Is she blonde or brunette?
+
+FRED  
+Both-I mean she's red-headed. That is, I
+never paid much attention.
+
+EDNA  
+How old is she?
+
+FRED  
+I don't know.
+
+EDNA  
+Older than I am?
+
+FRED  
+A little bit, I guess. I guess she must be. She's
+been on the stage.
+
+EDNA  
+(putting across a little mild horror)
+Honestly, Fred?
+
+FRED  
+Yah, but don't think I mean, that don't mean
+anything.
+
+EDNA  
+Oh, Fred, you want to be careful! Because
+you take a woman like she, that's close to forty
+or more
+
+FRED  
+She ain't forty.
+
+EDNA  
+(conceding two years)
+Well, thirty-eight. And she sees a young boy
+who almost any woman would be proud to win
+your affection, and there isn't anything she might
+not stoop to, to entangle you.
+
+FRED  
+There won't no woman untangle me.
+
+EDNA  
+You can't tell, Fred-the most terrible things
+can happen. There was a near friend of mine, a
+man, and he was acquainted with a count, an international
+count, and he came here to New York
+and one night they went on a wild party and he
+fell in love with a beautiful chorus girl from the
+Metropolitan Opera Company-I forgot the name
+of the opera. And he bought her pearls and diamonds,
+and in less than a week's time he found
+out they was both married. That's just what
+could happen to you, dear.
+
+FRED  
+Who found out who was married?
+
+EDNA  
+Both of them were married-the count and the
+girl.
+
+FRED  
+He must have been a fine count, not to know
+he was married.
+
+EDNA  
+Fred, doesn't it cost an awful lot of money
+when you go around to all these places-or do
+they take you?
+
+FRED  
+Well, that part's going to be all right, because
+as soon as they take our song I'll get what they
+call an advance royalties. And of course after
+it's a big hit I'll have plenty of money.
+
+EDNA  
+I see.
+
+FRED  
+Only the first thing I'm going to do—I mean,
+when I get my advance royalties-I'm going to
+pay you back that little loan.
+
+EDNA  
+That doesn't matter, Fred.
+
+FRED  
+But I don't like owing money to a girl. Especially
+a girl.
+
+EDNA  
+But it's all right when two people are like you
+and I. That makes it all right. I'd give you
+everything I've got, only I'm afraid I'm not going
+to have very much from now on.
+
+FRED  
+What do you mean?
+
+EDNA  
+I wasn't going to tell you, but I haven't got my
+position any more. I mean, with Doctor.
+
+FRED  
+You mean you quit?
+
+EDNA  
+He discharged me.
+
+FRED  
+What for?
+
+EDNA  
+I made a mistake. I gave Mr. Mowrey's appointment
+to Mr. Treadwell, and Doctor scraped
+Mr. Treadwell's bones instead of Mr. Mowrey's.
+
+FRED  
+I'm terrible sorry, Eddie. Gosh, I wish there
+was something I could do about it.
+
+EDNA  
+(snapping him up)
+There is, Fred, if you felt like doing it.
+
+FRED  
+What?
+
+EDNA  
+Are you going to be busy-after they hear the
+song?
+
+FRED  
+Well, I'm afraid so—to-night. I got to work
+with Paul.
+
+EDNA  
+Well, then, before that. After Mr. Hart hears
+it. Oh, Fred, couldn't I stay and hear it too?
+
+FRED  
+Oh, no, Eddie. When Mr. Hart's hearing a
+new number he can't have nobody around. He's
+got to consecrate.
+
+EDNA  
+Oh!
+
+FRED  
+I'll tell you what. You can wait in the reception
+room or somewheres, and the minute he's
+heard it I'll come and tell
+what he says.
+you
+
+EDNA  
+Oh, Fred, that's grand! Then can we go somewhere
+together for a little while? Have a soda or
+something?
+
+FRED  
+Yah, I guess so.
+
+EDNA  
+Oh, Fred, I'm so glad! You do care a little,
+then? I mean, you do care whether you see me?
+
+FRED  
+Of course I do. Sure. Certainly.
+
+EDNA  
+Oh, Fred! (She presents herself impulsively.
+He kisses her.) Everything seems all right again
+now. I don't care about losing my position any
+more.
+
+FRED  
+Yah, but (MR. HART finally arrives. A big
+man, and important-looking. He crosses the room
+enroute to his own office.) Oh, Mr. Hart! Mr.
+Hart!
+
+HART  
+What?
+
+FRED  
+We've been waiting for you! We're all ready!
+
+HART  
+Ready with what?
+
+FRED  
+The new number. We'll go through it for you
+if you'll just wait a minute.
+
+HART  
+What number?
+
+FRED  
+"June Moon." The number I wrote with Paul
+Sears.
+
+HART  
+Oh! (Starts away.)
+
+FRED  
+I'll get he and Maxie and we'll run it through
+for you.
+
+HART  
+That's very thoughtful. (But he goes.)
+
+FRED  
+Yes, sir. Paul! Maxie! All right, Eddie, you
+go in there and as soon as the song's over I'll
+come and tell you.
+
+EDNA  
+All right, dear.
+PAUL (coming in)
+Did Hart get back?
+
+FRED  
+Yah! He went in there! I told him we was
+ready! Where's Maxie?
+
+PAUL  
+He's coming! (And so he does.)
+
+MAXIE  
+Well! Are we all set?
+
+FRED  
+He's here, but he went in there! He came in,
+and I talked to him, and he went out!
+
+PAUL  
+What do you think we better do?
+
+MAXIE  
+How about throwing a cordon around the
+building? (He goes into HART's office.)
+
+PAUL  
+Maxie'll bring him.
+
+FRED  
+(trying his voice)
+"June Moon" (Suddenly
+(Suddenly sees EDNA again.)
+All right, Eddie, we're going to sing it now.
+
+EDNA  
+All right, dear. I can wait happy now. (She
+goes.)
+(The WINDOW CLEANER climbs through the
+window again.)
+
+FRED  
+Hey! You can't work here now!
+What?
+
+WINDOW CLEANER  
+(MAXIE comes back, bringing HART.)
+
+MAXIE  
+Here we are!
+
+HART  
+All right-let's have it. What's the name of
+this song? (BENNY bounds on, following HART.)
+
+BENNY  
+Are you ready, Boss?
+
+HART  
+What?
+
+BENNY  
+For "Tokio!"
+
+MAXIE  
+Listen, Joe these boys have been waiting since
+two o'clock.
+
+HART  
+All right, all right. Let's have it. What's the
+name of it?
+"June Moon."
+Great idea!
+
+FRED  
+BENNY (bitingly)
+(GOLDIE enters.)
+
+GOLDIE  
+Pardon me, Mr. Hart. Mr. Wayburn's on the
+wire.
+
+HART  
+Can't talk to him now. Go ahead, boys! What's
+this song called?
+
+GOLDIE  
+He wants to know if he can use the "Java"
+number to-night. It's a benefit.
+
+HART  
+Who for? Him?
+
+GOLDIE  
+I think he said the Widows of Long Island
+Commuters.
+
+HART  
+Oh, sure. Tell him he can have it if he pays
+for it.
+
+GOLDIE  
+Yes, sir! (Goes.)
+
+HART  
+That's a great number, "Java." Great number.
+
+BENNY  
+Yes, sir.
+
+HART  
+(very much the big man)
+Do you boys want a sure-fire idea?
+
+PAUL  
+Yes.
+
+BENNY  
+Yes.
+
+FRED  
+Yes, sir.
+
+WINDOW CLEANER  
+Yeah!
+(just one of the boys)
+
+HART  
+Write a war song. Just have it ready-in case.
+
+FRED  
+Is there going to be a war?
+
+HART  
+(taking them all in)
+I won't say yes and I won't say no. But in
+this little swing around the West I had a chance
+to sort of feel out the common people. (Grows
+very confidential.) I'll tell you something. I'm
+not a bit comfortable about the Mexican situation.
+
+WINDOW CLEANER  
+Me neither.
+
+HART  
+It's a dangerous situation. I don't like it. I
+don't like it a bit. (A long, low whistle from
+BENNY.) Wouldn't surprise me at all if something
+happened and happened soon. And when it
+does, the first fellow in the field is going to clean
+up. You boys want to watch the papers-be
+ready for an emergency. Not only war, but these
+aeroplane flights all over the place—television—
+all the big inventions. (A man named BRAINARD
+comes in—just a stranger.) What is it?
+
+BRAINARD  
+Have you seen a couple of men?
+
+HART  
+What?
+
+BRAINARD  
+Have you seen a couple of men? There's two of
+them.
+
+HART  
+What men?
+
+BRAINARD  
+From our office. One of them's had his appendix
+out.
+
+HART  
+What office? Where are you from?
+
+BRAINARD  
+Devlin, Devlin, Stewart and Devlin.
+
+MAXIE  
+How did Stewart crash in? Marry one of the
+Devlin girls?
+
+BRAINARD  
+No. Only one of the Devlins has got a daughter.
+She's Mrs. Carl Bishop, the architect.
+
+HART  
+For God's sake! Get out of here, will you?
+
+BRAINARD  
+But I got to find them.
+
+HART  
+Well, they're not here. What would they be
+doing here?
+
+BRAINARD  
+This is their day in this building.
+
+HART  
+We're busy now. Come in to-morrow.
+
+BRAINARD  
+They won't be here to-morrow.
+
+HART  
+Listen to me; I don't know who you are or
+where you're from—
+(GOLDIE enters.)
+
+GOLDIE  
+Beg pardon, Mr. Hart!
+
+HART  
+Now what?
+
+GOLDIE  
+George Gershwin's out there.
+
+HART  
+George Gershwin!
+
+GOLDIE  
+Yes, sir.
+
+HART  
+My God! (He hurries out.)
+
+FRED  
+Who is it?
+
+WINDOW CLEANER  
+George Gershwin. (He also hurries out.)
+
+BRAINARD  
+Yeah! (BRAINARD, after a second's hesitation,
+also goes, hurrying a little. BENNY is next to go.)
+PAUL (to FRED)
+Did you ever see him?
+
+FRED  
+No.
+
+PAUL  
+He stole my rhapsody. (He and FRED go.)
+(MAXIE runs a careless scale; gets up from the
+piano.)
+
+GOLDIE  
+Aren't you going out to see him?
+
+MAXIE  
+Make him come to me. (Goes off the other
+way.)
+(EILEEN and LUCILLE come on-EILEEN leads
+the way and seems thoroughly at home.)
+
+EILEEN  
+Where's everybody?
+
+LUCILLE  
+Hello, Goldie.
+
+GOLDIE  
+Good afternoon, Mrs. Sears.
+EILEEN (to GOLDIE)
+I see you've moved the piano.
+GOLDIE (with vast impertinence)
+Not me! (She goes; the women are alone.)
+
+LUCILLE  
+Well, here we are! Why don't you go in and
+say hello to Hart?
+
+EILEEN  
+I'd rather run into him accidentally. It looks
+better.
+
+LUCILLE  
+You're not as sure of him as you let on.
+
+EILEEN  
+Yes, I am! Why shouldn't I be?
+
+LUCILLE  
+Well, the way he went away, in the first place.
+And he didn't exactly keep the wires hot while he
+was gone.
+
+EILEEN  
+He wrote to me, every place he went.
+
+LUCILLE  
+Yah, if you call picture post-cards writing.
+
+EILEEN  
+He was busy most of the time. It was a business trip.
+
+LUCILLE  
+He certainly sent you a beautiful view of the
+Detroit Athletic Club. (EILEEN glares at her.)
+And that new water-works in Cleveland. A man
+that didn't care about you would have sent a picture
+of the old water-works. He's kind of a Latin
+type. Hot-blooded.
+
+EILEEN  
+You can say all you want to. Just the same,
+when he finds I've been going out with Stevens
+he's going to be insanely jealous. You watch him.
+
+LUCILLE  
+Well, maybe. But he didn't even wire you for
+a date to-night. It's the first time he hasn't done
+that.
+
+EILEEN  
+He's taking it for granted. That's even better.
+(Any prospective reply is cut short by the return
+of BENNY.)
+
+BENNY  
+Hello, there!
+
+LUCILLE  
+Hello!
+
+BENNY  
+George Gershwin's outside.
+
+LUCILLE  
+Yeah?
+
+BENNY  
+Don't you want to meet him?
+
+LUCILLE  
+It's too late now.
+
+BENNY  
+No-he's still there.
+
+LUCILLE  
+Yah, but I'm not.
+
+BENNY  
+I was telling him about my new number—
+"Hello, Tokio!" He said it was a great idea.
+But I forgot you ain't heard it. (He dashes
+for the piano.)
+
+LUCILLE  
+It's all right. I'll take Gershwin's word.
+
+BENNY  
+He said it would make the nuckelus of a great
+musical show. It's about a fella that falls in love
+with a pitcher of a Japanese princess, and he calls
+her up on the long distance phone.
+
+LUCILLE  
+Is she sitting home?
+
+BENNY  
+Yah. Why?
+
+LUCILLE  
+I just wondered if things were the same over
+there.
+BENNY (thinking hard)
+Of course in a musical show he and she have got
+to get together. (Gets a sudden idea; a snap of
+the fingers.) I got it—he flies there! That's what
+he does—he flies there! (Now working as if in a
+trance.) And he arrives in cherry blossom time!
+
+LUCILLE  
+Is that a record?
+
+BENNY  
+What a part for Lindbergh, if he could sing!
+(He goes.)
+
+LUCILLE  
+We'd better be moving. We're kind of exposed
+here.
+(PAUL and FRED return.)
+
+FRED  
+Hello, there! Gee, I'm glad to see you!
+PAUL (not so glad)
+Oh, hello!
+
+EILEEN  
+Hello!
+
+PAUL  
+You two can't stay here. We're going to do
+the song.
+
+FRED  
+Mr. Hart ain't heard the song yet. Gee, I hope
+he likes it.
+
+EILEEN  
+He'll like it all right. Lucille and I have
+brought you luck.
+
+LUCILLE  
+Yah. I'm a born rabbit's foot.
+
+PAUL  
+We don't need luck, with this number.
+FRED (to EILEEN)
+If they take it we'll have some celebration to-night!
+Won't we!
+
+EILEEN  
+We can decide that later. I don't know-I
+may not want to go out to-night.
+(MR. HART comes back. Apparently Gershwin
+didn't stay long.)
+
+PAUL  
+Here we are!
+
+FRED  
+Oh, Mr. Hart!
+
+HART  
+(a little flustered; he had not counted on
+running into EILEEN this way)
+Well! I didn't know we had visitors. Hello,
+Lucille.
+Hello.
+
+LUCILLE  
+(HART turns slowly to EILEEN.)
+
+FRED  
+(coming to the rescue)
+This is Miss Fletcher, Mr. Hart. Miss Fletcher's
+Paul's sister-in-law.
+
+HART  
+Yes. I've already met Miss Fletcher.
+FRED (still helping)
+Mr. Hart's been off on a trip.
+
+EILEEN  
+That's very interesting.
+
+FRED  
+He's been in all the big cities. Chicago, and
+Cincinnati, and Cleveland—
+
+LUCILLE  
+I understand Cleveland's got a new waterworks.
+(HART looks at her, dumbly.)
+
+FRED  
+Are you ready for our song now, Mr. Hart? I
+mean "June Moon"?
+
+HART  
+In a minute. I've a little work to do.
+EILEEN (quickly)
+Fred's been trying very hard to learn the business.
+Yes?
+HART (arrested)
+
+EILEEN  
+I guess we've been pretty nearly every place,
+haven't we, hearing the new songs?
+
+FRED  
+You bet! Miss Fletcher's taken me every place.
+I think I know now what people want, all right.
+
+HART  
+(looking at FRED with new interest)
+Oh! So you are a friend of Miss Fletcher's?
+
+FRED  
+We ain't been acquainted long, but—well, we're
+pretty good friends. (To EILEEN) Aren't we?
+
+EILEEN  
+Yah!
+
+HART  
+(has a thought)
+Suppose you boys come into my office and we'll
+run this song over.
+
+FRED  
+You mean right away!
+
+HART  
+Yes, of course.
+
+FRED  
+That's fine. (Rushing to the piano.) Where's
+the lead sheet and the lyrics?
+
+PAUL  
+Here they are!
+
+FRED  
+Shall we go right in?
+
+HART  
+Yes, of course.
+
+FRED  
+But where's Maxie? We got to have Maxie.
+
+HART  
+I'll send for him. Now then, who wrote this
+song?
+FRED and PAUL
+(together, as they go through the door)
+I did!
+(The women are once more alone.)
+
+EILEEN  
+Did you see that? He's insanely jealous.
+
+LUCILLE  
+Well, if that's jealousy I'll take a plain lemonade.
+
+EILEEN  
+You don't know him the way I do! He's burning up!
+
+LUCILLE  
+He controlled it pretty well. He didn't say
+anything about a date to-night.
+
+EILEEN  
+How could he, with Stevens here?
+(MAXIE crosses the stage, enroute to HART's
+office.)
+
+MAXIE  
+Well, it won't be long now. He's going to hear
+it at last.
+
+LUCILLE  
+Yah. We're waiting for the verdict.
+
+MAXIE  
+It's Stevens' first offense. They'll acquit him
+on the grounds of insanity. (He is gone.)
+
+LUCILLE  
+You know, if they buy that limerick, Stevens'll
+be getting up a party for to-night. He was talking
+about it already.
+
+EILEEN  
+I know.
+
+LUCILLE  
+What are you going to do about him, anyhow?
+He's going to be kind of a nuisance with Hart
+back.
+
+EILEEN  
+I can handle him. He's so far gone you can tell
+him anything.
+
+LUCILLE  
+We certainly do attract song-writers, we
+Fletcher girls. It's a curse.
+
+EILEEN  
+He's not a bad kid. I kind of like him. And he
+might make a lot of money in this game. Plenty
+of others have done it.
+LUCILLE (slowly)
+I wonder if that damned song is any good. All
+of Paul's stuff sounds just alike to me.
+
+EILEEN  
+Maybe Stevens' lyrics are just silly enough to
+get over. I've got kind of a hunch that they are.
+
+LUCILLE  
+Even if they buy it it won't mean anything to
+us. Paul's so far ahead of his royalties they'll
+never catch up. He could write "Madame Butterfly"
+and it wouldn't even get me a new girdle.
+
+EILEEN  
+Anyway, I've got Stevens broken in right, whoever
+gets him. You've got to give me credit for
+changing some of his ideas. I imagine every week
+was Thrift Week in Schenectady.
+
+LUCILLE  
+It's Thrift Year for me. Year after year. (She
+drops into a chair.) And I'm getting pretty sick
+of it.
+
+EILEEN  
+Why don't you do something?
+
+LUCILLE  
+Well, maybe I am.
+
+EILEEN  
+You are? What?
+
+LUCILLE  
+(shakes her head)
+That's all right.
+
+EILEEN  
+Don't be a fool! What's happened?
+
+LUCILLE  
+Nothing exactly yet.
+
+EILEEN  
+Well, what's going to happen?
+
+LUCILLE  
+I don't know. Nothing.
+EILEEN (pleading)
+Will you tell me?
+
+LUCILLE  
+(makes up her mind)
+Remember-Ed Knowlton?
+
+EILEEN  
+Yes. What about him?
+
+LUCILLE  
+I ran into him Friday, on Madison Avenue.
+
+EILEEN  
+Why didn't you tell me?
+
+LUCILLE  
+Because I knew what you'd say and I wanted to
+think it out for myself.
+
+EILEEN  
+What's it all about? What's he doing here?
+
+LUCILLE  
+He's left Chicago for good. They're living on
+East Fifty-seventh-he and his wife and the two
+kids.
+
+EILEEN  
+Well?
+
+LUCILLE  
+He still likes me, and I like him.
+
+EILEEN  
+Has he got any money?
+
+LUCILLE  
+He makes a lot, but he spends it.
+
+EILEEN  
+If he likes you that's not a fatal drawback.
+
+LUCILLE  
+He likes me all right.
+
+EILEEN  
+Can he get rid of her?
+
+LUCILLE  
+(shakes her head)
+No, it's her uncle or something owns the business.
+But he saw I wasn't happy, and—well, we
+had a couple of drinks and talked. He kept saying
+I ought to have nice things,—and that he was
+willing to give them to me.
+
+EILEEN  
+Don't tell me you aren't going to do it?
+
+LUCILLE  
+I'm kind of afraid. Suppose Paul gets inquisitive?
+
+EILEEN  
+Paul! He doesn't know silk from asbestos. To
+hell with him anyway! It's time you had some
+luck!
+
+LUCILLE  
+I don't know what to do. You and I look at
+things different. But Ed's so nice. The things he
+says they make me feel young again. And it's
+such a relief to just talk to a man that hates
+music!
+
+EILEEN  
+Listen, if you don't do this—
+(FRED runs on, all excitement.)
+
+FRED  
+They're going to take it! They've took it!
+They're crazy about it!
+
+EILEEN  
+Well, that's fine! I knew they'd like it!
+
+FRED  
+It's my first song! My first one to be published!
+
+EILEEN  
+That's wonderful.
+
+LUCILLE  
+(wildly unenthusiastic)
+It's quite thrilling.
+
+FRED  
+They're making me out a check for two hundred
+and fifty dollars! That's just what they
+call an advance royalties!
+(PAUL returns.)
+
+PAUL  
+They took it all right!
+
+LUCILLE  
+So Fred said.
+
+EILEEN  
+Yes!
+
+PAUL  
+You should have heard what Hart said about
+the melody.
+FRED (to EILEEN)
+Aren't you glad about the song? Aren't you
+excited?
+
+EILEEN  
+(her mind beyond the door)
+I should say so.
+(HART comes in.)
+HART (expansively)
+Well, what do you think of this young man?
+Making good in his first attempt!
+
+EILEEN  
+It's wonderful!
+
+LUCILLE  
+Yes, indeed.
+
+HART  
+And Paul, too. He's written a nice little melody.
+Did you get your check, Stevens?
+
+FRED  
+No, sir. Not yet.
+
+HART  
+Goldie'll bring it to you.
+
+MAXIE  
+(crossing to his own office)
+Well, thought you people would be on your
+way by this time.
+
+EILEEN  
+We are waiting for Fred's check!
+
+MAXIE  
+I'll bet you are! (He's gone.)
+
+FRED  
+Mr. Hart! We were all planning on going some
+place to-night, to celebrate the success of the
+song. We'd love to have you come along with us,
+if you can.
+(A moment of embarrassment. EILEEN just
+waits.)
+
+HART  
+Well, now, I'd like to do that, but I'm very
+sorry. (HART starts talking to FRED, but shifts
+his gaze to EILEEN.) You see, I just got back
+from this trip, and I'm tied up with Mr. Goebel
+to-night.
+
+FRED  
+Oh, that's too bad.
+
+EILEEN  
+(with more meaning)
+Yes, it is.
+
+HART  
+I'm sure you'll have a wonderful time. Can't
+tell you how much I'd like to be along. But of
+course, business comes first.
+(A very beautiful young lady enters. Her name
+is MISS RIXEY.)
+
+MISS RIXEY  
+Hello, Joe. Am I late?
+
+HART  
+(after clearing his throat)
+Miss Rixey, isn't it?
+What?
+
+MISS RIXEY  
+(puzzled at this reception)
+
+HART  
+Ah—they told me you were coming.
+
+MISS RIXEY  
+(coming right to him)
+You knew damn well I was coming!
+
+HART  
+(still trying to cover up)
+Did you bring those orchestrations?
+
+MISS RIXEY  
+(holding up a bundle which obviously contains
+two bottles of liquor)
+You mean this?
+
+HART  
+(sunk by this time; grabs her by arm and
+rushes her into his office)
+Ah—just step into my office and we'll talk
+business.
+
+MISS RIXEY  
+Listen, Joe, that driver of yours is so damn
+dumb—
+HART (loudly)
+Yes, we publish that! Right this way!
+
+LUCILLE  
+(airily, when they are gone)
+Well, well, well!
+
+FRED  
+It's too bad he can't go, but the four of us can
+have a good time.
+EILEEN (recklessly)
+Have a good time! You bet we can! We're going
+to have the best time any crowd ever had!
+Aren't we, Freddy boy? (Throws her arms
+around him and kisses him.)
+
+FRED  
+We sure are, girlie!
+(GOLDIE comes on.)
+
+GOLDIE  
+Here's your check, Mr. Stevens.
+
+PAUL  
+Great!
+
+EILEEN  
+Hooray! Here's the check! (She takes it.)
+
+FRED  
+Just in time!
+
+EILEEN  
+Two hundred and fifty dollars! You've just
+got to give me a great big kiss!
+
+LUCILLE  
+Oh, you two!
+
+EILEEN  
+Do you love me?
+
+FRED  
+You bet I do!
+
+LUCILLE  
+Where'll we go for dinner?
+
+PAUL  
+I want a good steak.
+
+EILEEN  
+How about the Park Casino?
+
+LUCILLE  
+Oh, fine! I've never been there! I hear it's marvellous!
+
+EILEEN  
+They've got the most wonderful band! You'll
+love it, Freddie boy!
+
+FRED  
+I will if you're along!
+
+EILEEN  
+I'm going to be, don't you worry about that!
+Wherever you are, that's where I'm going to be!
+
+FRED  
+That suits me all right!
+
+EILEEN  
+Come on, everybody!
+
+PAUL  
+Don't forget we got to cash the check.
+
+EILEEN  
+(waving the check)
+I should say not! We're not going to forget
+that, are we, Freddie boy?
+
+FRED  
+You bet we aren't!
+(They are gone; GOLDIE alone is left. She
+picks out some songs from the shelves. EDNA, the
+girl he left behind him, peeps in, then enters.)
+
+EDNA  
+Do you know if they've heard Mr. Stevens's
+song yet? I mean "June Moon"?
+
+GOLDIE  
+(pretty hard-boiled)
+Yah. They did.
+
+EDNA  
+(starting brightly forward)
+Was it all right? Did they like it?
+
+GOLDIE  
+(surveying her)
+They took it.
+
+EDNA  
+(in pleased excitement)
+Really! Where are they? Still in there?
+
+GOLDIE  
+Not any more. They've all gone.
+
+EDNA  
+What?
+
+GOLDIE  
+They went out just a couple of minutes ago.
+
+EDNA  
+Mr. Stevens, too?
+
+GOLDIE  
+Yah. With Mr. Sears and the two girls.
+
+EDNA  
+Oh! ... Thank you very much.
+(GOLDIE takes a moment to look her up and
+down, then goes. EDNA stands stock still for a
+moment, stunned. The door opens and the WINDOW
+CLEANER returns, sponge still in hand. He
+looks at EDNA a bit curiously; the scrutiny is
+more than she can stand. All she can do is rush
+out.)
+(The room belongs to the WINDOW CLEANER,
+and maybe he doesn't realize it. He scampers
+over to the piano and hits a few tentative notes.
+Resigning himself to a musical career, he drops
+his sponge on the window sill and starts picking
+out the notes of "Hello, Tokio!" Encouraged by
+his success with the first phrase, he starts again,
+this time singing it. Then he takes a long breath
+and starts again, louder this time. He is plunging
+recklessly into it, and oblivious of his surroundings,
+when MAXIE comes in behind him.
+MAXIE stands perfectly still for a second, taking
+in the situation. Then he makes up his mind.
+Turn about, he decides, is fair play. He picks up
+the sponge and starts feverishly washing the window.)
+
+THE CURTAIN FALLS  
+

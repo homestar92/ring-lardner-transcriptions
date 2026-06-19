@@ -6300,8 +6300,7 @@ him it is something that MAXIE has composed
 on the spur of the moment. He starts improvising
 words.)
 
-FRED
-
+FRED  
 > "In a bungalow for two,  
 > Where we can bill and coo—"
 

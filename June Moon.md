@@ -5614,13 +5614,13 @@ MAXIE
 He's engaged to be married. You know that?
 
 EDNA  
-I supposed that was it.
+I—supposed that was it.
 
 MAXIE  
 But he's not happy. He's not in love with her.
 
 EDNA  
-(breaking out)
+(breaking out)  
 I can't do anything! He doesn't love me! He
 never did!
 
@@ -5634,7 +5634,7 @@ Oh, why did you make me come here? I
 shouldn't have done it—I don't know why I did!
 I've been trying every way to forget him—I went
 away, and I didn't see anybody, and then I went
-around with lots of people-it only made it worse.
+around with lots of people—it only made it worse.
 I kept wanting to call him up, and once I did,
 only—I hung up before he could come to the telephone.
 
@@ -5677,7 +5677,7 @@ I'm awful glad to see you, Eddie! Gee, but I'm
 glad to see you!
 
 EDNA  
-I didn't really come to-I mean, it was Mr.
+I didn't really come to—I mean, it was Mr.
 Schwartz that made me talk to you.
 
 FRED  
@@ -5685,9 +5685,8 @@ My, but it's great to see you again! I didn't
 know how great it would be.
 
 EDNA  
-I'm glad to see you, too, Fred.
-I'm glad you're
-well and that you're going to be happy.
+I'm glad to see you, too, Fred. I'm glad you're
+well and that you're going to be—happy.
 
 FRED  
 I been thinking about you, Eddie an awful
@@ -5743,65 +5742,70 @@ Yeah. Perry Robinson. He always walked like
 he'd just picked up a nail. (FRED drops the pretense
 and comes out with it.) Eddie, did Maxie
 say anything to you? About me.
-EDNA (in agony)
+
+EDNA (in agony)  
 He said you were going to be married, Fred. I
 should have congratulated you.
-FRED (suddenly)
+
+FRED (suddenly)  
 I don't want to any more, Eddie! I know it
 now! I don't want to!
 
 EDNA  
-Don't say that,
-unless you mean it!
-Fred! Don't! Don't say it
-I couldn't stand it!
+Don't say that, Fred! Don't! Don't say it
+unless you mean it! I couldn't stand it!
 
 FRED  
 But I do mean it, Eddie! I mean it more than
-anything in the
+anything in the—
+
 (EILEEN comes on. You knew she would.)
+
+EILEEN (rather gaily)  
 I'm sorry.
-EILEEN (rather gaily)
 
 FRED  
-(as EDNA shows signs of bolting)
-No-don't go away. This is-Miss Fletcher.
+(as EDNA shows signs of bolting)  
+No—don't go away. This is—Miss Fletcher.
+
+EILEEN (appraisingly)  
 Hello.
-EILEEN (appraisingly)
 
 FRED  
 And this is Miss Baker. She's the little girl—
 I mean, I used to know her when—
 
 EDNA  
-(who can't stand it)
+(who can't stand it)  
 I'll be going if you don't mind. Good-by, Fred.
 
 FRED  
 No—look! Don't go away!
 
 EDNA  
-Yes, I must! I-good-by, Miss Fletcher! (She
+Yes, I must! I—good-by, Miss Fletcher! (She
 rushes off. FRED hesitates for a second; then
 starts out after her.)
 
 EILEEN  
 Fred!
-FRED (stopping short)
+
+FRED (stopping short)  
 Huh?
 
 EILEEN  
 Why, what's the matter with you? One would
 almost think it was her you were going to marry
 instead of me.
-FRED (facing her)
+
+FRED (facing her)  
 I got to tell you something.
 
 EILEEN  
 Why, what is it?
 
 FRED  
-I don't want to get married! I mean-you
+I don't want to get married! I mean—you
 and I!
 
 EILEEN  
@@ -5857,7 +5861,7 @@ FRED
 I can't help it.
 
 EILEEN  
-(a change of method)
+(a change of method)  
 But that isn't the main thing. I love you,
 Freddy. You made me love you. I didn't at first,
 but you made me. And now you want to leave me.
@@ -5870,10 +5874,10 @@ EILEEN
 What would you think of a man that made a
 girl love him, when she was already engaged, and
 then threw her over? Do you think that would
-be quite honorable?
+be quite—honorable?
 
 FRED  
-(with sudden inspiration)
+(with sudden inspiration)  
 Honorable! That's just what I got to be!
 That's why I can't marry you!
 
@@ -5882,7 +5886,7 @@ What do you mean?
 
 FRED  
 I mean I got to marry another girl, to save her
-from-from worse than death.
+from—from worse than death.
 
 EILEEN  
 That little kid? (A gesture.)
@@ -5898,7 +5902,8 @@ Yes! That's it!
 
 EILEEN  
 I don't believe you! I'm going to call her back!
-FRED (stopping her)
+
+FRED (stopping her)  
 No, no! You mustn't tell her that!
 
 EILEEN  
@@ -5908,30 +5913,33 @@ FRED
 I—I want to surprise her.
 
 EILEEN  
-(a scornful surveying)
+(a scornful surveying)  
 Did you think I was going to fall for any story
 like that? (FRED turns away.) I'm the one you're
 engaged to, and I'm the one you're going to
 marry.
+
 (PAUL comes in.)
 
 PAUL  
 Not interrupting, am I?
-EILEEN (slowly, and narrowly observing FRED)
+
+EILEEN (slowly, and narrowly observing FRED)  
 No, I was just going. (With great deliberation.)
 We understand each other. Don't we?
 (She watches FRED; gets no response; goes out.)
-What's the matter?
-Huh?
 
 PAUL  
-FRED (dully)
+What's the matter?
+
+FRED (dully)  
+Huh?
 
 PAUL  
 You haven't had a fight, have you?
 
 FRED  
-(shakes his head)
+(shakes his head)  
 There ain't anything the matter.
 
 PAUL  
@@ -5948,7 +5956,7 @@ FRED
 It ain't nothing. I'll be all right soon.
 
 PAUL  
-The only thing is there isn't much time left
+The only thing is—there isn't much time left
 if we're going to finish before you go. Here it is
 Tuesday.
 
@@ -5973,7 +5981,8 @@ Oh, yah. Four hundred dollars.
 
 FRED  
 She certainly knows how to spend.
-PAUL (lightly)
+
+PAUL (lightly)  
 You must have had a swell time, running around
 with two women all afternoon.
 
@@ -5985,10 +5994,11 @@ Her and Lucille.
 
 FRED  
 Lucille wasn't along. Just I and Eileen.
-Yesterday?
 
 PAUL  
-FRED (nods)
+Yesterday?
+
+FRED (nods)  
 We was together from one till five-thirty. Why?
 
 PAUL  
@@ -6004,7 +6014,8 @@ That's funny.
 
 FRED  
 What's the matter?
-PAUL (slowly)
+
+PAUL (slowly)  
 I don't know. I guess I got things kind of
 mixed up.
 
@@ -6013,16 +6024,17 @@ What things?
 
 PAUL  
 Didn't Lucille ever meet you, during the afternoon?
-No. Why?
 
 FRED  
+No. Why?
+
 (EILEEN and LUCILLE look in.)
 
 LUCILLE  
 We're going out to lunch. Want to come along?
 
 PAUL  
-(almost too casually)
+(almost too casually)  
 I want to talk to you.
 
 LUCILLE  
@@ -6036,18 +6048,18 @@ What about?
 
 EILEEN  
 (catching a note of something in PAUL'S
-manner)
+manner)  
 What's the matter with him?
 
 PAUL  
 Where were you yesterday afternoon?
 
 LUCILLE  
-(trying to do some quick thinking)
-I was-out.
+(trying to do some quick thinking)  
+I was—out.
 
 PAUL  
-(quiet, but terrifying)
+(quiet, but terrifying)  
 I said, where were you?
 
 LUCILLE  
@@ -6056,6 +6068,7 @@ Do I have to report all my movements?
 PAUL  
 You do when I catch you lying! Where were
 you?
+
 (FRED is following this with wide but uncomprehending
 eyes. EILEEN is scared but wary,
 waiting to go to the defense if she can.)
@@ -6066,7 +6079,7 @@ friend of mine, and I thought you might not want
 me to do it, and so I told you I was with Eileen.
 
 FRED  
-(beginning to understand)
+(beginning to understand)  
 Oh!
 
 LUCILLE  
@@ -6097,7 +6110,7 @@ LUCILLE
 I was afraid you wouldn't let me take it.
 
 PAUL  
-(after a bit of thinking)
+(after a bit of thinking)  
 Where'd you go, yesterday afternoon? With
 this fellow?
 
@@ -6111,7 +6124,7 @@ LUCILLE
 It was at the Palace. We went to the Palace.
 
 PAUL  
-(taking plenty of time)
+(taking plenty of time)  
 Who was there?
 
 LUCILLE  
@@ -6121,46 +6134,45 @@ PAUL
 On the bill. Who were the headliners?
 
 LUCILLE  
-(panic in her voice)
+(panic in her voice)  
 I don't see what difference that makes.
 
 PAUL  
-(not raising his tone)
-You-dirty-lying-double-crosser!
+(not raising his tone)  
+You—dirty—lying—double-crosser!
 
 EILEEN  
 That's not true!
-..
 
 LUCILLE  
-(stopping EILEEN)
+(stopping EILEEN)  
 Keep still! I'm sick of the whole thing! (She
-faces Paul.) Yes! . . . Yes, if you want to know!
+faces Paul.) Yes!... Yes, if you want to know!...
 Yes and to hell with you! Did you think I
 was going to wait around forever for you to give
 me the things I wanted? God knows I waited long
-enough! And then-I just didn't wait any longer,
+enough! And then—I just didn't wait any longer,
 that's all. What do you know about that? Huh?
 What do you know about that? (PAUL is stunned.
-Turns slowly away.) So-that's the way that
+Turns slowly away.) So—that's the way that
 stands! (She takes a step toward the door;
 breaks into sobs. EILEEN goes to her; puts her
 arm around her.)
 
 FRED  
-But-but you mean to say that when you were
-married to him- (He takes a moment, trying to
+But—but you mean to say that when you were
+married to him— (He takes a moment, trying to
 realize it. Then, to EILEEN.) But you must have
 known she was doing it!
 
 EILEEN  
-What? Why-no, I didn't.
+What? Why—no, I didn't.
 
 FRED  
 Yes. You said you bought her the dress.
 
 PAUL  
-(a scornful laugh)
+(a scornful laugh)  
 Known she was doing it! She put her up to it!
 
 EILEEN  
@@ -6207,11 +6219,11 @@ her out, and that's why she took up with you! I'd
 have told you long ago, if I hadn't been a coward!
 
 FRED  
-(staggered. Turns to EILEEN)
+(staggered. Turns to EILEEN)  
 Is this true?
 
 EILEEN  
-(in final realization that the game is up)
+(in final realization that the game is up)  
 Of course it is, you little fool!
 
 FRED  
@@ -6223,7 +6235,7 @@ fine up-state morals of yours.
 
 FRED  
 Then I been going around all this time with
-a-bad woman?
+a—bad woman?
 
 EILEEN  
 And now have we both got permission to go, or
@@ -6241,20 +6253,21 @@ I'm sure you'll understand each other. What's
 more, you're probably the only two people in the
 world that would. Come on, Lucille. (She surveys
 the lovers.) I want to come and visit that
-child of yours-next month. (LUCILLE and
+child of yours—next month. (LUCILLE and
 EILEEN go.)
+
 (PAUL has dropped into a chair, his head buried
 in his hands.)
 
 FRED  
 (turning to where EDNA and MAXIE stand)
-Eddie, I-I don't have to marry her.
+Eddie, I—I don't have to marry her.
 
 EDNA  
 I'm so happy, Fred.
 
 FRED  
-I'm sorry, Paul, about-everything.
+I'm sorry, Paul, about—everything.
 
 PAUL  
 That's all right. I'm glad if I helped to fix
@@ -6274,23 +6287,24 @@ EDNA
 If your wife is the right kind she won't let you
 take her on an expensive trip. She'll make you
 put everything into a home. I don't mean a big
-home just a little bungalow would do.
+home—just a little bungalow would do.
 
 FRED  
 Bungalow! A bungalow for two! That'd be a
 great title!
 
 MAXIE  
-And I've got a great tune!
-(MAXIE goes into
-"Button Up Your Overcoat." FRED is enchanted
--to him it is something that MAXIE has composed
+And I've got a great tune! (MAXIE goes into
+"Button Up Your Overcoat." FRED is enchanted—to
+him it is something that MAXIE has composed
 on the spur of the moment. He starts improvising
 words.)
 
-FRED  
-"In a bungalow for two,
-Where we can bill and coo—"
+FRED
+
+> "In a bungalow for two,  
+> Where we can bill and coo—"
+
 (Mercifully, the curtain is down.)
 
 CURTAIN  

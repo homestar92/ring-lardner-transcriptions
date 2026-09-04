@@ -17,7 +17,7 @@ O, yes; Mike Doolan.
 
 (Second Act.)
 
-LADY (as Dolan comes to bat for th esecond time)  
+LADY (as Dolan comes to bat for the second time)  
 Who's that?
 
 ESCORT  

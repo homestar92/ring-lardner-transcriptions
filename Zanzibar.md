@@ -233,7 +233,7 @@ PADLOCK
 Yes, don't butt in on our conversation. You ain't got no kick comin', Shy.
 
 SHYLOCK  
-Don't you know how to talk? "Haint got no." A prime minister ought to know better than that. What frammar do you study?
+Don't you know how to talk? "Haint got no." A prime minister ought to know better than that. What grammar do you study?
 
 PADLOCK  
 Harry Mansfield's. (To 3d person) Didn't I tell you to keep out of this?
@@ -519,7 +519,7 @@ STOCKSENBONDS
 What do you suppose they've been doing?
 
 FLASHEM  
-That's a puzzler. I'll ask him. (Goes up to Pad. and calls him aside.)What have you fellows been doing? (Padlock trembles and can't speak.)Where's Shylock?
+That's a puzzler. I'll ask him. (Goes up to Pad. and calls him aside.)What have you fellows been doing? (Padlock trembles and can't speak.) Where's Shylock?
 
 PAD.  
 He's dressing for the ball. The people think he's the Sultan.

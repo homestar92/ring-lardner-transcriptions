@@ -106,7 +106,7 @@ Kane
 Don't hold him there at second. Let him come.
 
 Jim  
-O'Laughlin's called him out, the fat-head bum.
+O'Loughlin's called him out, the fat-head bum.
 
 O'Leary  
 Another question, gentlemen, I pray:  
@@ -127,7 +127,7 @@ That shows how much you know about the job.
 A sacrifice is what he ought to get.
 
 Watts  
-A boot for delehanty is my bet.
+A boot for Delehanty is my bet.
 
 Hoey - A kick for Mullin and a double-play.
 

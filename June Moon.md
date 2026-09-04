@@ -2517,9 +2517,7 @@ FRED
 I get dizzy if I climb a ladder!
 
 (The voices of the others pick up in a confused
-jumble as
-
-THE CURTAIN FALLS  
+jumble as THE CURTAIN FALLS)
 
 ## Act II
 
@@ -4528,7 +4526,7 @@ in the situation. Then he makes up his mind.
 Turn about, he decides, is fair play. He picks up
 the sponge and starts feverishly washing the window.)
 
-THE CURTAIN FALLS  
+(THE CURTAIN FALLS)
 
 ## Act III
 

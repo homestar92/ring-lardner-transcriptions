@@ -28,7 +28,7 @@ O, Yes, I saw he and his wife play at the Grand in Pittsburgh.
 
 (Third Act.)
 
-ESCORT (third time DOlan comes to bat)  
+ESCORT (third time Dolan comes to bat)  
 Mike Doolan again.
 
 LADY  

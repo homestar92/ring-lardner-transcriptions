@@ -644,7 +644,7 @@ That's, me, sir.
 SULTAN  
 Where's your leader?
 
-Sok.  
+SOK.  
 Here I am, Sokum, general of the army.
 
 SONG-Sokum.  
@@ -663,6 +663,7 @@ Sir, you have not been crowned yet.
 
 SULTAN  
 Where's my crown? I'll show these fellows what I can do. (Kalulu brings in crown in a hat box.) Ah, my crown at last. Take it out of that box. (Takes crown.) The old crown that my father wore. It fitted him once and it fits me now. (Places crown on his head.) Now bring these lobsters before me. (Uddu brings Shy. and Pad. before him.)
+
 PAD.  
 Your Majesty, forgive us, we are poor, honest hoboes looking for work.
 
@@ -744,6 +745,6 @@ LULU
 What's to become of us?
 
 SULTAN  
-I'll mary you both;
+I'll marry you both.
 
 (Finale by Company.)

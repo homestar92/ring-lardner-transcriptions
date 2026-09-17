@@ -5,7 +5,7 @@ Ed Walsh, a Former Pitcher.
 Wake, a Visitor.  
 Harry Grab, a Hustler.
 
-Scene 1—A row in the grandstand, Afternoon. Discovered sitting side by side are Ed Walsh, C. Albert Comiskey, and Wake.
+(Scene 1—A row in the grandstand, Afternoon. Discovered sitting side by side are Ed Walsh, C. Albert Comiskey, and Wake.)
 
 C. ALBERT COMISKEY  
 Look at the little center fielder. He was playing right there for Daley, a left handed batter. Now Walsh is up and he hasn't moved. He must think they're brothers and always hit to the same spot.
@@ -33,7 +33,7 @@ No, thanks.
 
 (Exeunt, all but E. W.)
 
-Scene 2—A thirst parlor. Enter Wake and C. A. C.
+(Scene 2—A thirst parlor. Enter Wake and C. A. C.)
 
 WAKE  
 Still water, please.
@@ -43,7 +43,7 @@ Cleveland's got two. That ought to scare 'em some more. All we need is a couple 
 
 (Exeunt.)
 
-Scene 3—Another row  in the stand. Enter Wake and C. A. C.
+(Scene 3—Another row  in the stand. Enter Wake and C. A. C.)
 
 C. A. C.  
 Why didn't he throw it home? He must have attended a school where they taught everybody to relay.

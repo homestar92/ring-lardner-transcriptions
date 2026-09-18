@@ -51,14 +51,12 @@ In a burg like St. Louis,
 With a place like Tony’s near.  
 
 (Repeat.)
-
 So I waddled into Tony’s  
 With this most congenial pal,  
 And was gargling hot Bolognies  
 And a stein, when in blew Cal.  
 
 Chorus.
-
 When me and Cal gets together,  
 With a stein on the table  
 And the cuss words ringing clear.  

@@ -110,7 +110,7 @@ I'll bet you did.
 (The ball park in San Francisco. It is just before game time.)
 
 CALLAHAN  
-Warm up, Lamewing. I'm going ot start you. Take it easy.
+Warm up, Lamewing. I'm going to start you. Take it easy.
 
 LAMEWING  
 I don't feel good, Jim.
@@ -158,7 +158,7 @@ I don't feel good, Jim.
 (A part of the Los Angeles hotel lobby. It is evening. LAMEWING is seated in an easy chair. Enter CALLAHAN.)
 
 CALLAHAN  
-Lamewing, I've sold you to Tacoma. You didn't show me anything and I can't afford to carry you along. You can get a train out of here tonight. Here's your transportation. Good by. No ahrd feelings, I hope.
+Lamewing, I've sold you to Tacoma. You didn't show me anything and I can't afford to carry you along. You can get a train out of here tonight. Here's your transportation. Good by. No hard feelings, I hope.
 
 BILL  
 No, no. That's all right, Jim. Good by, Jim.
@@ -169,7 +169,7 @@ No, no. That's all right, Jim. Good by, Jim.
 (Another part of the lobby. JOE is standing within reaching distance of a cuspidor. Enter BILL)
 
 BILL  
-Just as I thought. That slob has canned me. I'm sold to Tacome. And he didn't have the nerge to tell me so. He wrote me a note and then blowed out o' the hotel. I wish he'd told me to my face like a square guy. I'd of took a wallop at him.
+Just as I thought. That slob has canned me. I'm sold to Tacoma. And he didn't have the nerve to tell me so. He wrote me a note and then blowed out o' the hotel. I wish he'd told me to my face like a square guy. I'd of took a wallop at him.
 
 JOE  
 Sure.

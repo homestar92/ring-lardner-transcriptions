@@ -160,6 +160,8 @@ Gut. So iss it. Tinker iss der man ve must haf.
 The Owner  
 Ja. He iss ein vonder.
 
+(A year later.)
+
 The President  
 Veil, ve get rid from Tinker all right.
 
@@ -191,8 +193,6 @@ The Brother
 So iss it.
 
 ### Scene 7-The Sox ball park office.
-
-(A year later.)
 
 Characters in Scene:
 The Boston President—Jim

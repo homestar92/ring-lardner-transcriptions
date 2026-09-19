@@ -28,7 +28,7 @@ BUG
 Gosh, I wisht I could go along. Know any o' the Cubs personally?
 
 PEST  
-Sure! I got a lot o' pals on the team. Johnny Evers and Frank Chance was two o' my best friends. Course they're both of 'em gone now, but I know Tom Needham and Larry Cheney and Roger Bresnahan and Heine Zimmerman and Frank Schulte—
+Sure! I got a lot o' pals on the team. Johnny Evvers and Frank Chance was two o' my best friends. Course they're both of 'em gone now, but I know Tom Needham and Larry Cheney and Roger Bresnahan and Heine Zimmerman and Frank Schulte—
 
 BUG  
 Do you know Schulte?
@@ -68,7 +68,7 @@ PEST
 O, is that so? *Tribune*?
 
 SCHULTE  
-No, I'm Mr. Fish of the Journal
+No, I'm Mr. Fish of the Journal.
 
 PEST  
 Pesase to meet you Mr. Fish. Is Schulte and Zimmerman anywheres around?
@@ -79,7 +79,7 @@ I think they have gone to church. No. Here comes Schulte now.
 (Enter ZIMMERMAN)
 
 PEST  
-He looks bigger in his citizen's clo'es
+He looks bigger in his citizen's clo'es.
 
 SCHULTE  
 I didn't get your name. Pest? Mr. Pest, shake hands with Mr. Schulte.
@@ -144,10 +144,10 @@ Tryin' to kid somebody?
 (He passes on.)
 
 PEST  
-What's th ematter with him?
+What's the matter with him?
 
 SCHULTE  
-HE's always like that He's got the swell head.
+He's always like that He's got the swell head.
 
 PEST  
 Is he sore at me?
@@ -162,7 +162,7 @@ ZIM
 He ain't no more swell headed than some o' them bugs up in the stand nor bone headed, neither.
 
 PEST  
-What's the amtter, Mr. Schulte? You talk like you was sore at them bugs.
+What's the matter, Mr. Schulte? You talk like you was sore at them bugs.
 
 ZIM  
 You bet I'm sore at 'em, and if you're one of 'em you'd better beat it before you get hurt, you bum.

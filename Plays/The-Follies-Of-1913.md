@@ -8,10 +8,10 @@ under personal direction of R. W. Lardner
 ### Scene 1: Congress hotel bar at noon.
 
 Characters in Scene:
-Peerless Leader—Frank L. Chance  
+Peerless Leader—Frank L. CHANCE  
 Also newspaper men, bartenders, and cashier.
 
-Chance  
+CHANCE  
 No, no. I promised my wife I’d pass it up. You can say just as
 positively as you like that I am through. I don’t like to disappoint Mr. Farrell, but
 there’s nothing doing. It won’t make a bit of difference how much he offers me. I
@@ -21,17 +21,17 @@ Farrell to explain my refusal in person.
 ### Scene 2—Fisher building bar at 3 p.m.
 
 Characters in Scene:
-Peerless Leader Frank L. Chance  
+Peerless Leader Frank L. CHANCE  
 Also newpaper men and bartenders.
 
-Chance  
+CHANCE  
 Well, fellahs, I signed up. He made me an offer I couldn’t turn
 down. I’ve wired my wife.
 
-A Newspaper Man  
+A NEWSPAPER MAN  
 Have you heard from her?
 
-Chance  
+CHANCE  
 Not since I signed. But I got a wire a couple of hours ago. She says
 the frost has killed all the oranges.
 
@@ -68,32 +68,32 @@ Characters in Scene:
 A magnate—Charles H. Ebbets
 The Librarian—Miss Smith
 
-Magnate  
+MAGNATE  
 Do you keep books here?
 
-The Librarian  
+THE LIBRARIAN  
 No; you’ll find them at the delicatessen.
 
-Magnate  
+MAGNATE  
 Have you got a history?
 
-The Librarian  
+THE LIBRARIAN  
 What kind of history?
 
-Magnate  
+MAGNATE  
 A big, thick one.
 
-The Librarian We keep all the big books on this shelf. You can look and see
-for yourshelf.
+THE LIBRARIAN  
+We keep all the big books on this shelf. You can look and see for yourshelf.
 
-Magnate  
+MAGNATE  
 Let me see; let me see. Here’s one that’s all right. Let me see. It
 says the Battle of Ischkebibble was fought on July 12. May I use your phone?
 
-The Librarian  
+THE LIBRARIAN  
 Go to it.
 
-Magnate  
+MAGNATE  
 Hello, hello! Is this the Eagle office? Give me the sporting
 department. Hello! Is that you, Tom? Say, we’re going to have a double header and
 a dedication on the 12th of July. That’s the date of the Battle of Ischkebibble. Get
@@ -109,32 +109,32 @@ A Wonder—Heine Zimmerman
 A Sub—Artie Phelan
 An Umps—Mister Klein
 
-The Wonder  
+THE WONDER  
 What innin’ is this?
 
-The Sub  
+THE SUB  
 The first.
 
-The Wonder  
+THE WONDER  
 Wotdehel! Only de foist? How do you feel?
 
-The Sub  
+THE SUB  
 All right.
 
-The Wonder  
+THE WONDER  
 How many games do we play here an’ in Brooklyn?
 
-The Sub  
+THE SUB  
 Three here and four in Brooklyn.
 
-The Wonder  
+THE WONDER  
 Hey, Klem, you catfish! Hey, Bill, you’re rotten, you catfish!
 Catfish, catfish, catfish!
 
-The Umps  
+THE UMPS  
 You’re out of the game.
 
-The Wonder  
+THE WONDER  
 That’s right, you catfish. Put me out an’ weaken our club, you
 crooked catfish.
 
@@ -145,49 +145,49 @@ The President—Himself
 The Owner—A Stockholder
 His Brother—A Stockholder
 
-The Owner  
+THE OWNER  
 How much ve haf to gif up for Tinker already?
 
-The President  
+THE PRESIDENT  
 Ve get him cheap yet. Ve gif eight tausend for Corriden und
 gif Corriden und four others for Tinker und zwei pieces of cheese.
 
-The Brother  
+THE BROTHER  
 Gut. So iss it. Tinker iss der man ve must haf.
 
-The Owner  
+THE OWNER  
 Ja. He iss ein vonder.
 
 (A year later.)
 
-The President  
+THE PRESIDENT  
 Veil, ve get rid from Tinker all right.
 
-The Owner  
+THE OWNER  
 Dot iss gut. He iss no gut. Vot ve get for him already?
 
-The President  
+THE PRESIDENT  
 Tventy-five tausend, aber ve get of it only fifteen tausend.
 
-The Brother  
+THE BROTHER  
 Not enough. Ve must also haf players yet.
 
-The President  
+THE PRESIDENT  
 Fifteen tausend und players?
 
-The Owner  
+THE OWNER  
 Ja. Fifteen tausend und players.
 
-The Brother  
+THE BROTHER  
 Vy not?
 
-The President  
+THE PRESIDENT  
 All right. Ve buy der players mit der fifteen tausend.
 
-The Owner  
+THE OWNER  
 Ja. So iss it.
 
-The Brother  
+THE BROTHER  
 So iss it.
 
 ### Scene 7-The Sox ball park office.
@@ -196,16 +196,16 @@ Characters in Scene:
 The Boston President—Jim
 The Manager—Jake
 
-The President  
+THE PRESIDENT  
 Jake, you’re fired.
 
-The Manager  
+THE MANAGER    
 What for?
 
-The President  
+THE PRESIDENT  
 You haven’t won a pennant and a world’s championship since last fall.
 
-The Manager  
+THE MANAGER    
 All right, I’m fired.
 
 Scene 8—The Boston office.
@@ -213,19 +213,19 @@ Characters in Scene:
 The Boston President—Jim
 The Owners—John and Gen.
 
-The Owners  
+THE OWNERS  
 Jim, you’re fired.
 
-The President  
+THE PRESIDENT  
 What for?
 
-The Owners  
+THE OWNERS  
 You haven’t won a pennant and a world’s championship since last fall.
 
-The President  
+THE PRESIDENT  
 All right, I’m fired.
 
-The Owners  
+THE OWNERS  
 And take Bobby with you.
 
 ### Scene 9—A bar in Chicago.
@@ -244,43 +244,43 @@ Characters in Scene:
 A Champion—Jack
 A Relative—Gus
 
-Champion  
+CHAMPION    
 We m us’ hab mo’ gasoline.
 
-Relative  
+RELATIVE  
 Yes suh. A n’ ah need some new shoes, suh.
 
-Champion  
+CHAMPION    
 We m us’ git some dough somewhah.
 
-Relative  
+RELATIVE  
 Whah we goin’ to git it?
 
-Champion  
+CHAMPION    
 Let’s you-all an’ me put on a fight.
 
-Relative  
+RELATIVE  
 No, suh; no, suh. Ah ain’t no solid ivory.
 
-Champion  
+CHAMPION    
 Dat’s all right. Ah won’t hurt. Ah’ll preten’ Ah done broke mah ahm.
 
-Relative  
+RELATIVE  
 You mus’ break de bofe of ‘em.
 
-Champion  
+CHAMPION    
 Maybe A h’ll break 'em bofe fust time Ah hit you in de haid.
 
-Relative  
+RELATIVE  
 What do Ah git out o ’ dis perilous encountah?
 
-Champion  
+CHAMPION    
 A h’ll buy you a pah o ’ shoes.
 
-Relative  
+RELATIVE  
 But s’pose Ah gets mahself killed?
 
-Champion  
+CHAMPION    
 Den you won’t need no shoes.
 
 ### Scene 2—A street in London.
@@ -300,38 +300,40 @@ Kid Flynn—Tonio Ravioli
 Young O’Brien—Meyer Ischkebibble  
 Penuts Peck—Ivanovitch Dubinowsky  
 
-Flynn  
-You g iw a me no mon’ for sickada mont’.
-Manager—Wy I should pay you moneys wen you don’t vight since last night? Here iss vifiy zen. Shud ub. I gall you poys in to dell you vot a gread sgheme I got it. Hereafterwards you should eagsh vight eagsh others. Foist you, Meyer, should vight Beanuds for the lideweighed jampionshib. Then, after you have ligged Beanuds, Tony should choillenge you for your tidle and should lig you. Then, Beanuds should choillenge Tony and lig him. And so it goes.
+FLYNN  
+You givva me no mon’ for sickada mont’.
 
-O’Brien  
+MANAGER    
+Wy I should pay you moneys wen you don’t vight since last night? Here iss vifty zen. Shud ub. I gall you poys in to dell you vot a gread sgheme I got it. Hereafterwards you should eagsh vight eagsh others. Foist you, Meyer, should vight Beanuds for the lideweighed jampionshib. Then, after you have ligged Beanuds, Tony should choillenge you for your tidle and should lig you. Then, Beanuds should choillenge Tony and lig him. And so it goes.
+
+O’BRIEN  
 How I should be jampion lideweighed wen I weigh a houndrd and foity?
 
-Manager  
+MANAGER    
 I should raise the limids.
 
-Peck  
+PECK  
 How ‘bout dis Ritchie slob?
 
-Manager  
+MANAGER    
 He’s too heafy. He weights it a hundred and thoity-fife.
 
-Peck  
+PECK  
 Say, what do we get out o’ dis?
 
-Manager  
+MANAGER    
 Five percend of my share.
 
-Peck  
+PECK  
 Give it to me now.
 
-Manager  
+MANAGER    
 I’ll give you nothings. I paid you dree dollars las’mond.
 
-Peck  
+PECK  
 I ain’t had no eats since Saturday.
 
-Manager  
+MANAGER    
 That’s all right. If you starve a few more days, maybe you should vight Johny Coulon.
 
 ### Scene 4—A Street in London.
@@ -350,33 +352,33 @@ Isn’t that too silly?
 ### Scene 5—A College Campus in the Middle West
 
 Characters in Scene:
-Prof. Killjoy  
+PROF KILLJOY  
 Old Man Grump  
 
-Prof. Knockit  
+PROF KNOCKIT  
 Mr. Gloom
 
-Prof. Killjoy  
+PROF KILLJOY  
 A theme was pointed out to me in the sporting columns of a local publication today and I gathered from it that the football season just past was considered highly successful.
 
-Prof. Knockit  
+PROF KNOCKIT  
 I am grieved to hear you say so. Was the article authentic?
 
-Prof. Killjoy  
+PROF KILLJOY  
 Yes. I believe it was composed by Harry Eckersall, who is
 considered a profound writer on this subject.
 
-Prof. Knockit  
+PROF KNOCKIT  
 Weil, professor, is it not plainly our duty to remedy this state
 of affairs?
 
-Prof. Killjoy  
+PROF KILLJOY  
 We must do something.
 
-Prof. Knockit  
+PROF KNOCKIT  
 Have you pondered the matter?
 
-Prof. Killjoy  
+PROF KILLJOY  
 Yes. I thought it over as I sat in chapel. I will prepare a set of
 resolutions to be presented at the next meeting of the conference board. The
 resolutions will provide that no student of the male sex shall participate in athletics;
@@ -384,7 +386,7 @@ that all athletic teams must be instructed by ladies over 90 years of age, who h
 mastered the art of crocheting Irish lace, and that all spectators at a football game
 must keep their backs turned to the field of play.
 
-Prof. Knockit  
+PROF KNOCKIT  
 Admirable! Will you stop in and have a cup of tea?
 
 ### Scene 6—A street in London.

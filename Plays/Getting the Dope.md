@@ -5,7 +5,6 @@ John Jones, a Young Pitcher.
 John Smith, a Young Pitcher.  
 H. Oswald Barlow, a Reporter.  
 T. Wilson Barrett, a Reporter.  
-
 Scene—Tampa, Fla.
 
 ## Scene 1.

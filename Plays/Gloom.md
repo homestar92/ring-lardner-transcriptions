@@ -3,7 +3,6 @@
 ## Cast of Characters
 Kid Gleason, Assistant Manager.  
 Buck Weaver, a Captain.  
-
 Scene—A Hotel in Washington
 
 GLEASON  

@@ -6,7 +6,6 @@ Heine Zimmerman, a Bear Wherever You Put Him
 Si Simpson, a Recruit
 George Pest, a Cub Fan.
 Joe Bug, another Cub Fan
-
 Scene—Old Chi and Tampa, Fla. Time—March
 
 ### SCENE I

@@ -4,7 +4,6 @@
 H. Oswald Tight, a major league magnate.  
 John Dough, a Federal league manager.  
 Aleck Smart, a ball player.  
-
 Time—Winter.
 
 ### SCENE I

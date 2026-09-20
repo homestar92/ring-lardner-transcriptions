@@ -4,7 +4,6 @@
 James Callahan, a Manager.  
 Bill Lamewing, a Recruit. 
 Joe Patience, his Roommate.
-
 Scene— Paso Robles and other parts of heaven. Time—Any spring.
 
 ### Act I

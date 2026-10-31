@@ -7,7 +7,7 @@ Six or Seven Brownies.
 
 ---
 
-(Scene—The Browns' one room apartment on the lower east side of New York. The walls are dirty and bare, save in a few places where fragments of cheap wall-paper still hang. Near the wall at left, a one-burner gas plate, a few kitchen utensils, a battered dinner pail, a rickety kitchen table and two broken chairs. In the center at the rear, a door. Near it, an old stand on which are a cracked wash-basin and a pitcher. On a worn-out mattress in the center near the front, Brown is snoring loudly. To the right, six of seven babies are lying on the floor loudly quarreling over possession of the "bed-clothing," a frayed overcoat. Mrs. Brown, in rags, is lighting the gas burner.)
+(Scene—The Browns' one room apartment on the lower east side of New York. The walls are dirty and bare, save in a few places where fragments of cheap wall-paper still hang. Near the wall at left, a one-burner gas plate, a few kitchen utensils, a battered dinner pail, a rickety kitchen table and two broken chairs. In the center at the rear, a door. Near it, an old stand on which are a cracked wash-basin and a pitcher. On a worn-out mattress in the center near the front, Brown is snoring loudly. To the right, six or seven babies are lying on the floor loudly quarreling over possession of the "bed-clothing," a frayed overcoat. Mrs. Brown, in rags, is lighting the gas burner.)
 
 MRS. BROWN  
 (goes over near the mattress at center) Brown, it's four o'clock. Ain't you never goin' to git up?
@@ -33,10 +33,10 @@ MRS. BROWN
 But you said you was goin' to git on the police force, so's we could horn into some o' them dances down to the Pastry Cooks' Hall. (She goes over to the gas plate, takes a small tin pan off it and places the pan on the table.)
 
 BROWN  
-(pulls on a pair of overalls and congress shoes) There you go again with your yelpin' about Society! Do you s'pose I feel like dancin' when I've slaved from five in the morning' till ten at night, reportin' ball games at two bits a day! (He gets up and walks toward the table at left.)
+(pulls on a pair of overalls and congress shoes) There you go again with your yelpin' about Society! Do you s'pose I feel like dancin' when I've slaved from five in the mornin' till ten at night, reportin' ball games at two bits a day! (He gets up and walks toward the table at left.)
 
 MRS. BROWN  
-Ain't you goin' to wash this morning'. This is Tuesday.
+Ain't you goin' to wash this mornin'. This is Tuesday.
 
 BROWN  
 I'll wash when I need it! Well, what is they to eat? A old banana, I s'pose.
@@ -80,7 +80,7 @@ BROWN
 (Frees himself) Let me go, d⸺n you!
 
 MRS. BROWN  
-(Throws her arms around his knees) Not alone! I'll go to brooklyn or I'll go to he⸺ll!
+(Throws her arms around his knees) Not alone! I'll go to Brooklyn or I'll go to he⸺ll!
 
 BROWN  
 (Draws his scoring pencil and stabs her to the heart) Well, you won't go to Brooklyn.

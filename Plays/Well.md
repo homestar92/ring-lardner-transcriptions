@@ -16,7 +16,7 @@ WIFE
 (after a pause) Well, dearie—
 
 HUSBAND  
-(after a pause) Wekk, I s'pose we'd better see a show.
+(after a pause) Well, I s'pose we'd better see a show.
 
 WIFE  
 Why, they're closed up.

@@ -14,7 +14,7 @@ Also Dinner Plates, Knives, Forks, Spoons, Napkins, Bibs, Olives, Celery, Giblet
 ## Atto I.
 Scene—The dinner table. Christmas day at 1:30 p. m.
 
-(At the rise of the curtain, the stage is set for dinner, with theKnives, Forks, Spoons, Napkins, and Bibs on the scene.)
+(At the rise of the curtain, the stage is set for dinner, with the Knives, Forks, Spoons, Napkins, and Bibs on the scene.)
 
 KNIVES  
 Oh, we are the knives.
@@ -34,7 +34,7 @@ We're shapely young maids.
 SPOONS  
 We're homely, but awfully sensible.
 
-KINVES, FORKS, AND SPOONS  
+KNIVES, FORKS, AND SPOONS  
 > Though we're all nice and clean  
 > At the start of the scene  
 >   Having just had a Swedish massage,  
@@ -82,10 +82,10 @@ CHORUS OF CELERY AND OLIVES
 
 CHORUS OF DINNER PLATES  
 > Dinner Plates of chiny,  
-> All so white an shiny,  
+> All so white and shiny,  
 > When fair Hannah brings us in,  
 > Means the meal will soon begin.  
-> Knives and FOrks, stand steady!  
+> Knives and Forks, stand steady!  
 > Relishes, be ready!  
 > Bibs and Napkins, cease your din!  
 > Il Turkey's coming in!
@@ -134,7 +134,7 @@ LA YAM
 > Our love  will be our undoing.  
 > I just got a good long flash  
 > At White Potato, thy former mash.  
-> She loves the still. Beware  
+> She loves thee still. Beware  
 > The curse of the pomme de terre!
 
 IL TURKEY  
@@ -156,7 +156,8 @@ LO CRANBERRY SAUCE
 ---
 
 IL TURKEY
-> (defiantly) Go ride a cock hoss  
+(defiantly)  
+> Go ride a cock hoss  
 > To Banbury Cross,  
 > Old Cranberry Sauce!
 
@@ -171,7 +172,7 @@ Mio Dio!
 ## Atto II.
 Scene—The same dinner table, forty minutes later.
 
-(The curtain's rise discloses Il Turkey, Lo Gravy, Lo Cranberry Sauce, La Mashed Potato and La Yam still on the scene, but in a horribly mangled condition; also Knives, Forks, Napkins, Bibs, etc., all showing signs of the severs ordeal they have gone through. The Salt and Pepper Shakers ballet appears in "The Dance of the Seasons." As the dance ends, the utensils and naperies limp to the front of the scene.)
+(The curtain's rise discloses Il Turkey, Lo Gravy, Lo Cranberry Sauce, La Mashed Potato and La Yam still on the scene, but in a horribly mangled condition; also Knives, Forks, Napkins, Bibs, etc., all showing signs of the severe ordeal they have gone through. The Salt and Pepper Shakers ballet appears in "The Dance of the Seasons." As the dance ends, the utensils and naperies limp to the front of the scene.)
 
 CHORUS OF NAPKINS  
 > Oh, we are the napkins  
@@ -246,7 +247,7 @@ A RAISIN
 Lay off me, Nut. What was there to see?
 
 A NUT  
-Il Turkey, La Mashed POtato, and La Yam, all but dead.
+Il Turkey, La Mashed Potato, and La Yam, all but dead.
 
 A RAISIN  
 Ah! Drunken Plum Pudding's curse.
@@ -277,7 +278,7 @@ IL PUDDING
 GEN. NUTPICK  
 Si, and says he'll be stewed tomorrow.
 
-IL PUDDIN  
+IL PUDDING  
 Mio Dio!
 
 (End of the opera.)

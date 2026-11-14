@@ -1,24 +1,24 @@
 # Zanzibar
 
 ## Dramatis Personae
-Seyyid Barghash, Sultan of Zanzibar
-Uddu, Prime Minister. afterwards chef
-General Sokum, Commander of the Army
-Joko, Court Jester.
-Indoro, Secretary of the Interior
-Outdoro, Secretary of the Exterior
-Willie Wise, from the New York Stock Exchange
-Bertie Flashem, from the New York Stock Exchange
-Reggie Stocksenbonds, from the New York Stock Exchange
-Private Rippum of the Army
-Private Terrum of the Army
-Private Sluggem of the Army
-Private Maulem of the Army
-Kalulu, Lord High Doitallinaminute
-Princess Lulu.
-Princess Ujji.
-Padlock. valet to Wise.
-Shylock. valet to Flashem.
+Seyyid Barghash, Sultan of Zanzibar  
+Uddu, Prime Minister. afterwards chef  
+General Sokum, Commander of the Army  
+Joko, Court Jester.  
+Indoro, Secretary of the Interior  
+Outdoro, Secretary of the Exterior  
+Willie Wise, from the New York Stock Exchange  
+Bertie Flashem, from the New York Stock Exchange  
+Reggie Stocksenbonds, from the New York Stock Exchange  
+Private Rippum of the Army  
+Private Terrum of the Army  
+Private Sluggem of the Army  
+Private Maulem of the Army  
+Kalulu, Lord High Doitallinaminute  
+Princess Lulu.  
+Princess Ujji.  
+Padlock. valet to Wise.  
+Shylock. valet to Flashem.  
 Also Courtiers, Court Belles, Pages, etc.
 
 ## Act I

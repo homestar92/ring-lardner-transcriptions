@@ -2,31 +2,31 @@
 something in the paper about your family?”)
 
 ## CHARACTERS.
-Le pere.  
-La mere.  
+Le père.  
+La mère.  
 John, their eldest son.  
 Jim, their middle son.  
 Bill, a son-of-a-gun  
 
-(The breakfast table. La mere and the three boys are in their places. Le pere
+(The breakfast table. La mère and the three boys are in their places. Le père
 enters and sits down.)
 
 JOHN.  
-(to le pere) Good-moming, Buttered Parsnips.
+(to le père) Good-morning, Buttered Parsnips.
 
 JIM.  
-(to le pere) Good-moming, Painted Necktie.
+(to le père) Good-morning, Painted Necktie.
 
 JOHN.  
-(to le pere) Good-moming, Whiskers; have you shaved your whiskers?
+(to le père) Good-morning, Whiskers; have you shaved your whiskers?
 
 BILL.
-(to le pere) Good-moming, old friend.
+(to le père) Good-morning, old friend.
 
 JIM.  
 Oh, daddy, do you know what I seen?
 
-LA MERE.  
+LA MÈRE.  
 Saw.
 
 JIM.  
@@ -34,10 +34,10 @@ I seen a German soldier and a Murrican soldier. The German soldier said,
 “You’re no good!” So the Murrican soldier took his knife and fork and cut him to
 pieces and ett him up.
 
-LA MERE.  
+LA MÈRE.  
 Ate him up.
 
-LA PERE.  
+LE PÈRE.  
 Where did you see all this?
 
 JIM.  
@@ -46,7 +46,7 @@ In my country. You know, my country.
 BILL.  
 They don’t have soldiers in my country; just queens.
 
-LA MERE.  
+LA MÈRE.  
 Take that spoon out o f your glass. 
 
 BILL.  
@@ -69,7 +69,7 @@ Do, too.
 JOHN.  
 Whiskers, do you want to hear me rhyme one?
 
-LA PERE.  
+LE PÈRE.  
 Go ahead.
 
 JOHN.  
@@ -92,7 +92,7 @@ JOHN.
 > And everybody’s bad  
 >   Except John.
 
-LE PERE.  
+LE PÈRE.  
 That doesn’t rhyme very well.
 
 JOHN.
@@ -101,13 +101,13 @@ JOHN.
 JIM.
 (Gets down from his chair) Painted Necktie couldn’t catch a flea.
 
-LE PERE.  
+LE PÈRE.  
 You wait till I get through.
 
 BILL.  
 You won’t catch me, old friend. I’ll kick you in the mouth.
 
-LA MERE.  
+LA MÈRE.  
 Nobody likes you when you talk like that. Nobody thinks it’s funny.
 
 BILL.  

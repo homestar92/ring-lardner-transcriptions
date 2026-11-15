@@ -1,6 +1,6 @@
 ## Sprightly Conversation
 
-("The exclusive Casino club is going to open its doors to as many jackies and private soldiers as can be accommodated for a series of dances, beginning March 23. Twenty Junior league girls have been invited to furnish the sprightly conversation for hte young men of th earmy and navy and the week end parties."—The Trib.)
+("The exclusive Casino club is going to open its doors to as many jackies and private soldiers as can be accommodated for a series of dances, beginning March 23. Twenty Junior league girls have been invited to furnish the sprightly conversation for the young men of th earmy and navy and the week end parties."—The Trib.)
 
 ### Characters
 A Jackie.  

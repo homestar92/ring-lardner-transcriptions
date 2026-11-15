@@ -100,7 +100,7 @@ Sure. That's all right.
 
 ## Scene 3.
 
-(Another part of the Writing Room. JONES is seated at a desk gnawing a pen and trying to remove hte ink from his fingers with a blotter. Enter BARRETT.)
+(Another part of the Writing Room. JONES is seated at a desk gnawing a pen and trying to remove the ink from his fingers with a blotter. Enter BARRETT.)
 
 BARRETT  
 This is Mr. Jones, isn't it?

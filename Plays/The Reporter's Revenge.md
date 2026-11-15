@@ -111,7 +111,7 @@ But you never seen me buy any of your stuff.
 A Place in the Loop. Same Afternoon. JOHNNIE, Mix Artist, and the REPORTER.
 
 REPORTER  
-What do you think of hte Federal league?
+What do you think of the Federal league?
 
 JOHNNIE  
 Well, it's a good deal like a horse.
@@ -184,7 +184,7 @@ REPORTER
 What do you think of the Federal league?
 
 HAPPY  
-Well, I don't know what to think. If they got plenty o' money and is willin' to spend it I don't see no reason why they shouldn't ought to make it a go but still from all I can learn Ban Johnson and them is goin' to make a hot fight and they prob'ly got more money if they put it all together but still if the Fed'rals stick together and fight and give the public good baseball I don't see why they shouldn't ought to make good right off hte reel if they play the right kind o' ball and play high class ball and get the crowds out but still you can't tell nothin' about it.
+Well, I don't know what to think. If they got plenty o' money and is willin' to spend it I don't see no reason why they shouldn't ought to make it a go but still from all I can learn Ban Johnson and them is goin' to make a hot fight and they prob'ly got more money if they put it all together but still if the Fed'rals stick together and fight and give the public good baseball I don't see why they shouldn't ought to make good right off the reel if they play the right kind o' ball and play high class ball and get the crowds out but still you can't tell nothin' about it.
 
 ### SCENE IX
 A Place in the Loop. Same afternoon. BEN, Mix Artist, and the REPORTER.

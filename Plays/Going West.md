@@ -109,4 +109,4 @@ MAULBETSCH
 I gave you all I had, Coach.
 
 THE COACH  
-I know you did, Mauly. But what you boys need is to have your heads examined. A little common sense meant hte football game. We could have won it just like that, and like that. Huh?
+I know you did, Mauly. But what you boys need is to have your heads examined. A little common sense meant the football game. We could have won it just like that, and like that. Huh?

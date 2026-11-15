@@ -644,7 +644,7 @@ BURKE
 Keep a-workin', Jean. Don't be lookin' over here, Connolly. You have enough trouble watchin' the game.
 
 VITT  
-You might as well be lookin' over here. You can see hte game just as well.
+You might as well be lookin' over here. You can see the game just as well.
 
 ---
 

@@ -1,6 +1,6 @@
 (Note—The paper's brains department says the characters in Shakespeare's plays never could have had time to learn good Latin, let alone the kind of English the bard put in their mouths.)
 
-## Scene 2—The same. A Room in Caesar's Palace.
+## Scene 2—The same. A Room in Cæsar's Palace.
 
 (Thunder and lightning. Enter Cæsar in his nightshirt.)
 
@@ -14,14 +14,14 @@ CÆS.
 (Enter a servant.)
 
 SERV.  
-Was they anything you wanted, Marse Julius?
+> Was they anything you wanted, Marse Julius?
 
 CÆS.  
 > Go to the 'phone and call up Madame Rose.  
 > Ask if it's safe for me to leave this joint.
 
 SERV.  
-Yessah. (Exits.)
+> Yessah. (Exits.)
 
 (Enter Calphurnia.)
 
@@ -30,7 +30,7 @@ CAL.
 > This early! You ain't going to work today.
 
 CÆS.  
-I'll do as I dam please.
+> I'll do as I dam please.
 
 CAL.  
 >     But listen, dearie:  
@@ -66,7 +66,7 @@ CAL.
 >     No one said you was,  
 > But, dearie, stay at home to please your frau.  
 > We'll simply 'phone to Mr. Antony  
-> And ask him to tell the senators.  
+> And ask him to tell the senators  
 > That you have got the flu. Once in your life  
 > You might pay some attention to your wife.
 

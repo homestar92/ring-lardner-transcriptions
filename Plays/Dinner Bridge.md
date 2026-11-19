@@ -137,7 +137,7 @@ HANSEN, to AMOROSI: Did you quarrel much?
 
 AMOROSI: Only when we were together.
 
-Taylor: I was a newspaper man once myself.
+TAYLOR: I was a newspaper man once myself.
 
 LLANUZA, skeptically: You! What paper did you work on?
 
@@ -149,7 +149,7 @@ WAITER, to TAYLOR: Newspaper men must have lots of interesting experiences. (Exi
 
 AMOROSI: I suppose you’ve all heard this story—
 
-The OTHER LABORERS, in unison: Is it a golf story?
+THE OTHER LABORERS, in unison: Is it a golf story?
 
 AMOROSI: No.
 
@@ -159,9 +159,9 @@ AMOROSI, in dialect: It seems there was a woman went into a photographer’s and
 
 (WAITER enters to serve somebody.)
 
-Walter: How does it end? (WAITER exits hurriedly.)
+WAITER: How does it end? (WAITER exits hurriedly.)
 
-Amorosi: She asked the photographer if he took pictures of children. “Why, yes, madam,” replied the photographer—
+AMOROSI: She asked the photographer if he took pictures of children. “Why, yes, madam,” replied the photographer—
 
 TAYLOR: He called her “madam.”
 
@@ -171,7 +171,7 @@ AMOROSI: The photographer told her yes, that he did take pictures of children. �
 
 LLANUZA: Down in Mexico, where I come from, they don’t keep repairing the same bridge.
 
-TAYLOR, fo HANSEN: Can you imitate birds?
+TAYLOR, for HANSEN: Can you imitate birds?
 
 HANSEN: No.
 
@@ -183,7 +183,7 @@ TAYLOR: Can anybody here imitate birds?
 
 THE OTHER LABORERS, in unison: No.
 
-Taylor: J can do it. Long before I got a job on this bridge, while I was helping tear up the crosstown streets, | used to entertain the boys all day, imitating birds.
+TAYLOR: J can do it. Long before I got a job on this bridge, while I was helping tear up the crosstown streets, | used to entertain the boys all day, imitating birds.
 
 AMOROSI: What kind of birds can you imitate?
 

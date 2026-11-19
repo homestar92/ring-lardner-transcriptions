@@ -1,6 +1,6 @@
 # Zanzibar
 
-## Dramatis Personae
+## The Original Cast of Characters
 Seyyid Barghash, Sultan of Zanzibar  
 Uddu, Prime Minister. afterwards chef  
 General Sokum, Commander of the Army  

@@ -82,10 +82,9 @@ Kalulu, call the Princesses Ujji and Lulu. They must be here to meet their cousi
 ALL (Bowing)  
 Hail, Princesses.
 
-> Song, Lulu and Ujji.
->
-> CHORUS
->
+Song, Lulu and Ujji.
+
+CHORUS
 > We are the belles of Zanzibar,  
 >    Zanzibar,
 > Suitors come from near and far,  
@@ -121,8 +120,7 @@ The Sultan approaches!
 ALL  
 Hail the Sultan!
 
-> CHORUS, HAIL THE SULTAN.
->
+CHORUS, HAIL THE SULTAN.  
 > Hail the Sultan, absent long,  
 > Hear our joyous welcome song!  
 > You have been in lands afar,  
@@ -272,20 +270,31 @@ Yes, if this don't suit us we'll change back to a monarchial government.
 
 (Enter Aldermen Hyde, Hinky Dink, Henriy Irving, Mills, Steele, John Bathhouse)
 
-> SONG, We Are the City Council—Aldermen
->
+SONG, We Are the City Council—Aldermen  
 > 1. We are the city council, council, council,
 > We are the city council of Zanzibar. (Repeat)
 >
 > 2. Our occupations are various and diverse.
-> HINKY—I am the owner of a dry goods store.
-> IRVING—I was an actor, but am one no more.
-> STEELE—I make cabinets and send them away.
-> MILLS—I make paper the live-long day.
-> HYDE—I sell hides from the animal's back.
-> JOHN—I work on the repair shop track.
->
-> 4. (Repeat 1)
+
+HINKY  
+I am the owner of a dry goods store.
+
+IRVING  
+I was an actor, but am one no more.
+
+STEELE  
+I make cabinets and send them away.
+
+MILLS  
+I make paper the live-long day.
+
+HYDE  
+I sell hides from the animal's back.
+
+JOHN  
+I work on the repair shop track.
+
+(Repeat 1)
 
 (Noise outside.)
 

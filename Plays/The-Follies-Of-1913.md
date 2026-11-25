@@ -8,7 +8,7 @@ under personal direction of R. W. Lardner
 ### Scene 1: Congress hotel bar at noon.
 
 Characters in Scene:
-Peerless Leader—Frank L. CHANCE  
+Peerless Leader—Frank L. Chance  
 Also newspaper men, bartenders, and cashier.
 
 CHANCE  
@@ -21,7 +21,7 @@ Farrell to explain my refusal in person.
 ### Scene 2—Fisher building bar at 3 p.m.
 
 Characters in Scene:
-Peerless Leader Frank L. CHANCE  
+Peerless Leader Frank L. Chance  
 Also newpaper men and bartenders.
 
 CHANCE  
@@ -45,27 +45,31 @@ And a comrade says, says he:
 To inhale two beers or three.”  
 
 Chorus.  
+
 For it’s always beer weather  
 When good fellows get together  
 In a burg like St. Louis,  
 With a place like Tony’s near.  
 
 (Repeat.)
+
 So I waddled into Tony’s  
 With this most congenial pal,  
 And was gargling hot Bolognies  
 And a stein, when in blew Cal.  
 
 Chorus.
+
 When me and Cal gets together,  
 With a stein on the table  
-And the cuss words ringing clear.  
+And the cuss words ringing clear.
+
 (Don’t repeat.)
 
 ### Scene 4—A public library in Brooklyn.
 
 Characters in Scene:
-A magnate—Charles H. Ebbets
+A magnate—Charles H. Ebbets  
 The Librarian—Miss Smith
 
 MAGNATE  
@@ -99,7 +103,7 @@ department. Hello! Is that you, Tom? Say, we’re going to have a double header 
 a dedication on the 12th of July. That’s the date of the Battle of Ischkebibble. Get
 me? All right; good-by.
 
-The Librarian  
+THE LIBRARIAN  
 Good night, nurse.
 
 ### Scene 5—The Polo grounds, New York.
@@ -138,7 +142,7 @@ THE WONDER
 That’s right, you catfish. Put me out an’ weaken our club, you
 crooked catfish.
 
-###Scene 6—A place in Cincinnati. Winter.
+### Scene 6—A place in Cincinnati. Winter.
 
 Characters in Scene:
 The President—Himself
@@ -245,13 +249,13 @@ A Champion—Jack
 A Relative—Gus
 
 CHAMPION    
-We m us’ hab mo’ gasoline.
+We mus’ hab mo’ gasoline.
 
 RELATIVE  
-Yes suh. A n’ ah need some new shoes, suh.
+Yes suh. An’ ah need some new shoes, suh.
 
 CHAMPION    
-We m us’ git some dough somewhah.
+We mus’ git some dough somewhah.
 
 RELATIVE  
 Whah we goin’ to git it?
@@ -269,13 +273,13 @@ RELATIVE
 You mus’ break de bofe of ‘em.
 
 CHAMPION    
-Maybe A h’ll break 'em bofe fust time Ah hit you in de haid.
+Maybe Ah’ll break 'em bofe fust time Ah hit you in de haid.
 
 RELATIVE  
-What do Ah git out o ’ dis perilous encountah?
+What do Ah git out o’ dis perilous encountah?
 
 CHAMPION    
-A h’ll buy you a pah o ’ shoes.
+Ah’ll buy you a pah o’ shoes.
 
 RELATIVE  
 But s’pose Ah gets mahself killed?
@@ -343,8 +347,7 @@ Yankee Doodle had four chaps
 Riding on four ponies;  
 Doncher know, those bally chaps  
 They made us look like phonies.  
-
-Yankee Doodle, ‘pon my word,  
+Yankee Doodle, 'pon my word,  
 Yankee Doodle dilly,  
 Made our players look absurd;  
 Isn’t that too silly?  
@@ -352,33 +355,30 @@ Isn’t that too silly?
 ### Scene 5—A College Campus in the Middle West
 
 Characters in Scene:
-PROF KILLJOY  
-Old Man Grump  
+Prof. Killjoy  
+Prof. Knockit  
 
-PROF KNOCKIT  
-Mr. Gloom
-
-PROF KILLJOY  
+PROF. KILLJOY  
 A theme was pointed out to me in the sporting columns of a local publication today and I gathered from it that the football season just past was considered highly successful.
 
-PROF KNOCKIT  
+PROF. KNOCKIT  
 I am grieved to hear you say so. Was the article authentic?
 
-PROF KILLJOY  
+PROF. KILLJOY  
 Yes. I believe it was composed by Harry Eckersall, who is
 considered a profound writer on this subject.
 
-PROF KNOCKIT  
-Weil, professor, is it not plainly our duty to remedy this state
+PROF. KNOCKIT  
+Well, professor, is it not plainly our duty to remedy this state
 of affairs?
 
-PROF KILLJOY  
+PROF. KILLJOY  
 We must do something.
 
-PROF KNOCKIT  
+PROF. KNOCKIT  
 Have you pondered the matter?
 
-PROF KILLJOY  
+PROF. KILLJOY  
 Yes. I thought it over as I sat in chapel. I will prepare a set of
 resolutions to be presented at the next meeting of the conference board. The
 resolutions will provide that no student of the male sex shall participate in athletics;
@@ -386,7 +386,7 @@ that all athletic teams must be instructed by ladies over 90 years of age, who h
 mastered the art of crocheting Irish lace, and that all spectators at a football game
 must keep their backs turned to the field of play.
 
-PROF KNOCKIT  
+PROF. KNOCKIT  
 Admirable! Will you stop in and have a cup of tea?
 
 ### Scene 6—A street in London.

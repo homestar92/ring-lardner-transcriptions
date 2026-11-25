@@ -1,12 +1,12 @@
 ## PERSONS REPRESENTED.
 Charles the First.  
 Cardinal Thomas and Cardinal Campion.  
-Henry, Duke o f Day, afterwards King Henry the First.  
-John, Duke o f Troy, afterwards King John, afterwards deposed.  
-Francis Le Roy, King o f Cubs, afterwards deposed.  
+Henry, Duke of Day, afterwards King Henry the First.  
+John, Duke of Troy, afterwards King John, afterwards deposed.  
+Francis Le Roy, King of Cubs, afterwards deposed.  
 A Fool.  
 Scriveners, Citizens, Murderers, Messengers, etc.  
-Scene—Partly in the Palace, partly out o f it.
+Scene—Partly in the Palace, partly out of it.
 
 ## PROLOGUE.
 I come no more to make you laugh; things now  
@@ -48,7 +48,7 @@ Pray, sir, be patient.
 
 THOMAS  
 Ay, beat it ere your rage so dev’lish grows  
-That you swat one o f us upon the nose.  
+That you swat one of us upon the nose.  
 
 (Exit King Francis.)
 
@@ -78,7 +78,8 @@ Nor ever interfere with his desires.
 My manager is John, the Duke of Troy,  
 A clever, brainy, estimable boy.  
 For him the fans a banquet have prepared,  
-The cost of which by me and I is shared.  
+The cost of which by me and I is shared.
+
 (Exeunt.)
 
 ## ACT II— SUMMER OF 1913.
@@ -113,7 +114,8 @@ Will you love me in October as you do in May?
 Will you love me in the good old-fashioned way?  
 When the Sox have won the day,  
 Will you kiss me then, and say  
-That you love me in October as you did in May?  
+That you love me in October as you did in May?
+
 (Exeunt.)
 
 ## ACT III—WINTER OF 1914.
@@ -136,7 +138,7 @@ We would have copped the series from the Sox.
 FOOL  
 (Sings)  
 We all could be great managers, great managers, Oh, yes,  
-If only w e were privileged to use the second guess.  
+If only we were privileged to use the second guess.  
 
 ### Scene 3.—Throne Room in the Palace.
 (Charles the First and King John.)

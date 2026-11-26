@@ -34,7 +34,7 @@ A SCRIV.
 CHARLES.  
 Well, beat it if you like; I speak right on.
 
-[Exeunt Scriveners.]
+(Exeunt Scriveners.)
 
 ### SCENE 2 —The Loop.
 (Enter Three Fans and a Fool.)
@@ -48,7 +48,7 @@ I won’t attend another west side game.
 THIRD FAN  
 He’s spilled the beans this time; I’m through for life.
 
-[The Three Fans Pass On.]
+(The Three Fans Pass On.)
 
 A FOOL  
 (Sings)  

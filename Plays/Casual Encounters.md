@@ -1,6 +1,6 @@
 # Casual Encounters
 
-(Being an faithful report, based on the recent statements of the principals, of the conversations that took place following the accidental meetings, in St. Louis and Chicago, of Ban Johnson, president of the American league, and Phil Ball, president of the St. Louis Feds.)
+(Being a faithful report, based on the recent statements of the principals, of the conversations that took place following the accidental meetings, in St. Louis and Chicago, of Ban Johnson, president of the American league, and Phil Ball, president of the St. Louis Feds.)
 
 ## Act 1
 

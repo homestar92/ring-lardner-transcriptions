@@ -12,55 +12,55 @@ Afternoon or evening?
 LADY  
 Afternoon
 
-B. O. Man  
+B. O. MAN  
 "Romeo and Juliet."
 
 LADY  
 With Muratore and Galli-Serky?
 
-B. O. Man  
+B. O. MAN  
 Yes, it's a repetition.
 
 LADY  
 The same as last Friday night?
 
-B. O. Man  
+B. O. MAN  
 Yes.
 
 LADY  
 What are the prices?
 
-B. O. Man  
+B. O. MAN  
 Five dollars for lower floor.
 
 LADY  
 I wanted two—my sister's coming with me.
 
-B. O. Man  
+B. O. MAN  
 We only have singles.
 
 LADY  
 I wouldn't want singles.
 
-B. O. Man  
+B. O. MAN  
 I'm sorry.
 
 LADY  
 You say you have singles?
 
-B. O. Man  
+B. O. MAN  
 Yes; here's one in the fourteenth row.
 
 LADY  
 Is that the best you have?
 
-B. O. Man  
+B. O. MAN  
 Yes.
 
 LADY  
 Well, I'd have to have two together.
 
-B. O. Man  
+B. O. MAN  
 I'm sorry.
 
 LADY  
